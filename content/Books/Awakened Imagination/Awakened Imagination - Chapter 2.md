@@ -3,16 +3,16 @@ Without the identification of man with his aim, the forgiveness of sin is an imp
 Therefore, man's ability to identify himself with his aim, though reason and his senses deny it, is proof of the birth of Christ in him.  
 To passively surrender to appearances and bow before the evidence of facts is to confess that Christ is not yet born in you.  
 Although this teaching shocked and repelled me at first – for I was a convinced and earnest Christian, and did not then know that Christianity could not be inherited by the mere accident of birth but must be consciously adopted as a way of life – it stole later on, through visions, mystical revelations, and practical experiences, into my understanding and found its interpretation in a deeper mood. But I must confess that it is a trying time when those things are shaken which one has always taken for granted.  
-*"Seest thou these great buildings? There shall not be left one stone upon another that shall not be thrown down."*" (Mark 13:2)
+*"Seest thou these great buildings? There shall not be left one stone upon another that shall not be thrown down."*" ([Mark 13:2](https://www.biblegateway.com/passage/?search=Mark+13:2&version=KJV))
 Not one stone of literal understanding will be left after one drinks the water of psychological meaning.  
 All that has been built up by natural religion is cast into the flames of mental fire. Yet, what better way is there to understand Christ Jesus than to identify the central character of the Gospels with human imagination – knowing that, every time you exercise your imagination lovingly on behalf of another, you are literally mediating God to man and thereby feeding and clothing Christ Jesus and that, whenever you imagine evil against another, you are literally beating and crucifying Christ Jesus?  
 Every imagination of man is either the cup of cold water or the sponge of vinegar to the parched lips of Christ.  
-*"Let none of you imagine evil in your hearts against his neighbor"*, warned the prophet (Zechariah 8:17).  
-When man heeds this advice, he will awake from the imposed sleep of Adam into the full consciousness of the Son of God. He is in the world, and the world is made by Him, and the world knows Him not (Approx., John 1:10): Human Imagination.  
+*"Let none of you imagine evil in your hearts against his neighbor"*, warned the prophet ([Zechariah 8:17](https://www.biblegateway.com/passage/?search=Zechariah+8:17&version=KJV)).  
+When man heeds this advice, he will awake from the imposed sleep of Adam into the full consciousness of the Son of God. He is in the world, and the world is made by Him, and the world knows Him not (Approx., [John 1:10](https://www.biblegateway.com/passage/?search=John+1:10&version=KJV)): Human Imagination.  
 I asked myself many times, *"If my imagination is Christ Jesus and [all things are possible](/lectures/all-things-are-possible) to Christ Jesus, are all things possible to me?"*  
 Through experience, I have come to know that, when I identify myself with my aim in life, then Christ is awake in me.  
-Christ is sufficient for all things. - *"For in Him dwelleth all the fullness of the Godhead bodily, And ye are complete in Him, which is the head of all principality and power"*, (Colossians 2:9,10); *"My grace is sufficient for thee"*, (2Corinthians 12:9)  
-I lay down My life that I might take it again. No man taketh it from Me, but I lay it down of Myself. (John 10:17,18)  
+Christ is sufficient for all things. - *"For in Him dwelleth all the fullness of the Godhead bodily, And ye are complete in Him, which is the head of all principality and power"*, ([Colossians 2:9,10](https://www.biblegateway.com/passage/?search=Colossians+2:9,10&version=KJV)); *"My grace is sufficient for thee"*, (2Corinthians 12:9)  
+I lay down My life that I might take it again. No man taketh it from Me, but I lay it down of Myself. ([John 10:17,18](https://www.biblegateway.com/passage/?search=John+10:17,18&version=KJV))  
 What a comfort it is to know that all that I experience is the result of my own standard of beliefs; that I am the center of my own web of circumstances and that as I change, so must my outer world!  
 The world presents different appearances according as our states of consciousness differ.  
 What we see when we are identified with a state cannot be seen when we are no longer fused with it.  
@@ -37,7 +37,7 @@ If we do this, our subjective experience will be realized objectively.
 His appeal to enter into the wish fulfilled was the secret of thinking from the end. Every state is already there as *"mere possibility"* as long as you think of it, but is overpoweringly real when you think from it. Thinking from the end is the way of Christ.  
 I began right there and then, fixing my thoughts beyond the limits of sense, beyond that aspect to which my present state gave being, towards the feeling of already being in Barbados and viewing the world from that standpoint.  
 He emphasized the importance of the state from which man views the world as he falls asleep. All prophets claim that the voice of God is chiefly heard by man in Dreams
-*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men, and sealeth their instruction."* (Job 33:15,16)  
+*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men, and sealeth their instruction."* ([Job 33:15,16](https://www.biblegateway.com/passage/?search=Job+33:15,16&version=KJV))  
 That night and for several nights thereafter, I fell asleep in the Assumption that I was in my father's house in Barbados. Within a month, I received a letter from my brother, saying that he had a strong desire to have the family together at Christmas and asking me to use the enclosed steamship ticket for Barbados. I sailed two days after I received my brother's letter and spent a wonderful winter in Barbados.  
 This experience has convinced me that man can be anything he pleases if he will make the conception habitual and think from the end.  
 It has also shown me that I can no longer excuse myself by placing the blame on the world of external things – that my good and my evil have no dependency except from myself – that it depends on the state from which I view the world how things present themselves.  
@@ -45,7 +45,7 @@ Man, who is free in his choice, acts from conceptions which he freely, though no
 The imaginative image is the only thing to seek.  
 The ultimate purpose of imagination is to create in us *"the spirit of Jesus"*, which is continual forgiveness of sin, continual identification of man with his ideal.  
 Only by identifying ourselves with our aim can we forgive ourselves for having missed it. All else is labor in vain. On this path, to whatever place or state we convey our imagination, to that place or state we will gravitate physically also.  
-*"In My Father's house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto Myself; that where I am, there ye may be also."* (John 14:2,3)  
+*"In My Father's house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto Myself; that where I am, there ye may be also."* ([John 14:2,3](https://www.biblegateway.com/passage/?search=John+14:2,3&version=KJV))  
 By sleeping in my father's house in my imagination as though I slept there in the flesh, I fused my imagination with that state and was compelled to experience that state in the flesh also.  
 So vivid was this state to me, I could have been seen in my father's house had any sensitive entered the room where in imagination I was sleeping. A man can be seen where in imagination he is, for a man must be where his imagination is, for his imagination is himself. This I know from experience, for I have been seen by a few to whom I desired to be seen, when physically I was hundreds of miles away.  
 I, by the intensity of my imagination and feeling, imagining and feeling myself to be in Barbados instead of merely thinking of Barbados, had spanned the vast Atlantic to influence my brother into desiring my presence to complete the family circle at Christmas.  
@@ -67,9 +67,9 @@ Construct all ends according to the pattern of fulfilled desire.
 The whole of life is just the appeasement of hunger, and the [infinite states](/lectures/infinite-states) of consciousness from which a man can view the world are purely a means of satisfying that hunger.  
 The principle upon which each state is organized is some form of hunger to lift the passion for self-gratification to ever higher and higher levels of experience.  
 Desire is the mainspring of the mental machinery. It is a blessed thing. It is a right and natural craving which has a state of consciousness as its right and natural satisfaction.  
-*"But one thing I do, forgetting the things which are behind, and stretching forward to the things which are before, I press on toward the goal."*" (Philippians 3:13,14)  
-It is necessary to have an aim in life. Without an aim, we drift. *"What wantest thou of Me?"* - *"What wilt thou that I shall do unto thee?"* (Luke 18:41) - is the implied question asked most often by the central figure of the Gospels. In defining your aim, you must want it.  
-*"As the hart panteth after the water brooks, so panteth my soul after Thee, O, God."* (Psalms 42:1)  
+*"But one thing I do, forgetting the things which are behind, and stretching forward to the things which are before, I press on toward the goal."*" ([Philippians 3:13,14](https://www.biblegateway.com/passage/?search=Philippians+3:13,14&version=KJV))  
+It is necessary to have an aim in life. Without an aim, we drift. *"What wantest thou of Me?"* - *"What wilt thou that I shall do unto thee?"* ([Luke 18:41](https://www.biblegateway.com/passage/?search=Luke+18:41&version=KJV)) - is the implied question asked most often by the central figure of the Gospels. In defining your aim, you must want it.  
+*"As the hart panteth after the water brooks, so panteth my soul after Thee, O, God."* ([Psalms 42:1](https://www.biblegateway.com/passage/?search=Psalms+42:1&version=KJV))  
 It is lack of this passionate direction to life that makes man fail of accomplishment.  
 The spanning of the bridge between desire – thinking of – and satisfaction – thinking from – is all-important.  
 We must move mentally from thinking of the end to thinking from the end.  
@@ -86,7 +86,7 @@ Knowing that every desire is ripe grain to him who knows how to think from the e
 But how to persuade men everywhere that thinking from the end is the only living, how to foster it in every activity of man, how to reveal it as the plenitude of life and not the compensation of the disappointed: that is the problem.  
 Life is a controllable thing.  
 You can experience what you please once you realize that you are His Son, and that you are what you are by virtue of the state of consciousness from which you think and view the world,  
-*"Son, Thou art ever with Me, and all that I have is Thine."* (Luke 15:31)
+*"Son, Thou art ever with Me, and all that I have is Thine."* ([Luke 15:31](https://www.biblegateway.com/passage/?search=Luke+15:31&version=KJV))
 ## Summary
 
 

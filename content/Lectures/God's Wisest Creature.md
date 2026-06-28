@@ -8,7 +8,7 @@ Evidently when these words were first spoken we were not men, otherwise the fore
   
 First called a son of God, you were told of the grand experiment in the statement, you shall die like men. Here is the plot for expansion and an ultimate birth. But what were we prior to the fall? I cannot describe that body, but I will use scripture in the hope that you will use your imagination, although I urge you not to come to any definite conclusions.  
   
-The fall, in symbolism, is associated with the serpent. As God's wisest creature, he said to generic man (in the form of woman): *"Did God say you would die?"* and she answered: *"Yes, if I ate the fruit from the tree of the knowledge of good and evil."* Then he made this statement: *"God knows you will not surely die, but your eyes will be opened and you will become like the gods, knowing good and evil."* (Genesis 3)  
+The fall, in symbolism, is associated with the serpent. As God's wisest creature, he said to generic man (in the form of woman): *"Did God say you would die?"* and she answered: *"Yes, if I ate the fruit from the tree of the knowledge of good and evil."* Then he made this statement: *"God knows you will not surely die, but your eyes will be opened and you will become like the gods, knowing good and evil."* ([Genesis 3](https://www.biblegateway.com/passage/?search=Genesis+3&version=KJV))  
   
 The serpent has now become man! This serpent is described by Isaiah as the seraphim [sic]. Describing his vision, Isaiah said: *"I beheld the Lord sitting on a throne, high and lifted up. Above him were the seraphim."* In Hebrew, the word means glorious celestial being, fiery serpent, noble one, prince.  
   
@@ -52,7 +52,7 @@ Let no one tell you that because of your disobedience you are separated from God
   
 Now, every mystic sees the journey as one of six thousand years. Blake beheld the visions of his deadly sleep of six thousand years as dancing around his skirts like a serpent of precious stones and gold - which he knew to be himself. How can I describe my vision other than to say that when my body was split from top to bottom, I did not see a form, only golden, liquid light, which I knew to be myself. Then I fused with it and rose, just like a serpent, into my skull.  
   
-Now, I know from experience that when you are born from above, you are designated son of God and given the power to raise the dead. *"The dead will hear the voice of the son of God and rise. For as the Father has life in himself, so he has granted the son also to have life in himself."* (John 5)  
+Now, I know from experience that when you are born from above, you are designated son of God and given the power to raise the dead. *"The dead will hear the voice of the son of God and rise. For as the Father has life in himself, so he has granted the son also to have life in himself."* ([John 5](https://www.biblegateway.com/passage/?search=John+5&version=KJV))  
   
 The son of man has the power of judgment on earth, but the son of God has the power to call his brothers out of their graves. No hydrogen bomb can raise the dead. It can kill them, but nothing can arouse them but this power. When it is applied to one who has been asleep for six thousand years, it will cause him to awake and rise from the grave of his own body, in which he has been sleeping all these years.  
   

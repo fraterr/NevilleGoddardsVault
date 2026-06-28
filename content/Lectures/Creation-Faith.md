@@ -22,7 +22,7 @@ If everything exists, whether visible or invisible, then my father and mother wh
   
 Now, can I remain faithful to that scene? My faith is not going to give it reality, but my loyalty to the unseen reality will. I listen and remember what I heard, and in the tomorrows I continue to remember. Then, in its own appointed time, when that which I have been faithful to externalizes itself, I will have found [the great secret](/lectures/the-great-secret) of creation.   
   
-God tells us he does not create something out of nothing, for all things are! That he calls a thing that is not now seen as though it were seen, and the unseen becomes seen. (Romans 4:17) Instead of calling something out of nothing, you simply rearrange that which already is until it implies what you want. Then you remain loyal to that unseen reality.   
+God tells us he does not create something out of nothing, for all things are! That he calls a thing that is not now seen as though it were seen, and the unseen becomes seen. ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)) Instead of calling something out of nothing, you simply rearrange that which already is until it implies what you want. Then you remain loyal to that unseen reality.   
   
 Faith contains a power which can link you to a world where you are eternal. Paul tells us to put our faith, not in the works of men, but in the power of God. And no earthly power - be it atomic, megatons of multi-megatons - can compare to that power!   
   

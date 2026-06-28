@@ -6,7 +6,7 @@ To understand this greatest of books you need a little intelligence and much int
 
 You may ask why was the Bible written symbolically. Why was it not written in a clear, simple style so that all who read it might understand it? To these questions I reply that all men speak symbolically to that part of the world which differs from their own.
 
-The language of the West is clear to us of the West, but it is symbolic to the East; and vice versa. An example of this can be found in the Easterner’s instruction: *"If thine hand offend thee, cut it off"* (Mark 9:43). He speaks of the hand, not as the hand of the body, but as any form of expression, and thereby he warns you to turn from that expression in your world which is offensive to you. At the same time the man of the West would unintentionally mislead the man of the East by saying: *"This bank is on the rocks."* For the expression *"on the rocks"* to the Westerner is equivalent to bankruptcy while a rock to an Easterner is a symbol of faith and security. *"I will like him unto a wise man which built his house upon a rock; and the rain descended, and the floods came, and the winds blew and beat upon that house; and it fell not; for it was founded upon a rock"* (Matthew 7:24,25).
+The language of the West is clear to us of the West, but it is symbolic to the East; and vice versa. An example of this can be found in the Easterner’s instruction: *"If thine hand offend thee, cut it off"* ([Mark 9:43](https://www.biblegateway.com/passage/?search=Mark+9:43&version=KJV)). He speaks of the hand, not as the hand of the body, but as any form of expression, and thereby he warns you to turn from that expression in your world which is offensive to you. At the same time the man of the West would unintentionally mislead the man of the East by saying: *"This bank is on the rocks."* For the expression *"on the rocks"* to the Westerner is equivalent to bankruptcy while a rock to an Easterner is a symbol of faith and security. *"I will like him unto a wise man which built his house upon a rock; and the rain descended, and the floods came, and the winds blew and beat upon that house; and it fell not; for it was founded upon a rock"* ([Matthew 7:24,25](https://www.biblegateway.com/passage/?search=Matthew+7:24,25&version=KJV)).
 
 To really understand the message of the Bible you must bear in mind that it was written by the Eastern mind and therefore cannot be taken literally by those of the West. Biologically, there is no difference between the East and the West. Love and hate are the same; hunger and thirst are the same; ambition and desire are the same; but the technique of expression is vastly different.
 
@@ -36,7 +36,7 @@ Believing is simply living in the feeling of actually being the state imagined �
 
 JOD is to be aware; HE is to be aware of something; VAU is to be aware as, or to be aware of being that which you were only aware of. The second HE is your visible objectified world which is made in the image and likeness of the JOD HE VAU, or that which you are aware of being.
 
-*"And God said, Let Us make man in Our image, after Our likeness"* (Genesis 1:26). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
+*"And God said, Let Us make man in Our image, after Our likeness"* ([Genesis 1:26](https://www.biblegateway.com/passage/?search=Genesis+1:26&version=KJV)). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
 
 The world is the objectified likeness of the subjective conscious state in which consciousness abides.
 
@@ -44,7 +44,7 @@ This understanding that consciousness is the one and only reality is the foundat
 
 The stories of the Bible are attempts to reveal in symbolic language the secret of creation as well as to show man the one formula to escape from all of his own creations.
 
-This is the true meaning of the name of Jehovah, the name by which all things are made and without which there is nothing made that is made (John 1:3).
+This is the true meaning of the name of Jehovah, the name by which all things are made and without which there is nothing made that is made ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)).
 
 First, you are aware; then you become aware of something; then you become aware as that which you were aware of; then you behold objectively that which you are aware of being.
 

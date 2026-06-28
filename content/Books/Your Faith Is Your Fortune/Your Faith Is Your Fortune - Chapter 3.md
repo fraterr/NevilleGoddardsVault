@@ -1,4 +1,4 @@
-*"Ye shall know the truth, and the truth shall make you free."* (John 8:32)
+*"Ye shall know the truth, and the truth shall make you free."* ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
 
 *“Ye shall know the truth and the truth shall set you free.”*
 

@@ -1,4 +1,4 @@
-*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – (John 14:29)
+*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
 
 MANY persons, myself included, have observed events before they occurred; that is, before they occurred in this world of three dimensions. Since man can observe an event before it occurs in the three dimensions of space, life on earth must proceed according to plan, and this plan must exist else-where in another dimension and be slowly moving through our space.
 If the occurring events were not in this world when they were observed, then, to be perfectly logical, they must have been [out of this world](/books/out-of-this-world/out-of-this-world).
@@ -41,7 +41,7 @@ We have but to concentrate on the state desired in order to see it.
 
 The habit of withdrawing attention from the region of sensation and concentrating it on the invisible develops our spiritual outlook and enables us to penetrate beyond the world of sense and to see that which is invisible.
 
-*"For the invisible things of him from the creation of the world are clearly seen"* – Romans 1:20.
+*"For the invisible things of him from the creation of the world are clearly seen"* – [Romans 1:20](https://www.biblegateway.com/passage/?search=Romans+1:20&version=KJV).
 
 This vision is completely independent of the natural faculties. Open it and quicken it! Without it, these instructions are useless, for *"the things of the spirit are spiritually discerned."*
 
@@ -71,7 +71,7 @@ With its larger outlook the four-dimensional self then constructs the means nece
 
 The undisciplined mind finds it difficult to assume a state which is denied by the senses.
 
-Here is a technique that makes it easy to encounter events before they occur, to *"call things which are not seen as though they were"* (Romans 4:17). People have a habit of slighting the importance of simple things; but this simple formula for changing the future was discovered after years of searching and experimenting.
+Here is a technique that makes it easy to encounter events before they occur, to *"call things which are not seen as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). People have a habit of slighting the importance of simple things; but this simple formula for changing the future was discovered after years of searching and experimenting.
 
 The first step in changing the future is desire – that is: define your objective – know definitely what you want.
 

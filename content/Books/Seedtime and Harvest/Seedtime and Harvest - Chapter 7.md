@@ -1,5 +1,5 @@
 *"... be ye therefore wise as serpents, and harmless as doves."*
-(Matthew 10:16)
+([Matthew 10:16](https://www.biblegateway.com/passage/?search=Matthew+10:16&version=KJV))
 
 The serpent's ability to form its skin by ossifying a portion of itself, and its skill in shedding each skin as it outgrew it, caused man to regard this reptile as a symbol of the power of endless growth and self-reproduction. Man is told, therefore, to be *"wise as the serpent"* and learn how to shed his skin - his environment - which is his solidified self; man must learn how to *"loose him, and let him go"* . . . how to *"put off the old man"* . . .how to die to the old and yet know, like the serpent, that he *"shall not surely die"*.
 
@@ -10,10 +10,10 @@ When he knows this truth, he will stop the futile struggle of self-contention an
 *"Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms."*
 (Tagore)
 
-In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - Genesis 3:1 - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
+In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - [Genesis 3:1](https://www.biblegateway.com/passage/?search=Genesis+3:1&version=KJV) - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
 
 *"...was made subject to vanity, not willingly, but by reason of him who hath subjected the same in hope... For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for it? But if we hope for that we see not, then do we have patience wait for it."*
-(Romans 8:20, 24, 25)
+([Romans 8:20, 24, 25](https://www.biblegateway.com/passage/?search=Romans+8:20,+24,+25&version=KJV))
 
 Although the outer, or *"natural"*, man of the senses is interlocked with his environment, the inner, or spiritual, man of imagination is not thus interlocked. If the interlocking were complete, the charge to be *"wise as serpents"* would be in vain. Were we completely interlocked with our environment, we could not withdraw our attention from the evidence of the senses and feel ourselves into the situation of our fulfilled desire, in hope that that unseen state would solidify as our new environment. But:
 
@@ -23,7 +23,7 @@ Although the outer, or *"natural"*, man of the senses is interlocked with his en
 The spiritual body of imagination is not interlocked with man's environment. The spiritual body can withdraw from the outer man of sense and environment and imagine itself to be what it wants to be. And if it remains faithful to the vision, imagination will build for man a new environment in which to live. This is what is meant by the statement:
 
 *"... I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."*
-(John 14:2, 3)
+([John 14:2, 3](https://www.biblegateway.com/passage/?search=John+14:2,+3&version=KJV))
 
 The place that is prepared for you need not be a place in space. It can be health, wealth, companionship, anything that you desire in this world. Now, how is the place prepared?
 
@@ -38,7 +38,7 @@ This concept - that man is dual and that the inner man of imagination can dwell 
 The creative power in man sleeps and needs to be awakened.
 
 *"Awake thou that sleepest, and arise from the dead."*
-(Ephesians 5:14)
+([Ephesians 5:14](https://www.biblegateway.com/passage/?search=Ephesians+5:14&version=KJV))
 
 Wake from the sleep that tells you the outer world is the cause of the conditions of your life. Rise from the dead past and create a new environment.
 
@@ -63,7 +63,7 @@ A yonder to all ends."
 
    
 
-*"And, I, if I be lifted up from the earth, will draw all men unto me."* (John 12:32)
+*"And, I, if I be lifted up from the earth, will draw all men unto me."* ([John 12:32](https://www.biblegateway.com/passage/?search=John+12:32&version=KJV))
 
 If I be lifted up from the evidence of the senses to the state of consciousness I desire to realize and remain in that state until it feels natural. I will form that state around me and all men will see it.
 
@@ -111,10 +111,10 @@ This young woman never associated these two imaginary acts. In fact, she had alm
 
 There was her father. As she embraced him, she remembered her first imaginary action. As she opened the package he had brought her - the first gift in these many years - she remembered her second imaginary action, for the box contained a beautiful stone marten scarf.
 
-*"Ye are gods; and all of you are children of the most High."* (Psalms 82:6)
+*"Ye are gods; and all of you are children of the most High."* ([Psalms 82:6](https://www.biblegateway.com/passage/?search=Psalms+82:6&version=KJV))
 
 *"... be ye therefore wise as serpents, and harmless as doves."*
-(Matthew 10:16)
+([Matthew 10:16](https://www.biblegateway.com/passage/?search=Matthew+10:16&version=KJV))
 
 
 

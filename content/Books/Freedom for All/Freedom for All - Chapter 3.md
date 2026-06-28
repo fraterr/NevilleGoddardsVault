@@ -2,7 +2,7 @@ Let us take one of the stories of the Bible and see how the prophets and writers
 
 We all know the story of Noah and the Ark; that Noah was chosen to create a new world after the world was destroyed by the flood.
 
-The Bible tells us that Noah had three sons, Shem, Ham and Japheth (Genesis 6:10).
+The Bible tells us that Noah had three sons, Shem, Ham and Japheth ([Genesis 6:10](https://www.biblegateway.com/passage/?search=Genesis+6:10&version=KJV)).
 
 The first son is called Shem, which means name. Ham, the second son, means warm, alive. The third son is called Japheth, which means extension. You will observe that Noah and his three sons Shem, Ham and Japheth contain the same formula of creation as does the divine name of JOD HE VAU HE.
 
@@ -18,7 +18,7 @@ Your third son, Japheth, is the confirmation, the visible proof that you know th
 
 He is the extended or objectified state bearing witness of the invisible or subjective state in which you abide.
 
-In the story of Noah it is recorded that Ham saw the secrets of his Father (Genesis 9:22), and, because of his discovery, he was made to serve his brothers, Shem and (Japheth 9:25). Ham, or feeling, is the secret of the Father, your I AM, for it is through feeling that the consciousness desiring is joined to the thing desired.
+In the story of Noah it is recorded that Ham saw the secrets of his Father ([Genesis 9:22](https://www.biblegateway.com/passage/?search=Genesis+9:22&version=KJV)), and, because of his discovery, he was made to serve his brothers, Shem and (Japheth 9:25). Ham, or feeling, is the secret of the Father, your I AM, for it is through feeling that the consciousness desiring is joined to the thing desired.
 
 The conscious union or mystical marriage is made possible only through feeling.
 
@@ -30,7 +30,7 @@ To feel the presence of the thing desired, to subjectively actualize a state by 
 
 Your present objectified world is Japheth which was made visible by Ham. Therefore Ham serves his brothers Shem and Japheth, for without feeling which is symbolized as Ham, the idea or thing desired (Shem) could not be made visible as Japheth.
 
-The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh (John 1:14). *"And God calleth things that be not as though they were"* (Romans 4:17).
+The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh ([John 1:14](https://www.biblegateway.com/passage/?search=John+1:14&version=KJV)). *"And God calleth things that be not as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
 Consciousness calls things that are not seen as though they were, and it does this by first defining itself as that which it desires to express, and second by remaining within the defined state until the invisible becomes visible.
 

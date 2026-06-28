@@ -1,4 +1,4 @@
-*"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* (Job 33)   
+*"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))   
   
 Tonight you may find yourself in a terrestrial world like this one, and you feel just as real to yourself as you do here. And when you return with its memory you may think it was a dream, but it was a vision. You are dreaming right now, for this world is the dream you and I agreed to complete. Its end will appear when we turn around through a series of visions.   
   
@@ -14,7 +14,7 @@ I have a friend who dreamed it was his birthday and many people had arrived to a
   
 This is a very significant dream, whose single jet of truth is the rock. It's not the birthday, the party, or the cake, but the language of scripture that will reveal the truth of any dream. The journey of life is a mental one, which is taking place in the sea of illusion. And only when you find yourself on the Rock will your journey be at its end.   
   
-We are told: *"You are unmindful of the Rock that begot you and have forgotten the God who gave you birth."* (Deuteronomy 32) This passage of scripture tells us that the Rock is equated with God. And in the New Testament it is said: *"They drank from the supernatural Rock that followed them and the Rock was Christ."*   
+We are told: *"You are unmindful of the Rock that begot you and have forgotten the God who gave you birth."* ([Deuteronomy 32](https://www.biblegateway.com/passage/?search=Deuteronomy+32&version=KJV)) This passage of scripture tells us that the Rock is equated with God. And in the New Testament it is said: *"They drank from the supernatural Rock that followed them and the Rock was Christ."*   
   
 This gentleman is now standing on that Rock. Since all Dreams are egocentric, he conjured me from within himself Containing the whole vast world within him, he called forth those he chose to play a part he wrote for himself. This he did without our knowledge or consent. My friend has now reached that foundation stone upon which he will build his house. No longer will he build on shifting sands, where the winds and storms destroy the structures, but upon the Rock who is Christ; and Christ is God who is the Human Imagination.   
   

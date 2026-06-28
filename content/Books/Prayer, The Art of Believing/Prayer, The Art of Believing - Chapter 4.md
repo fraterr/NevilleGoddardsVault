@@ -8,7 +8,7 @@ The hypnotic state is simply being unaware, objectively.
 
 In hypnotism, the conscious mind is put to sleep and the subconscious powers are exposed as to be directly reached by suggestion. It is easy to see from this, providing you accept the truth of mental suggestions, that anyone not objectively aware of you is in a profound hypnotic state relative to you.
 
-Therefore Curse not the king, no not in thy thought; and curse not the rich in the bedchamber; for a bird of the air shall carry the voice, and that which hath wings shall tell the matter (Ecclesiastes 10:20).
+Therefore Curse not the king, no not in thy thought; and curse not the rich in the bedchamber; for a bird of the air shall carry the voice, and that which hath wings shall tell the matter ([Ecclesiastes 10:20](https://www.biblegateway.com/passage/?search=Ecclesiastes+10:20&version=KJV)).
 
 What you sincerely believe as true of another you will awaken within him.
 

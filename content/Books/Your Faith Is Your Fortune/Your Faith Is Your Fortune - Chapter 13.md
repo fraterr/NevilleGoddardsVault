@@ -2,7 +2,7 @@
 
 Your consciousness or your I AM is the unlimited potential upon which impressions are made. I’m-pressions are defined states pressed upon your I AM, Your consciousness or your I AM can be likened to a sensitive film. In the virgin state it is potentially unlimited You can impress or record a message of love or a hymn of hate, a wonderful symphony or discordant jazz. It does not matter what the nature of the impression might be; your I AM will, without a murmur, willingly receive and sustain all impressions.
 
-Your consciousness is the one referred to in Isaiah 53:3-7.
+Your consciousness is the one referred to in [Isaiah 53:3-7](https://www.biblegateway.com/passage/?search=Isaiah+53:3-7&version=KJV).
 
 *“He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him, he was despised, and we esteemed him not.”*
 

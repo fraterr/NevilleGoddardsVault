@@ -1,8 +1,8 @@
-*"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– Isaiah 55:11)
+*"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
 
-By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your I AM, speaks to you, the conditioned conscious state, through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* (Revelation 1:8, 22:13) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
+By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your I AM, speaks to you, the conditioned conscious state, through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
 
 *"For I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto those things, God shall add unto him the plagues that are written in this book; and if any man shall take away from the words of the book of this prophecy, God shall take away his part out of the book of life."* (Revelation, 22:18-19)
 
@@ -22,11 +22,11 @@ The inevitable result is death and plagues or failure and frustration as promise
 
 [God speaks to man](/lectures/god-speaks-to-man) only through the medium of his basic desires.
 
-Your desires are determined by your conception of yourself. Of themselves they are neither good or evil. *"I know and am persuaded by the Lord Christ Jesus that there is nothing unclean of itself but to him that seeth anything to be unclean to him it is unclean"* (Romans 14:14).
+Your desires are determined by your conception of yourself. Of themselves they are neither good or evil. *"I know and am persuaded by the Lord Christ Jesus that there is nothing unclean of itself but to him that seeth anything to be unclean to him it is unclean"* ([Romans 14:14](https://www.biblegateway.com/passage/?search=Romans+14:14&version=KJV)).
 
 Your desires are the natural and automatic result of your present conception of yourself.
 
-God, your unconditioned consciousness, is impersonal and no respecter of persons (Acts 10:34, Romans 2:11).
+God, your unconditioned consciousness, is impersonal and no respecter of persons ([Acts 10:34](https://www.biblegateway.com/passage/?search=Acts+10:34&version=KJV), [Romans 2:11](https://www.biblegateway.com/passage/?search=Romans+2:11&version=KJV)).
 
 Your unconditioned consciousness, God, gives to your conditioned consciousness, man, through the medium of your basic desires that which your conditioned state (your present conception of yourself) believes it needs.
 
@@ -38,7 +38,7 @@ Desires are states of consciousness seeking embodiment. They are formed by man�
 
 Desires are expressed when the man who has conceived them assumes the attitude of mind that would be his if the states desired were already expressed. Now because desires regardless of their nature can be so easily expressed by fixed attitudes of mind, a word of warning must be given to those who have not yet realized the oneness of life, and who do not know the fundamental truth that consciousness is God, the one and only reality.
 
-This warning was given to man in the famous Golden Rule – *"Do unto others that which you would have them do unto you."* (Matthew 7:21)
+This warning was given to man in the famous Golden Rule – *"Do unto others that which you would have them do unto you."* ([Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew+7:21&version=KJV))
 
 You may desire something for yourself or you may desire for another. If your desire concerns another make sure that the thing desired is acceptable to that other. The reason for this warning is that your consciousness is God, the giver of all gifts.
 
@@ -68,7 +68,7 @@ Make no mistake about this; law is no respecter of persons.
 
 Discover the law of self-expression and live by it; then you will be free. With this understanding of the law, define your desire; know exactly what you want; make certain that it is desirable and acceptable.
 
-The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. *"Before they ask I have answered"* (approx., Isaiah 65:24), *"I have ways ye know not of"* (approx., Isaia 42:16), *"My ways are past finding out"* (Romans 11:33).
+The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. *"Before they ask I have answered"* (approx., [Isaiah 65:24](https://www.biblegateway.com/passage/?search=Isaiah+65:24&version=KJV)), *"I have ways ye know not of"* (approx., Isaia 42:16), *"My ways are past finding out"* ([Romans 11:33](https://www.biblegateway.com/passage/?search=Romans+11:33&version=KJV)).
 
 The undisciplined man, on the other hand, constantly sees opposition to the fulfillment of his desire, and, because of the frustration, he forms desires of destruction which he firmly believes must be expressed before his basic desire can be realized. When man discovers this law of one consciousness he will understand the great wisdom of the Golden Rule and so he will live by it and prove to himself that the kingdom of heaven is on earth.
 
@@ -80,7 +80,7 @@ Your world is defined by your conception of yourself PLUS YOUR CONCEPTIONS OF OT
 
 The story of the Passover is to help you turn your back on the limitations of the present and pass over into a better and freer state.
 
-The suggestion to *"Follow the man with the pitcher of water"* (Mark 14:13; Luke 22:10) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
+The suggestion to *"Follow the man with the pitcher of water"* ([Mark 14:13](https://www.biblegateway.com/passage/?search=Mark+14:13&version=KJV); [Luke 22:10](https://www.biblegateway.com/passage/?search=Luke+22:10&version=KJV)) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
 
 The mind that is disciplined to hear only the good feasts upon good states and so embodies the good on earth.
 

@@ -36,7 +36,7 @@ Sir Winston calls on us to act on the Assumption that we already possess that wh
 
 Is this not the secret of *"miracles"*?
 
-Thus the man with palsy was told to rise, to take up his bed and walk — to mentally act as if he were healed (Matthew 9:1-8; Mark 2:1-13; Luke 5:18-25; John 5:1-17); and when the actions of his imagination corresponded with the actions which he would physically perform were he healed — he was healed.
+Thus the man with palsy was told to rise, to take up his bed and walk — to mentally act as if he were healed ([Matthew 9:1-8](https://www.biblegateway.com/passage/?search=Matthew+9:1-8&version=KJV); [Mark 2:1-13](https://www.biblegateway.com/passage/?search=Mark+2:1-13&version=KJV); [Luke 5:18-25](https://www.biblegateway.com/passage/?search=Luke+5:18-25&version=KJV); [John 5:1-17](https://www.biblegateway.com/passage/?search=John+5:1-17&version=KJV)); and when the actions of his imagination corresponded with the actions which he would physically perform were he healed — he was healed.
 
 "This is a story about which some may say, 'it would have happened anyway', but those who read it carefully will find room to wonder. It begins one year ago as I left Los Angeles to visit my daughter in San Francisco.
 

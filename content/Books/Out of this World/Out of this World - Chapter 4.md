@@ -1,4 +1,4 @@
-*"And for their sakes I sanctify myself, that they also might be sanctified through the truth."* (John 17:19)
+*"And for their sakes I sanctify myself, that they also might be sanctified through the truth."* ([John 17:19](https://www.biblegateway.com/passage/?search=John+17:19&version=KJV))
 
 The ideal we serve and strive to attain could never be evolved from us were it not potentially involved in our nature.
 
@@ -40,7 +40,7 @@ If we could become as emotionally aroused over our ideals as we become over our 
 
 Love and hate have a magical transforming power, and we grow through their exercise into the likeness of what we contemplate.
 
-By intensity of hatred we create in ourselves the character we imagine in our enemies. Qualities die for want of attention, so the unlovely states might best be rubbed out by imaging ―beauty for ashes and joy for mourning (Isaiah 61:3) rather than by direct attacks on the state from which we would be free. ―Whatsoever things are lovely and of good report, think on these things (Philippians 4:8), for we become that with which we are en rapport.
+By intensity of hatred we create in ourselves the character we imagine in our enemies. Qualities die for want of attention, so the unlovely states might best be rubbed out by imaging ―beauty for ashes and joy for mourning ([Isaiah 61:3](https://www.biblegateway.com/passage/?search=Isaiah+61:3&version=KJV)) rather than by direct attacks on the state from which we would be free. ―Whatsoever things are lovely and of good report, think on these things ([Philippians 4:8](https://www.biblegateway.com/passage/?search=Philippians+4:8&version=KJV)), for we become that with which we are en rapport.
 
 There is nothing to change but our concept of self. As soon as we succeed in transforming self, our world will dissolve and reshape itself in harmony with that which our change affirms.
 

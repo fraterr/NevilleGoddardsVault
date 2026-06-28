@@ -10,7 +10,7 @@ The question may arise as to how, by representing others to ourselves as better 
 
 What it makes, it can unmake. It is not only conservative, building a life from images supplied by memory — it is also creatively transformative, altering a theme already in being.
 
-The parable of the unjust steward (Luke 16:1-8) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this Revision proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
+The parable of the unjust steward ([Luke 16:1-8](https://www.biblegateway.com/passage/?search=Luke+16:1-8&version=KJV)) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this Revision proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
 
 Because imagining creates reality, we can carry Revision to the extreme and revise a scene that would be otherwise unforgivable.
 
@@ -108,13 +108,13 @@ The first act of correction or cure is always *"Revise."* If the past can be rec
 
 Make results and accomplishment the crucial test of true imagination and your confidence in the power of imagination to create reality will grow gradually from your experiments with Revision confronted by experience. Only by this process of experiment can you realize the potential power of your awakened and controlled imagination.
 
-*"How much do you owe my master?"* He said, *"A hundred measures of oil"*. And he said to him, *"Take your bill, and sit down quickly and write fifty!"* (Luke 16:5,6). This parable of the unjust steward urges us to mentally falsify the facts of life, to alter a theme already in being. By means of such imaginative falsehoods, a man *"acquires friends"* (Luke 16:9). As each day falls, mentally revise the facts of life and make them conform to events well worthy of recall; tomorrow will take up the altered pattern and go forward until at length it is realized on the heights of attainment.
+*"How much do you owe my master?"* He said, *"A hundred measures of oil"*. And he said to him, *"Take your bill, and sit down quickly and write fifty!"* ([Luke 16:5,6](https://www.biblegateway.com/passage/?search=Luke+16:5,6&version=KJV)). This parable of the unjust steward urges us to mentally falsify the facts of life, to alter a theme already in being. By means of such imaginative falsehoods, a man *"acquires friends"* ([Luke 16:9](https://www.biblegateway.com/passage/?search=Luke+16:9&version=KJV)). As each day falls, mentally revise the facts of life and make them conform to events well worthy of recall; tomorrow will take up the altered pattern and go forward until at length it is realized on the heights of attainment.
 
 The reader will find it worthwhile to follow these clues — imaginal construction of scenes implying the wish fulfilled, and imaginative participation in these scenes until tones of reality are reached. We are dealing with the secret of imagining, in which man is seen awakening into a world completely subject to his imaginative power.
 
 Man can understand recurrence of events well enough (the building of a world from images supplied by memory) — things remaining as they are. This gives him a sense of security in the stability of things. However, the presence within him of a power which awakens and becomes what it wills, radically changing its form, its environment and the circumstances of life, inspires in him a feeling of insecurity, a dreadful fear of the future.
 
-Now, *"it is high time to awake out of sleep"* (Romans 13:11) and put an end to all the unlovely creations of sleeping Man.
+Now, *"it is high time to awake out of sleep"* ([Romans 13:11](https://www.biblegateway.com/passage/?search=Romans+13:11&version=KJV)) and put an end to all the unlovely creations of sleeping Man.
 
 Revise each day.
 

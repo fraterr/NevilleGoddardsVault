@@ -1,4 +1,4 @@
-*"Not my will, but thine, be done."* (Luke 22:42)
+*"Not my will, but thine, be done."* ([Luke 22:42](https://www.biblegateway.com/passage/?search=Luke+22:42&version=KJV))
 
 *“Not my will, but thine, be done.”* This resignation is not one of blind realization that *“I can of myself do nothing, the Father within me he doeth the work,”* When man wills he attempts to make something which does not now exist appear in time and space. Too often we are not aware of that which we are really doing. We unconsciously state that we do not possess the capacities to express. We predicate our desire upon the hope of acquiring the necessary capacities in future time. *“I AM not, but I will be.”*
 
@@ -8,7 +8,7 @@ The principle by which all things are made visible is eternal. *“Eyes have not
 
 Your claim that you are now that which you want to be will remove the veil of human darkness and reveal your claim perfectly; I AM that. God’s will was expressed in the words of the Widow, *“It is well.”* Man’s will would have been, *“It will be well.”* To state, *“I shall be well,”* is to say, *“I am ill.”* God, the Eternal Now, is not mocked by words or vain repetition. God continually personifies that which is. Thus, the resignation of Jesus (who made Himself equal with God) was turning from the recognition of lack (which the future indicates with *“I shall be”*) to the recognition of supply by claiming, *“I AM that; it is done; thank you, Father.”*
 
-Now you will see the wisdom in the words of the prophet when he states, *“Let the weak say, I AM strong,”* Joel 3:10. Man in his blindness will not heed the prophet’s advice; he continues to claim himself to be weak, poor, wretched and all the other undesirable expressions from which he is trying to free himself by ignorantly claiming that he will be free from these characteristics in the expectancy of the future. Such thoughts thwart the one law that can ever free him.
+Now you will see the wisdom in the words of the prophet when he states, *“Let the weak say, I AM strong,”* [Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV). Man in his blindness will not heed the prophet’s advice; he continues to claim himself to be weak, poor, wretched and all the other undesirable expressions from which he is trying to free himself by ignorantly claiming that he will be free from these characteristics in the expectancy of the future. Such thoughts thwart the one law that can ever free him.
 
 There is only one door through which that which you seek can enter your world. *“I AM the door.”* When you say, *“I AM,”* you are declaring yourself to be, first person, present tense; there is no future. To know that I AM is to be conscious of being. Consciousness is the only door. Unless you are conscious of being that which you seek, you seek in vain.
 

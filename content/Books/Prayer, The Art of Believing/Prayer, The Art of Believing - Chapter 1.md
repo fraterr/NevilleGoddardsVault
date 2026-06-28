@@ -38,7 +38,7 @@ The feeling of the wish fulfilled, if assumed and sustained, must objectify the 
 
 This law explains why *"Faith is the substance of things hoped for, the evidence of things not seen"* and why *"He calleth things that are not seen as though they were and things that were not seen become seen."* Assume the feeling of your wish fulfilled and continue feeling that it is fulfilled until that which you feel objectifies itself.
 
-If a physical fact can produce a psychological state, a psychological state can produce a physical fact. If the effect (a) can be produced by the cause (b), then inversely, the effect (b) can be produced by the cause (a). Therefore I say unto you, *"What things soever ye desire, when ye pray, believe that ye have received them, and ye shall have them"* (Mark 11:24, E.R.V.).
+If a physical fact can produce a psychological state, a psychological state can produce a physical fact. If the effect (a) can be produced by the cause (b), then inversely, the effect (b) can be produced by the cause (a). Therefore I say unto you, *"What things soever ye desire, when ye pray, believe that ye have received them, and ye shall have them"* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV), E.R.V.).
 
 
 

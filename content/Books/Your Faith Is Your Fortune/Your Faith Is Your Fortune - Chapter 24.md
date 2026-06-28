@@ -1,4 +1,4 @@
-*"Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?"* (Mark 8: 18)
+*"Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?"* ([Mark 8](https://www.biblegateway.com/passage/?search=Mark+8&version=KJV): 18)
 
 True clairvoyance rests, not in your ability to see things beyond the range of human vision, but rather in your ability to understand that which you see.
 

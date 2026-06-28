@@ -71,7 +71,7 @@ Now let us go into the silence.
 
 ### Misunderstood Bible verse in Genesis 3:16
 - Many interpret this verse literally, assuming it refers to childbirth and male dominance.
-- However, in Isaiah 54, it is revealed that God is the husband of all humanity.
+- However, in [Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV), it is revealed that God is the husband of all humanity.
 - The children mentioned in Genesis are not physical offspring, but ideas conceived in the imagination.
 
 ### Falling in love with ideas
@@ -95,7 +95,7 @@ Now let us go into the silence.
 
 ### Biblical references
 - In Paul's letter to Timothy, salvation is attributed to the birth of the child, not children.
-- Holding the child symbolizes witnessing the kingdom of God in Luke 9.
+- Holding the child symbolizes witnessing the kingdom of God in [Luke 9](https://www.biblegateway.com/passage/?search=Luke+9&version=KJV).
 - The child represents the entrance to the kingdom, the creative power to create what is desired.
 
 ### Awakening and self-realization

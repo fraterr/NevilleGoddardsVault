@@ -11,7 +11,7 @@ Fled is that music . . . Do I wake or sleep?"
 
 This shock reverses your time sense. By this is meant that instead of your experience resulting from your past, it now becomes the result of being in imagination where you have not yet been physically. In effect, this moves you across a bridge of incident to the physical realization of your imagined state. The man who at will can assume whatever state he pleases has found the keys to the Kingdom of Heaven. The keys are desire, imagination, and a steadily focused attention on the feeling of the wish fulfilled.
 
-To such a man any undesirable objective fact is no longer a reality and the ardent wish no longer a dream. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* (Malachi 3:10)
+To such a man any undesirable objective fact is no longer a reality and the ardent wish no longer a dream. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* ([Malachi 3:10](https://www.biblegateway.com/passage/?search=Malachi+3:10&version=KJV))
 
 The windows of heaven may not be opened and the treasures seized by a strong will, but they open of themselves and present their treasures as a free gift — a gift that comes when absorption reaches such a degree that it results in a feeling of complete acceptance. The passage from your present state to the feeling of your wish fulfilled is not across a gap.
 

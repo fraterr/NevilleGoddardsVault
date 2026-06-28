@@ -84,7 +84,7 @@ The past and the present form the whole structure of man; they are carrying all 
 
 Live nobly — so that mind can store a past well worthy of recall. Should you fail to do so, remember, the first act of correction or cure is always — *"revise."*
 
-If the past is recreated into the present, so will the revised past be recreated into the present, or else the claim... though your sins are like scarlet, they shall be as white as snow (Isaiah 1:18)... is a lie. And it is no lie.
+If the past is recreated into the present, so will the revised past be recreated into the present, or else the claim... though your sins are like scarlet, they shall be as white as snow ([Isaiah 1:18](https://www.biblegateway.com/passage/?search=Isaiah+1:18&version=KJV))... is a lie. And it is no lie.
 
 The purpose of the story-to-story Commentary that follows is to link up as briefly as possible the distinct but never disconnected themes of the fourteen chapters into which I have divided the first part of this book. It will serve, I hope, as a thread of coherent thought that binds the whole into proof of its claim! Imagining Creates Reality.
 

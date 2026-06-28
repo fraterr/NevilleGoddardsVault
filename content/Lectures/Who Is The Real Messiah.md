@@ -36,7 +36,7 @@ Now we are told, *"Be ye perfect, as your Father in Heaven is perfect,"* [Matthe
 
 So every one will awake. I can’t conceive of failure. I can’t conceive of one being in this world failing, because God the Father is in Him! Even if he dies as a little child, he once breathed. That breath was God. *"Nothing is impossible to God,"* [Luke 1:37]. The most horrible beast that walked the face of this earth in the form of man cannot fail to awake! I do not care what he is. Every being in this world, male and female, will awaken; and when they awaken, it’s because the Son appears.
 
-*"No one knows who the Son is except the Father, and no one knows who the Father is except the Son and any one to whom the Son chooses to reveal it."* [Matthew 11:27 and Luke 10:22]
+*"No one knows who the Son is except the Father, and no one knows who the Father is except the Son and any one to whom the Son chooses to reveal it."* [Matthew 11:27 and [Luke 10:2](https://www.biblegateway.com/passage/?search=Luke+10:2&version=KJV)2]
 
 So in the fullness of time, He sends His Son into our hearts crying *"Father."* And then, in that moment in time, the Son appears. He was always within us. The whole vast thing takes place within the Immortal Head of man. So when you depart, having found the Son, you will be part of the watchers, watching every one in the world; and they are all your brothers. And you will know that:
 

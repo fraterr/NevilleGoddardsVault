@@ -56,25 +56,25 @@ The most difficult thing for man to really grasp is this: That the *"I AM-ness"*
 
 This discovery reveals that all that I have believed God to be I AM.
 
-*"I AM the resurrection and the life"* (John 11:25) is a statement of fact concerning my consciousness, for my consciousness resurrects or makes visibly alive that which I am conscious of being
+*"I AM the resurrection and the life"* ([John 11:25](https://www.biblegateway.com/passage/?search=John+11:25&version=KJV)) is a statement of fact concerning my consciousness, for my consciousness resurrects or makes visibly alive that which I am conscious of being
 
-*"I AM the door (John 10:2, 10:7, 10:9)… all that ever came before me are thieves and robbers"* (John 10:8) shows me that my consciousness is the one and only entrance into the world of expression; that by assuming the consciousness of being or possessing the thing which I desire to be or possess is the only way by which I can become it or possess it; that any attempt to express this desirable state in ways other than by assuming the consciousness of being or possessing it, is to be robbed of the joy of expression and possession.
+*"I AM the door ([John 10:2, 10:7, 10:9](https://www.biblegateway.com/passage/?search=John+10:2,+10:7,+10:9&version=KJV))… all that ever came before me are thieves and robbers"* ([John 10:8](https://www.biblegateway.com/passage/?search=John+10:8&version=KJV)) shows me that my consciousness is the one and only entrance into the world of expression; that by assuming the consciousness of being or possessing the thing which I desire to be or possess is the only way by which I can become it or possess it; that any attempt to express this desirable state in ways other than by assuming the consciousness of being or possessing it, is to be robbed of the joy of expression and possession.
 
-*"I AM the beginning and the end"* (Revelation 1:8, 22:13) reveals my consciousness as the cause of the birth and death of all expression.
+*"I AM the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) reveals my consciousness as the cause of the birth and death of all expression.
 
-*"I AM hath sent me"* (Exodus 3:14) reveals my consciousness to be the Lord which sends me into the world in the image and likeness of that which I am conscious of being to live in a world composed of all that I am conscious of.
+*"I AM hath sent me"* ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+3:14&version=KJV)) reveals my consciousness to be the Lord which sends me into the world in the image and likeness of that which I am conscious of being to live in a world composed of all that I am conscious of.
 
-*"[I AM the Lord](/lectures/i-am-the-lord), and there is no God beside Me"* (Isaiah 45:5) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
+*"[I AM the Lord](/lectures/i-am-the-lord), and there is no God beside Me"* ([Isaiah 45:5](https://www.biblegateway.com/passage/?search=Isaiah+45:5&version=KJV)) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
 
-*"BE still and know that I AM God"* (Psalm 46:10) means that I should still the mind and know that consciousness is God.
+*"BE still and know that I AM God"* ([Psalm 46:10](https://www.biblegateway.com/passage/?search=Psalm+46:10&version=KJV)) means that I should still the mind and know that consciousness is God.
 
-*"Thou shalt not take the Name of the Lord thy God in vain"* (Exodus 20:7), *"I AM the Lord: that is My Name"* (Isaiah 42:8). Now that you have discovered your I AM, your consciousness to be God, do not claim anything to be true of yourself that you would not claim to be true of God, for in defining yourself, you are defining God.
+*"Thou shalt not take the Name of the Lord thy God in vain"* ([Exodus 20:7](https://www.biblegateway.com/passage/?search=Exodus+20:7&version=KJV)), *"I AM the Lord: that is My Name"* ([Isaiah 42:8](https://www.biblegateway.com/passage/?search=Isaiah+42:8&version=KJV)). Now that you have discovered your I AM, your consciousness to be God, do not claim anything to be true of yourself that you would not claim to be true of God, for in defining yourself, you are defining God.
 
-That which you are conscious of being is that which you have named God. God and man are one. You and your Father are one (John 10:30).
+That which you are conscious of being is that which you have named God. God and man are one. You and your Father are one ([John 10:30](https://www.biblegateway.com/passage/?search=John+10:30&version=KJV)).
 
 Your unconditioned consciousness, or I AM, and that which you are conscious of being, are one.
 
-The conceiver and the conception are one. If your conception of yourself is less than that which you claim as true of God, you have robbed God (see Philippians 2:6), the Father, because you (the Son or conception) bear witness of the Father or conceiver. Do not take the magical Name of God, I AM, in vain for you will not be held guiltless; you must express all that you claim yourself to be.
+The conceiver and the conception are one. If your conception of yourself is less than that which you claim as true of God, you have robbed God (see [Philippians 2:6](https://www.biblegateway.com/passage/?search=Philippians+2:6&version=KJV)), the Father, because you (the Son or conception) bear witness of the Father or conceiver. Do not take the magical Name of God, I AM, in vain for you will not be held guiltless; you must express all that you claim yourself to be.
 
 Name God by consciously defining yourself as your highest ideal.
 

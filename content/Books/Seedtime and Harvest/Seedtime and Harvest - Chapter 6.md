@@ -1,9 +1,9 @@
 *"And one said to the man clothed in linen, which was upon the waters of the river, How long shall it be to the end of these wonders? And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and swear by him that liveth forever that it shall be for a time, times, and an half."*  
-(Daniel 12:6, 7)
+([Daniel 12:6, 7](https://www.biblegateway.com/passage/?search=Daniel+12:6,+7&version=KJV))
 
 At one of my lectures given in Los Angeles on the subject of the hidden meaning behind the stories of the Bible, someone asked me to interpret the above quotation from the Book of Daniel. After I confessed I did not know the meaning of that particular passage, a lady in the audience said to herself, *"If the mind behaves according to the Assumption with which it starts, then I will find the true answer to that question and tell it to Neville."* And this is what she told me.
 
-*"Last night the question was asked: 'What is the meaning of "*time, times, and an half*" as recorded in Daniel 12:7?' Before going to sleep last night I said to myself, 'Now there is a simple answer to this question, so I will assume that I know it and while I am sleeping my greater self will find the answer and reveal it to my lesser self in dream or vision.'"*
+*"Last night the question was asked: 'What is the meaning of "*time, times, and an half*" as recorded in [Daniel 12:7](https://www.biblegateway.com/passage/?search=Daniel+12:7&version=KJV)?' Before going to sleep last night I said to myself, 'Now there is a simple answer to this question, so I will assume that I know it and while I am sleeping my greater self will find the answer and reveal it to my lesser self in dream or vision.'"*
 
 *"Around five A.M. I awakened. It was too early to rise, so remaining in bed I quickly fell into that half dreamy state between waking and sleeping, and while in that state a picture came into my mind of an old lady. She was sitting in a rocking chair and rocking back and forth, back and forth. Then a voice which sounded like your voice said to me: 'Do it over and over and over again until it takes on the tones of reality.'"*
 
@@ -24,7 +24,7 @@ At about four o'clock in the morning, she was awakened by the cry of her cat. He
 That cat lived comfortably for five more years, when, without pain or illness, he died naturally in his sleep.
 
 *"How long shall it be to the end of these wonders?... A time, times, and an half. In a dream in a vision of the night, when deep sleep falleth upon men, in slumberings upon the bed; Then he openeth the ears of men, and sealeth their instructions."*  
-(Job 33:15, 16)
+([Job 33:15, 16](https://www.biblegateway.com/passage/?search=Job+33:15,+16&version=KJV))
 
 
 
