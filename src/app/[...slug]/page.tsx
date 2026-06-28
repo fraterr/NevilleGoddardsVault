@@ -87,12 +87,11 @@ export default async function DocumentPage({ params }: PageProps) {
           height: '200px',
           overflow: 'hidden'
         }}>
-          <Image
-            src={`/images/banners/${bannerFile}`}
+          {/* eslint-disable-next-line @next/next/no-img-element */}
+          <img
+            src={`/NevilleGoddardsVault/images/banners/${bannerFile}`}
             alt="Page banner"
-            fill
-            style={{ objectFit: 'cover', objectPosition: 'center' }}
-            priority
+            style={{ width: '100%', height: '100%', objectFit: 'cover', objectPosition: 'center' }}
           />
         </div>
       )}
