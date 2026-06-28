@@ -27,8 +27,23 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
               const finalHref = hashPart ? `${slugifiedPath}#${hashPart}` : slugifiedPath;
               return <Link href={finalHref}>{children}</Link>;
             }
+            
+            // Check if it's a Bible Gateway link to inject an ID for scrolling
+            let idAttr = undefined;
+            if (href && href.includes('biblegateway.com')) {
+              try {
+                const urlObj = new URL(href);
+                const searchParam = urlObj.searchParams.get('search');
+                if (searchParam) {
+                  idAttr = slugify(searchParam);
+                }
+              } catch (e) {
+                // Ignore invalid URLs
+              }
+            }
+
             return (
-              <a href={href} target="_blank" rel="noopener noreferrer" {...props}>
+              <a href={href} id={idAttr} target="_blank" rel="noopener noreferrer" {...props}>
                 {children}
               </a>
             );
