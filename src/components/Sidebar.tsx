@@ -1,4 +1,5 @@
 import Link from 'next/link';
+import Image from 'next/image';
 import { getVaultTree, VaultNode } from '@/lib/markdown';
 import styles from './Sidebar.module.css';
 
@@ -14,6 +15,16 @@ export default function Sidebar() {
       <div className={styles.header}>
         <h1 className={styles.title}>Neville Goddard's Vault</h1>
         <p className={styles.subtitle}>Awaken Your Imagination</p>
+        <div className={styles.logoContainer}>
+          <Image 
+            src="/images/logo.png" 
+            alt="Neville Goddard" 
+            width={120} 
+            height={120} 
+            className={styles.logo}
+            priority
+          />
+        </div>
         <a 
           href="https://buymeacoffee.com/practicalhumanism" 
           target="_blank" 
