@@ -2,7 +2,7 @@ The Bible is addressed to the Imagination - which is [spiritual sensation](/lect
   
 In the fifth chapter of the Book of Ephesians we are told to: *"Awake O sleeper and rise from the dead."* Now, reason could never comprehend these words, but the Bible is calling upon Imagination to awaken, telling Him that he is sleeping, dreaming his world into being. But Imagination, now a rational being, does not know this and therefore cannot believe it.   
   
-All of the commands of scripture are addressed to and fulfilled by the Lord, who is all Imagination! It is your own wonderful human Imagination who is called upon to <span style="color: #4ade80;">*"Rouse thyself! Why sleepest thou, O Lord? Awake!"*</span> ([Psalms 44](https://www.biblegateway.com/passage/?search=Psalms+44&version=KJV))   
+All of the commands of scripture are addressed to and fulfilled by the Lord, who is all Imagination! It is your own wonderful human Imagination who is called upon to <span style="color: #4ade80;">*"Rouse thyself! Why sleepest thou, O Lord? Awake!"*</span> ([Psalms 44](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))   
   
 The greatest confession of faith man has ever received through revelation is called the Sh'ma. It is recorded in the 6th chapter of Deuteronomy as: *"Hear O Israel, the Lord our God, the Lord is one."* The Lord spoken of here is the Elohim, which is a compound unity of one, made up of others. I know, for I have stood in His presence. He embraced me and incorporated me into His body. Since that day back in 1929, I have been one with the body of the Risen Lord.   
   
@@ -92,7 +92,7 @@ Made in the image of God, you are God's prodigal son who came out from the Fathe
   
 Having fallen, you emanate a body, which is necessary to function in this world, and you automatically do it with not one part missing. I meet those who have left this time/space and do not even know they have died.   
   
-If I told you right now that you are not only sound asleep but you are also dead, you would think me mad and the possessor of a demon. That's what they said of the Risen Christ. *"Why listen to him, he is mad and has a demon."* Taking up stones to stone him they said, *"We stone you for blasphemy, for you being a man claim you are God."* Then he replied, <span style="color: #4ade80;">*"Is it not written in your law, ‘I say you are gods?’ If he calls you gods to whom the word of God came, then why do you say of him whom the Father consecrated and sent into the world that he blasphemes?"*</span> ([John 10](https://www.biblegateway.com/passage/?search=John+10&version=KJV))   
+If I told you right now that you are not only sound asleep but you are also dead, you would think me mad and the possessor of a demon. That's what they said of the Risen Christ. *"Why listen to him, he is mad and has a demon."* Taking up stones to stone him they said, *"We stone you for blasphemy, for you being a man claim you are God."* Then he replied, *"Is it not written in your law, ‘I say you are gods?’ If he calls you gods to whom the word of God came, then why do you say of him whom the Father consecrated and sent into the world that he blasphemes?"* (John 10)   
   
 Jesus never claimed he was greater than another. Those who heard him did not know they were God, and he was only trying to awaken them to the memory that they were the sons who came down. He said: *"Go tell my brothers that I am ascending to my Father and your Father, to my God and your God."*   
   

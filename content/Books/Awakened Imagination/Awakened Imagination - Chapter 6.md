@@ -1,7 +1,7 @@
 THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
-<span style="color: #4ade80;">*"The Kingdom of Heaven is within you."*</span> ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
+*"The Kingdom of Heaven is within you."* (Luke 17:21)  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
-<span style="color: #4ade80;">*"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."*</span> ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
+*"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* (John 6:44; 10:30)  
 The world which is described from observation is a manifestation of the mental activity of the observer.  
 When man discovers that his world is his own mental activity made visible, that no man can come unto him except he draws him, and that there is no one to change but himself, his own imaginative self, his first impulse is to reshape the world in the image of his ideal.  
 But his ideal is not so easily incarnated. In that moment when he ceases to conform to external discipline, he must impose upon himself a far more rigorous discipline, the self-discipline upon which the realization of his ideal depends.  
@@ -33,7 +33,7 @@ It was all in the past. The thing I had labored so long to correct was done. I s
 I gathered all my gratitude up in a big ball of light and shot it straight to you and if you saw a flash of lightning Monday evening shortly after six your time, that was it.  
 "Now, instead of writing a polite letter because it is the correct thing to do, I can write giving sincere thanks for her frankness and thanking her for the loan of her house.  
 Thank you so much for your teaching, which has made my beloved imagination truly my Saviour."  
-And now, if any man shall say unto her <span style="color: #4ade80;">*"Lo, here is Christ, or there"*</span> ([Matthew 24:23](https://www.biblegateway.com/passage/?search=Matthew+24:23&version=KJV)), she will believe it not, for she knows that the Kingdom of God is within her and that she herself must assume full responsibility for the incarnation of her ideal and that nothing but death and resurrection will bring her to it.  
+And now, if any man shall say unto her *"Lo, here is Christ, or there"* (Matthew 24:23), she will believe it not, for she knows that the Kingdom of God is within her and that she herself must assume full responsibility for the incarnation of her ideal and that nothing but death and resurrection will bring her to it.  
 She has found her Saviour, her beloved Imagination, forever expanding in the bosom of God.  
 There is only one reality, and that is Christ – Human Imagination, the inheritance and final achievement of the whole of Humanity,  
 That we... <span style="color: #4ade80;">*"speaking the truth in love, may grow up into Him in all things, which is the head, even Christ."*</span> ([Ephesians 4:14,15](https://www.biblegateway.com/passage/?search=Ephesians+4:14,15&version=KJV))

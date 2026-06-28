@@ -9,7 +9,7 @@ The subconscious – unlike the woman of the world who marries her husband to ch
 
 The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost feeling that they may reveal you to yourself.
 
-<span style="color: #4ade80;">*"As in heaven, so on earth"*</span> ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
+*"As in heaven, so on earth"* (Matthew 6:10; Luke 11:2). As in the subconscious, so on earth.
 
 Whatever you have in consciousness as you go to sleep is the measure of your expression in the waking two-thirds of your life on earth.
 
@@ -23,11 +23,11 @@ To be realized, then, the wish must be resolved into the feeling of being or hav
 
 Once asleep, man has no freedom of choice. His entire slumber is dominated by his last waking concept of self.
 
-It follows, therefore, that he should always assume the feeling of accomplishment and satisfaction before he retires in sleep, <span style="color: #4ade80;">*"Come before me with singing and thanksgiving"*</span> ([Psalm 95:2](https://www.biblegateway.com/passage/?search=Psalm+95:2&version=KJV)), <span style="color: #4ade80;">*"Enter into his gates with thanksgiving and into his courts with praise"*</span> ([Psalm 100:4](https://www.biblegateway.com/passage/?search=Psalm+100:4&version=KJV)). Your mood prior to sleep defines your state of consciousness as you enter into the presence of your everlasting lover, the subconscious.
+It follows, therefore, that he should always assume the feeling of accomplishment and satisfaction before he retires in sleep, <span style="color: #4ade80;">*"Come before me with singing and thanksgiving"*</span> ([Psalm 95:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)), <span style="color: #4ade80;">*"Enter into his gates with thanksgiving and into his courts with praise"*</span> ([Psalm 100:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Your mood prior to sleep defines your state of consciousness as you enter into the presence of your everlasting lover, the subconscious.
 
 She sees you exactly as you feel yourself to be. If, as you prepare for sleep, you assume and maintain the consciousness of success by feeling *"I am successful"*, you must be successful. Lie flat on your back with your head on a level with your body. Feel as you would were you in possession of your wish and quietly relax into unconsciousness.
 
-<span style="color: #4ade80;">*"He that keepeth Israel shall neither slumber nor sleep"*</span> ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalm+121:4&version=KJV)). Nevertheless <span style="color: #4ade80;">*"He giveth his beloved sleep"*</span> ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalm+127:2&version=KJV)).
+<span style="color: #4ade80;">*"He that keepeth Israel shall neither slumber nor sleep"*</span> ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Nevertheless <span style="color: #4ade80;">*"He giveth his beloved sleep"*</span> ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)).
 
 The subconscious never sleeps. Sleep is the door through which the conscious, waking mind passes to be creatively joined to the subconscious.
 
@@ -85,7 +85,7 @@ The actions of man are determined by his subconscious impressions.
 
 His illusion of free will, his belief in freedom of action, is but ignorance of the causes which make him act. He thinks himself free because he has forgotten the link between himself and the event.
 
-Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. <span style="color: #4ade80;">*"Let the dead bury the dead"*</span> ([Matthew 8:22](https://www.biblegateway.com/passage/?search=Matthew+8:22&version=KJV); [Luke 9:60](https://www.biblegateway.com/passage/?search=Luke+9:60&version=KJV)). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
+Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. *"Let the dead bury the dead"* (Matthew 8:22; Luke 9:60). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
 
 Feeling a state produces that state.
 
@@ -99,7 +99,7 @@ Unless you consciously and purposely define the attitude of mind with which you 
 
 Ideas enveloped in feeling are creative actions. Use your divine right wisely. Through your ability to think and feel, you have dominion over all creation.
 
-While you are awake, you are a gardener selecting seed for your garden, but <span style="color: #4ade80;">*"Except a corn of wheat fall into the ground and die, it abideth alone; but if it die, it bringeth forth much fruit"*</span> ([John 12:24](https://www.biblegateway.com/passage/?search=John+12:24&version=KJV)). Your conception of yourself as you fall asleep is the seed you drop into the ground of the subconscious. Dropping off to sleep feeling satisfied and happy compels conditions and events to appear in your world which confirm these attitudes of mind.
+While you are awake, you are a gardener selecting seed for your garden, but *"Except a corn of wheat fall into the ground and die, it abideth alone; but if it die, it bringeth forth much fruit"* (John 12:24). Your conception of yourself as you fall asleep is the seed you drop into the ground of the subconscious. Dropping off to sleep feeling satisfied and happy compels conditions and events to appear in your world which confirm these attitudes of mind.
 
 Sleep is the door into heaven. What you take in as a feeling you bring out as a condition, action, or object in space. So sleep in the feeling of the wish fulfilled.
 

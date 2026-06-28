@@ -1,11 +1,11 @@
 *“…Except a man be born again he cannot see the kingdom of God.”*
-([John 3:3](https://www.biblegateway.com/passage/?search=John+3:3&version=KJV))
+(John 3:3)
 
 *“But one of the soldiers with a spear pierced his side, and forthwith came there out blood and water.”*
-([John 19:34](https://www.biblegateway.com/passage/?search=John+19:34&version=KJV))
+(John 19:34)
 
 *“This is he that came [by water and blood](/lectures/by-water-and-blood), even [Jesus Christ](/lectures/jesus-christ); not by water only, but by water and blood.”*
-([John 5:6](https://www.biblegateway.com/passage/?search=John+5:6&version=KJV))
+(John 5:6)
 
 According to the gospel and the Epistle of John, not only must man be *“born again”* but he must be born again of water and blood. These two inward experiences are linked with two outward rites – baptism and communion. But the two outward rites – baptism to symbolize birth by water, and the wine of communion to symbolize acceptance of the blood of the Savoir, cannot produce the real birth or radical transformation of the individual, which is promised to man. The outward use of water and wine cannot bring about the desired change of mind. We must, therefore, look for the hidden meaning behind the symbols of water and blood.
 
@@ -15,7 +15,7 @@ The Bible uses many images to symbolize Truth, but the images used symbolize Tru
 ([Genesis 29:2, 3](https://www.biblegateway.com/passage/?search=Genesis+29:2,+3&version=KJV))
 
 *“…They sank into the bottom as a stone.”*
-([Exodus 15:5](https://www.biblegateway.com/passage/?search=Exodus+15:5&version=KJV))
+([Exodus 15:5](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV))
 
 When a stone blocks the well, it means that people have taken these great symbolical revelations of truth literally. When someone rolls the stone away, it means that an individual has discovered beneath the allegory or parable its psychological life germ, or meaning. This hidden meaning which lies behind the literal words is symbolized by water. It is this water. In the form of psychological Truth, that he then offers to humanity.
 
@@ -35,10 +35,10 @@ To know what to do about a seeming misfortune is to have the *“cup of water”
 
 This he does by living a life according to the truth which he has discovered.
 
-Only by such use of the truth can he <span style="color: #4ade80;">*“taste the water that was made wine…”*</span> ([John 2:9](https://www.biblegateway.com/passage/?search=John+2:9&version=KJV))
+Only by such use of the truth can he *“taste the water that was made wine…”* (John 2:9)
 
-A mans birthright is to be Jesus. He is born to <span style="color: #4ade80;">“save
-his people from their sins”</span> ([Matthew 1](https://www.biblegateway.com/passage/?search=Matthew+1&version=KJV) : 21)
+A mans birthright is to be Jesus. He is born to “save
+his people from their sins” (Matthew 1 : 21)
 
 But the salvation of a man is *“not by water only, but by water and blood”*.
 
@@ -101,7 +101,7 @@ However, we must not look upon this radiant light of the head as God, for man is
 
 But this must be experienced to be known. There is no other way, and no other man’s experience can be a substitute for our own.
 
-I told the teacher that her change of attitude in regard to another would produce a corresponding change in the other; that such knowledge was the true meaning of the water mentioned in I. [John 5:6](https://www.biblegateway.com/passage/?search=John+5:6&version=KJV), but that such knowledge alone was not enough to produce the re-birth desired; that such re-birth could only come to pass by *“water and blood”*, or the application of this truth.
+I told the teacher that her change of attitude in regard to another would produce a corresponding change in the other; that such knowledge was the true meaning of the water mentioned in I. John 5:6, but that such knowledge alone was not enough to produce the re-birth desired; that such re-birth could only come to pass by *“water and blood”*, or the application of this truth.
 
 Knowledge of what to do is the water of life, but doing it is the blood of the savior.
 
@@ -116,7 +116,7 @@ As she rode home that night, the teacher kept wondering if she could really chan
 The only way to find out would be to try. This would be quite an undertaking for it meant assuming full responsibility for the incarnation of the new values in the student. Did she dare to assume so great a power – such creative, God-like power? This meant a complete reversal of man’s normal attitude towards life from *“I will love him if he first loves me”*, to *“He loves me, because I first loved him.”* This was too much like playing God.
 
 *“We love Him, because He first loved us.”*
-([John 4:19](https://www.biblegateway.com/passage/?search=John+4:19&version=KJV))
+(John 4:19)
 
 But no matter how she tried to argue against it, the feeling persisted that my interpretation gave meaning to the mystery of re-birth by *“water and blood.”* The teacher decided to accept the challenge. And this is what she did.
 

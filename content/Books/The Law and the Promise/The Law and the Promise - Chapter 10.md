@@ -1,4 +1,4 @@
-*"...what is seen was made out of things which do not appear."* (Heb. 11:3)
+<span style="color: #4ade80;">*"...what is seen was made out of things which do not appear."*</span> ([Heb. 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
 
 *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
 
@@ -6,7 +6,7 @@
 
 To refuse to recognize the creative power of man's invisible, imaginal activity, is too great to be argued with. Man, through his imaginal activity, literally <span style="color: #4ade80;">*"calls into existence the things that do not exist"*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
-By man's imaginal activity, all things are made, and without such activity, <span style="color: #4ade80;">*"was not anything made that was made"*</span> ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)).
+By man's imaginal activity, all things are made, and without such activity, *"was not anything made that was made"* (John 1:3).
 
 Such causal activity could be defined as, an imaginal assemblage of images, which occurring, some physical event invariably takes place. It is for us to assemble the images of happy outcome and then keep from interfering. The event must not be forced but allowed to happen.
 

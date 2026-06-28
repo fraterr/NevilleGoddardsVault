@@ -28,7 +28,7 @@ In your Meditation allow others to see you as they would see you were this new c
 
 If you assume that you are what you want to be your desire is fulfilled, and, in fulfillment, all longing is neutralized. You cannot continue desiring what you have already realized. Your desire is not something you labor to fulfill, it is recognizing something you already possess. It is assuming the feeling of being that which you desire to be. Believing and being are one.
 
-The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth‖ ([Mark 9:23](https://www.biblegateway.com/passage/?search=Mark+9:23&version=KJV)).
+The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth‖ (Mark 9:23).
 
 Being is the substance of things hoped, the evidence of things not yet seen (cf. [Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV)).
 

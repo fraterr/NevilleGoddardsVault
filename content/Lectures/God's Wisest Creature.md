@@ -52,7 +52,7 @@ Let no one tell you that because of your disobedience you are separated from God
   
 Now, every mystic sees the journey as one of six thousand years. Blake beheld the visions of his deadly sleep of six thousand years as dancing around his skirts like a serpent of precious stones and gold - which he knew to be himself. How can I describe my vision other than to say that when my body was split from top to bottom, I did not see a form, only golden, liquid light, which I knew to be myself. Then I fused with it and rose, just like a serpent, into my skull.  
   
-Now, I know from experience that when you are born from above, you are designated son of God and given the power to raise the dead. <span style="color: #4ade80;">*"The dead will hear the voice of the son of God and rise. For as the Father has life in himself, so he has granted the son also to have life in himself."*</span> ([John 5](https://www.biblegateway.com/passage/?search=John+5&version=KJV))  
+Now, I know from experience that when you are born from above, you are designated son of God and given the power to raise the dead. *"The dead will hear the voice of the son of God and rise. For as the Father has life in himself, so he has granted the son also to have life in himself."* (John 5)  
   
 The son of man has the power of judgment on earth, but the son of God has the power to call his brothers out of their graves. No hydrogen bomb can raise the dead. It can kill them, but nothing can arouse them but this power. When it is applied to one who has been asleep for six thousand years, it will cause him to awake and rise from the grave of his own body, in which he has been sleeping all these years.  
   

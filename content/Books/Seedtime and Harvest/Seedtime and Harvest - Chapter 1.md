@@ -16,7 +16,7 @@ According to the Scriptures, we sleep with Adam and wake with Christ. That is, w
 
 If Adam, or generic man, is in a deep sleep, then his experiences as recorded in the Scriptures must be a dream. Only he who is awake can tell his dream, and only he would understand the symbolism of Dreams can interpret the dream.
 
-<span style="color: #4ade80;">*"And they said one to another, Did not our heart burn within us, while He talked with us by the way, and while He opened to us the Scriptures?"*</span> ([Luke 24:32](https://www.biblegateway.com/passage/?search=Luke+24:32&version=KJV))
+*"And they said one to another, Did not our heart burn within us, while He talked with us by the way, and while He opened to us the Scriptures?"* (Luke 24:32)
 
 The Bible is a revelation of the laws and functions of Mind expressed in the language of that twilight realm into which we go when we sleep. Because the symbolical language of this twilight realm is much the same for all men, the recent explorers of this realm - human imagination - call it the *"collective unconscious."*
 

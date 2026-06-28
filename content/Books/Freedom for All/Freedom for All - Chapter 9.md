@@ -1,6 +1,6 @@
 The use of a friend’s voice to impregnate one’s self with a desirable state is beautifully told in the story of the Immaculate Conception.
 
-It is recorded that God sent an angel to Mary to announce the birth of His son. <span style="color: #4ade80;">*"And the angel said unto her… thou shalt conceive in thy womb, and bring forth a son... Then said Mary unto the angel, How shall this be, seeing I know not a man? And the angel answered and said unto her, The Holy Ghost shall come upon thee, and the power of the highest shall over-shadow thee; therefore also that holy thing which shall be born of thee shall be called the son of God. For with God nothing shall be impossible"*</span>. ([Luke 1:30-37](https://www.biblegateway.com/passage/?search=Luke+1:30-37&version=KJV))
+It is recorded that God sent an angel to Mary to announce the birth of His son. *"And the angel said unto her… thou shalt conceive in thy womb, and bring forth a son... Then said Mary unto the angel, How shall this be, seeing I know not a man? And the angel answered and said unto her, The Holy Ghost shall come upon thee, and the power of the highest shall over-shadow thee; therefore also that holy thing which shall be born of thee shall be called the son of God. For with God nothing shall be impossible"*. (Luke 1:30-37)
 
 This is the story that has been told for centuries the world over, but man was not told that it was written about himself so he has failed to receive the benefit it was intended to give him.
 

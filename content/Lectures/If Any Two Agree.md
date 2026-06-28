@@ -178,7 +178,7 @@ So, make them rearrange their words to fit a pattern of love. Then you hear that
 ## Summary
 
 ### The Power of Agreement
-- In [Matthew 18:19](https://www.biblegateway.com/passage/?search=Matthew+18:19&version=KJV), it is stated that if any two people agree on earth about any request, that request will be granted by God.
+- In Matthew 18:19, it is stated that if any two people agree on earth about any request, that request will be granted by God.
 - This reveals the power of the human imagination, as all things are possible to those who believe.
 - The story illustrates how a woman used her ability to hear clearly to help someone manifest their desire, which unfortunately resulted in the death of two individuals.
 

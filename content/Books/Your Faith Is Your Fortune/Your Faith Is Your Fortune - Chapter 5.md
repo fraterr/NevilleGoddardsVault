@@ -1,4 +1,4 @@
-*"But whom say ye that I AM?"* (Matt. 16:15)
+<span style="color: #4ade80;">*"But whom say ye that I AM?"*</span> ([Matt. 16:15](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 *“[I AM the Lord](/lectures/i-am-the-lord); that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*
 

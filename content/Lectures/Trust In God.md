@@ -44,11 +44,11 @@ One day you will know that this world, which seems so real, is a dream. That you
 
 God revealed himself to Abraham as El Shaddai, God Almighty, then to Moses as I AM. God's final revelation will come to you when God's only begotten son, David, calls you Father. 
 
-It is said that David died and his sepulcher is within us to this day ([Acts 2](https://www.biblegateway.com/passage/?search=Acts+2&version=KJV)). It is within you, God's sepulcher, that David will rise. 
+It is said that David died and his sepulcher is within us to this day ([Acts 2](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)). It is within you, God's sepulcher, that David will rise. 
 
 Appealing to the Lord to awake, David cries: *"Rouse thyself, why sleepest thou O Lord. Awake! Do not cast us off forever."* For only as the Lord awakes can David rise from the sepulcher and find his Father. Having been promised that his soul would not be left in hell, David awakes; and as he calls you Father, your soul is released from hell. 
 
-Asleep to your true identity, you are dreaming the horrors of life for a divine purpose. <span style="color: #4ade80;">*"Only through many tribulations will you enter the kingdom of heaven."*</span> ([Acts 14](https://www.biblegateway.com/passage/?search=Acts+14&version=KJV)) 
+Asleep to your true identity, you are dreaming the horrors of life for a divine purpose. <span style="color: #4ade80;">*"Only through many tribulations will you enter the kingdom of heaven."*</span> ([Acts 14](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)) 
 
 Do not be concerned with the horrors of the world; simply remember that all is ordered and correct. Instead, fall in love with the I AM within you and change your world. God made it as it is now and he can change it, for your husband is a creator. Everything in your world can be traced back to your own wonderful human imagination, who is God. 
 

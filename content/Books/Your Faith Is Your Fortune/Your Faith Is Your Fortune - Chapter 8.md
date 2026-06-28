@@ -1,6 +1,6 @@
 <span style="color: #4ade80;">*"I am the first, and I am the last; and beside me is no God."*</span> ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
 
-*"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* (Deut. 5:6, 7)
+<span style="color: #4ade80;">*"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."*</span> ([Deut. 5:6, 7](https://www.biblegateway.com/passage/?search=Deuteronomy+5:6,+7&version=KJV))
 
 *“Thou shalt have [no other God](/lectures/no-other-god) beside me.”* As long as man entertains a belief in a power apart from himself, so long will he rob himself of the being that he is. Every belief in powers apart from himself, whether for good or evil, will become the mold of the graven image worshiped.
 

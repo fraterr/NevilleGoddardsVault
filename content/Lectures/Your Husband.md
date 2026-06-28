@@ -95,7 +95,7 @@ Now let us go into the silence.
 
 ### Biblical references
 - In Paul's letter to Timothy, salvation is attributed to the birth of the child, not children.
-- Holding the child symbolizes witnessing the kingdom of God in [Luke 9](https://www.biblegateway.com/passage/?search=Luke+9&version=KJV).
+- Holding the child symbolizes witnessing the kingdom of God in Luke 9.
 - The child represents the entrance to the kingdom, the creative power to create what is desired.
 
 ### Awakening and self-realization

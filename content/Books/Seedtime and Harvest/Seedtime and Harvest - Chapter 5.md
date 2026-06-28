@@ -22,10 +22,10 @@ All of us can realize our objectives by the wise use of mind and speech.
 
 Most of us are totally unaware of the mental activity which goes on within us. But to play the game of life successfully, we must become aware of our every mental activity, for this activity, in the form of Inner conversations, is the cause of the outer phenomena of our life.
 
-<span style="color: #4ade80;">*"...every idle word that man shall speak, they shall give account thereof in the day of judgment. For by thy words thou shall be justified, and by thy words thou shalt be condemned."*</span> ([Matthew 12:36, 37](https://www.biblegateway.com/passage/?search=Matthew+12:36,+37&version=KJV))
+*"...every idle word that man shall speak, they shall give account thereof in the day of judgment. For by thy words thou shall be justified, and by thy words thou shalt be condemned."* (Matthew 12:36, 37)
 
 The law of the Word cannot be broken.  
-<span style="color: #4ade80;">*"...A bone of him shall not be broken."*</span> ([John 19:36](https://www.biblegateway.com/passage/?search=John+19:36&version=KJV))
+*"...A bone of him shall not be broken."* (John 19:36)
 
 The law of the Word never overlooks an inner word nor makes the smallest allowance for our ignorance of its power. It fashions life about us as we, by our Inner conversations, fashion life within ourselves. This is done to reveal to us our position on the playing field of life. There is no opponent in the game of life; there is only the goal.
 

@@ -28,7 +28,7 @@ How can an infinite being give himself to finite Man? (By Man I mean generic Man
 
 A son must have been fathered, or he could not be; and if you are a father, you must have a son. God the Father prophesied in the Second Psalm that David was his son. As that son, you experience the major events in the life of one called Jesus Christ, making the history of salvation your autobiography. Only then do you know that you and God the Father are one. Believe me, and salvation history will be yours.
 
-John tells us that those who heard salvation's history and would not accept it, departed never to walk with him again. ([John 6](https://www.biblegateway.com/passage/?search=John+6&version=KJV)) Why? Because there were still things for them to experience in the world of time, sadness, and death.
+John tells us that those who heard salvation's history and would not accept it, departed never to walk with him again. (John 6) Why? Because there were still things for them to experience in the world of time, sadness, and death.
 
 Every loving relationship will one day dissolve and vanish as one goes through the gate called death. The British Empire ruled for over three hundred years. Now only England is left, and it only the size of New York City. We are living in the day of the complete dissolution of the British Empire, seeing it dissolve right before our eyes Their literature and art will last, yet even that will have its day and vanish.
 

@@ -80,7 +80,7 @@ I have disclosed the one and only source of the phenomena of life. Everything th
 
 Now a lady wrote me, saying she heard a voice cursing her, and - not understanding - she questioned self and heard the words: *"Because I want you."* 
 
-In the Book of Galatians, Paul tells those who have arrived at the end of their journey, to reject all laws and institutions which would interfere with the direct communication with their individual God. ([Galatians 5:1-14](https://www.biblegateway.com/passage/?search=Galatians+5:1-14&version=KJV)) 
+In the Book of Galatians, Paul tells those who have arrived at the end of their journey, to reject all laws and institutions which would interfere with the direct communication with their individual God. (Galatians 5:1-14) 
 
 In the spirit world, all organized societies are personified. Rivers, mountains, cities - everything is human, for God is Man. Even the Los Angeles Woman's Club building is personified in the spirit world. Representing a need of the ladies who own it, when seen in the spirit world, and trying to detach yourself from it, it will curse you, for it wants to feed on you. 
 

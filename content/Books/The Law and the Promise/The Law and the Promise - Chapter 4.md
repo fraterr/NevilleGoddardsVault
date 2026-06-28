@@ -87,9 +87,9 @@ Test yourself, if only out of curiosity. You will discover the *"Prophet"* is yo
 
 There is no fiction. Imagining fulfills itself in what our lives become.
 
-<span style="color: #4ade80;">*"And now I have told you before it takes place, so that when it does take place, you may believe."*</span> ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
+*"And now I have told you before it takes place, so that when it does take place, you may believe."* (John 14:29)
 
-The Greeks were right: <span style="color: #4ade80;">*"The Gods have come down to us in the likeness of men!"*</span> ([Acts 14:11](https://www.biblegateway.com/passage/?search=Acts+14:11&version=KJV)). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
+The Greeks were right: <span style="color: #4ade80;">*"The Gods have come down to us in the likeness of men!"*</span> ([Acts 14:11](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
 
 *"Real are the Dreams of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
 

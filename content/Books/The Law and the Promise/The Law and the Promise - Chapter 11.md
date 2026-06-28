@@ -6,7 +6,7 @@ This conception of creation as a work of imagination, and the Lord our Father as
 
 The only reason people do not believe in this identity of God and human imagination is that they are unwilling to assume the responsibility for their frightful misuse of imagination. Divine Imagination has descended to the level of human imagination, that human imagination may ascend to Divine Imagination.
 
-The 8th Psalm says that man was made a little lower than God — not a little lower than the angels — as the King James Version mistakenly translates it. Angels are the emotional dispositions of man and are therefore his servant — and not his superior — as the author of Hebrews tells us. (Heb. 1:14.)
+The 8th Psalm says that man was made a little lower than God — not a little lower than the angels — as the King James Version mistakenly translates it. Angels are the emotional dispositions of man and are therefore his servant — and not his superior — as the author of Hebrews tells us. ([Heb. 1:14](https://www.biblegateway.com/passage/?search=Hebrews+1:14&version=KJV).)
 
 Imagination is the Real Man and is one with God.
 
@@ -32,9 +32,9 @@ She tested the Potter and proved His creativity in performance.
 
 Only the indolent mind would fail to rise to this challenge.
 
-Paul states, <span style="color: #4ade80;">*"the spirit of God dwells in you”</span> (1Cor. 3:16, [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), [James 4:5](https://www.biblegateway.com/passage/?search=James+4:5&version=KJV)), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." (2Cor. 13:5,6)
+Paul states, <span style="color: #4ade80;">*"the spirit of God dwells in you”</span> ([1Cor. 3:16](https://www.biblegateway.com/passage/?search=1+Corinthians+3:16&version=KJV), [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), James 4:5), now, <span style="color: #4ade80;">"* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed."</span> ([2Cor. 13:5,6](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5,6&version=KJV))
 
-If <span style="color: #4ade80;">*"all things were made through Him, and without Him was not anything made that was made”</span> ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." (Rom. 4:17)
+If *"all things were made through Him, and without Him was not anything made that was made” (John 1:3), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, <span style="color: #4ade80;">"*who gives life to the dead and calls into existence the things that do not exist."</span> ([Rom. 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
 The Potter's presence in us is inferred from what He does there. We cannot see Him there as One, not ourselves. The nature of the Potter — Jesus Christ — is to create and there is no creation without Him.
 

@@ -26,7 +26,7 @@ The following story tells of one who went *"through the glass"* and broke the ch
 
 *"One morning, I moved from my bed to a couch and had started to sit up when I was seized with such an excruciating pain my entire body became paralyzed. I could neither sit up nor lie down. This terrible pain lasted for more than a full minute, but when it stopped — I was free! It seemed as if all the wires binding my legs had been cut. One moment I was bound; the next moment I was free. Not by degrees, but instantly."* ...V.H.
 
-*"We walk by faith), not by sight."*  (2Cor. 5:7)
+<span style="color: #4ade80;">*"We walk by faith), not by sight."*</span>  ([2Cor. 5:7](https://www.biblegateway.com/passage/?search=2+Corinthians+5:7&version=KJV))
 
 When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only imagination sees.
 
@@ -46,7 +46,7 @@ To the extent that man builds from Dreams of fancy, he is alive; and, therefore,
 
 It follows that restricting the imagination by *"staying the eye"* on the reflective glass of the senses is a reduction of life.
 
-The specious surface of fact reflects rather than discloses, deflecting the <span style="color: #4ade80;">*"Eye of Imagination"*</span> from the truth that sets man free ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV)).
+The specious surface of fact reflects rather than discloses, deflecting the *"Eye of Imagination"* from the truth that sets man free (John 8:32).
 
 *"The Eye of Imagination”, if not deflected, looks on what ought to be there, not what is. However familiar the scene on which sight rests, the "* Eye of Imagination" could gaze on one never before witnessed.
 
@@ -62,7 +62,7 @@ Faith plus Love is self-commission. We can't commit ourselves to what we do not 
 
 And to make the state alive, one must become it.
 
-*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (<span style="color: #4ade80;">*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*</span>, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, Galatians 2:20)
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 

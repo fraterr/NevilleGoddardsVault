@@ -8,7 +8,7 @@ you have so long lain stranded. It lifts the mind into prophecy in the full righ
 
 When William Blake wrote,
 
-‘What seems to be, is, to those to whom it seems to be’ he was only repeating the eternal truth, there is nothing unclean of itself: *"but to him that esteemeth anything to be unclean, to him it is unclean."* (Rom. 14:14).
+‘What seems to be, is, to those to whom it seems to be’ he was only repeating the eternal truth, there is nothing unclean of itself: <span style="color: #4ade80;">*"but to him that esteemeth anything to be unclean, to him it is unclean."*</span> ([Rom. 14:14](https://www.biblegateway.com/passage/?search=Romans+14:14&version=KJV)).
 
 Because there is nothing unclean of itself {or clean of itself), you should assume the best and think only of that which is lovely and of good report. It is not superior insight but ignorance of this law of Assumption if you read into the greatness of men some littleness with which you may be familiar— or into some situation or circumstance an unfavorable conviction. Your particular relationship to another influences your Assumption with respect to that other and makes you see in him that which you do see. If you can change your opinion of another, then what you now believe of him cannot be absolutely true but is only relatively true. The following is an actual case history illustrating how [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) works:
 

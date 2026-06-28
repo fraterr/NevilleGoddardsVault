@@ -16,16 +16,16 @@ Every time one really forgives – that is, every time one relives the event as 
 And that should be almost a continuous process.  
 Freedom and forgiveness are indissolubly linked.  
 Not to forgive is to be at war with ourselves, for we are freed according to our capacity to forgive.  
-<span style="color: #4ade80;">*"Forgive, and you shall be forgiven."*</span> ([Luke 6:37](https://www.biblegateway.com/passage/?search=Luke+6:37&version=KJV))  
+*"Forgive, and you shall be forgiven."* (Luke 6:37)  
 Forgive, not merely from a sense of duty or service; forgive because you want to.  
 <span style="color: #4ade80;">*"Thy ways are ways of pleasantness and all thy paths are peace."*</span> ([Proverbs 3:17](https://www.biblegateway.com/passage/?search=Proverbs+3:17&version=KJV))
 You must take pleasure in Revision. You can forgive others effectively only when you have a sincere desire to identify them with their ideal. Duty has no momentum.  
 Forgiveness is a matter of deliberately withdrawing attention from the unrevised day and giving it full strength, and joyously, to the revised day. If a man begins to revise even a little of the vexations and troubles of the day, then he begins to work practically on himself. Every Revision is a victory over himself and therefore a victory over his enemy.  
-<span style="color: #4ade80;">*"A man's foes are those of his own household,"*</span> ([Matthew 10:36](https://www.biblegateway.com/passage/?search=Matthew+10:36&version=KJV)),
+*"A man's foes are those of his own household,"* (Matthew 10:36),
 and his household is his state of mind. He changes his future as he revises his day.  
-When a man practices the art of forgiveness, of Revision, however factual the scene on which sight then rests, he revises it with his imagination and gazes on one never before witnessed. The magnitude of the change which any act of Revision involves makes such change appear wholly improbable to the realist – the unimaginative man; but the radical changes in the fortunes of the Prodigal ([Luke 15:11-32](https://www.biblegateway.com/passage/?search=Luke+15:11-32&version=KJV)) were all produced by a *"change of heart"*.  
+When a man practices the art of forgiveness, of Revision, however factual the scene on which sight then rests, he revises it with his imagination and gazes on one never before witnessed. The magnitude of the change which any act of Revision involves makes such change appear wholly improbable to the realist – the unimaginative man; but the radical changes in the fortunes of the Prodigal (Luke 15:11-32) were all produced by a *"change of heart"*.  
 The battle man fights is fought out in his own imagination. The man who does not revise the day has lost the vision of that life, into the likeness of which it is the true labour of the *"Spirit of Jesus"* to transform this life.  
-<span style="color: #4ade80;">*"All things whatsoever ye would that men should do to you, even so do ye to them: for this is the law."*</span> ([Matthew 7:12](https://www.biblegateway.com/passage/?search=Matthew+7:12&version=KJV))  
+*"All things whatsoever ye would that men should do to you, even so do ye to them: for this is the law."* (Matthew 7:12)  
 Here is the way an artist friend forgave herself and was set free from pain, annoyance and unfriendliness. Knowing that nothing but forgetfulness and forgiveness will bring us to new values, she cast herself upon her imagination and escaped from the prison of her senses. She writes  
 : "Thursday, I taught all day in the art school. Only one small thing marred the day. Coming into my afternoon classroom, I discovered the janitor had left all the chairs on top of the desks after cleaning the floor. As I lifted a chair down, it slipped from my grasp and struck me a sharp blow on the instep of my right foot. I immediately examined my thoughts and found that I had criticized the man for not doing his job properly. Since he had lost his helper, I realized he probably felt he had done more than enough and it was an unwanted gift that had bounced and hit me on the foot. Looking down at my foot, I saw both my skin and nylons were intact, so forgot the whole thing.  
 "That night, after I had been working intensely for about three hours on a drawing, I decided to make myself a cup of coffee. To my utter amazement, I couldn't manage my right foot at all and it was giving out great bumps of pain. I hopped over to a chair and took off my slipper to look at it. The entire foot was a strange purplish pink, swollen out of shape and red hot. I tried walking on it and found that it just flapped. I had no control over it whatsoever. It looked like one of two things: either I had cracked a bone when I dropped the chair on it or something could be dislocated.  
@@ -56,8 +56,8 @@ A Revision of the day, and what she held to be so stubbornly real was no longer 
 You can revise the day to please yourself and by experiencing in imagination the revised speech and actions not only modify the trend of your life story but turn all its discords into harmonies.  
 The one who discovers the secret of Revision cannot do otherwise than let himself be guided by love.  
 Your effectiveness will increase with practice. Revision is the way by which right can find its appropriate might.  
-<span style="color: #4ade80;">*"Resist not evil"*</span> ([Matthew 5:39](https://www.biblegateway.com/passage/?search=Matthew+5:39&version=KJV)), for all passionate conflicts result in an interchange of characteristics.  
-<span style="color: #4ade80;">*"To him that knoweth to do good, and doeth it not, to him it is sin."*</span> ([James 4:17](https://www.biblegateway.com/passage/?search=James+4:17&version=KJV))  
+*"Resist not evil"* (Matthew 5:39), for all passionate conflicts result in an interchange of characteristics.  
+*"To him that knoweth to do good, and doeth it not, to him it is sin."* (James 4:17)  
 To know the truth, you must live the truth, and to live the truth, your inner actions must match the actions of your fulfilled desire.  
 Expectancy and desire must become one.  
 Your outer world is only actualized inner movement.  

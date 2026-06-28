@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"... be ye therefore wise as serpents, and harmless as doves."*</span> ([Matthew 10:16](https://www.biblegateway.com/passage/?search=Matthew+10:16&version=KJV))
+*"... be ye therefore wise as serpents, and harmless as doves."* (Matthew 10:16)
 
 The serpent's ability to form its skin by ossifying a portion of itself, and its skill in shedding each skin as it outgrew it, caused man to regard this reptile as a symbol of the power of endless growth and self-reproduction. Man is told, therefore, to be *"wise as the serpent"* and learn how to shed his skin - his environment - which is his solidified self; man must learn how to *"loose him, and let him go"* . . . how to *"put off the old man"* . . .how to die to the old and yet know, like the serpent, that he *"shall not surely die"*.
 
@@ -20,7 +20,7 @@ Although the outer, or *"natural"*, man of the senses is interlocked with his en
 
 The spiritual body of imagination is not interlocked with man's environment. The spiritual body can withdraw from the outer man of sense and environment and imagine itself to be what it wants to be. And if it remains faithful to the vision, imagination will build for man a new environment in which to live. This is what is meant by the statement:
 
-<span style="color: #4ade80;">*"... I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."*</span> ([John 14:2, 3](https://www.biblegateway.com/passage/?search=John+14:2,+3&version=KJV))
+*"... I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."* (John 14:2, 3)
 
 The place that is prepared for you need not be a place in space. It can be health, wealth, companionship, anything that you desire in this world. Now, how is the place prepared?
 
@@ -59,7 +59,7 @@ A yonder to all ends."
 
    
 
-<span style="color: #4ade80;">*"And, I, if I be lifted up from the earth, will draw all men unto me."*</span> ([John 12:32](https://www.biblegateway.com/passage/?search=John+12:32&version=KJV))
+*"And, I, if I be lifted up from the earth, will draw all men unto me."* (John 12:32)
 
 If I be lifted up from the evidence of the senses to the state of consciousness I desire to realize and remain in that state until it feels natural. I will form that state around me and all men will see it.
 
@@ -107,9 +107,9 @@ This young woman never associated these two imaginary acts. In fact, she had alm
 
 There was her father. As she embraced him, she remembered her first imaginary action. As she opened the package he had brought her - the first gift in these many years - she remembered her second imaginary action, for the box contained a beautiful stone marten scarf.
 
-<span style="color: #4ade80;">*"Ye are gods; and all of you are children of the most High."*</span> ([Psalms 82:6](https://www.biblegateway.com/passage/?search=Psalms+82:6&version=KJV))
+<span style="color: #4ade80;">*"Ye are gods; and all of you are children of the most High."*</span> ([Psalms 82:6](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
 
-<span style="color: #4ade80;">*"... be ye therefore wise as serpents, and harmless as doves."*</span> ([Matthew 10:16](https://www.biblegateway.com/passage/?search=Matthew+10:16&version=KJV))
+*"... be ye therefore wise as serpents, and harmless as doves."* (Matthew 10:16)
 
 
 

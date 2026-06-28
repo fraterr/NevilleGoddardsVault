@@ -7,7 +7,7 @@ Thus the word imagination has no definite meaning. Even the dictionary gives us 
 (4) planning, plotting or scheming as involving mental construction.  
 
 I identify the central figure of the Gospels with human imagination, the power which makes the forgiveness of sins, the achievement of our goals, inevitable.  
-<span style="color: #4ade80;">*"All things were made by Him; and without Him was not anything made that was made."*</span> ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV))
+*"All things were made by Him; and without Him was not anything made that was made."* (John 1:3)
 There is only one thing in the world, Imagination, and all our deformations of it.
 <span style="color: #4ade80;">*"He is despised and rejected of men; a man of sorrows, and acquainted with grief."*</span> ([Isaiah 53:3](https://www.biblegateway.com/passage/?search=Isaiah+53:3&version=KJV)) 
 
@@ -17,9 +17,9 @@ Through imagination, we disarm and transform the violence of the world. Our most
 We then realize that only as we live by imagination can we truly be said to live at all.  
 I want this book to be the simplest, clearest, frankest work I have the power to make it, that I may encourage you to function imaginatively, that you may open your 
 
-*"Immortal Eyes inwards into the Worlds of Thought"* (William Blake), where you behold every desire of your heart as ripe grain <span style="color: #4ade80;">*"white already to harvest"*</span> ([John 4:35](https://www.biblegateway.com/passage/?search=John+4:35&version=KJV)).  
+*"Immortal Eyes inwards into the Worlds of Thought"* (William Blake), where you behold every desire of your heart as ripe grain *"white already to harvest"* (John 4:35).  
 
-<span style="color: #4ade80;">*"I am come that they might have life, and that they might have it more abundantly."*</span> ([John 10:10](https://www.biblegateway.com/passage/?search=John+10:10&version=KJV))  
+*"I am come that they might have life, and that they might have it more abundantly."* (John 10:10)  
 
 The abundant life that Christ promised us is ours to experience now, but not until we have the sense of Christ as our imagination can we experience it.  
 
@@ -28,7 +28,7 @@ Imagination is our redeemer, *"the Lord from Heaven"* born of man but not begott
 Every man is Mary and birth to Christ must give.  
 If the story of the immaculate conception1 and birth of Christ appears irrational to man, it is only because it is misread as biography, history, and cosmology, and the modern explorers of the imagination do not help by calling It the unconscious or subconscious mind.  
 Imagination's birth and growth is the gradual transition from a God of tradition to a God of experience. If the birth of [Christ in man](/lectures/christ-in-man) seems slow, it is only because man is unwilling to let go the comfortable but false anchorage of tradition.  
-When imagination is discovered as [the first principle](/lectures/the-first-principle) of religion, the stone of literal understanding will have felt the rod of Moses and, like the rock of Zion ([Isaiah 28:16](https://www.biblegateway.com/passage/?search=Isaiah+28:16&version=KJV); [Romans 9:33](https://www.biblegateway.com/passage/?search=Romans+9:33&version=KJV)), issue forth the water of psychological meaning to quench the thirst of humanity; and all who take the proffered cup and live a life according to this truth will transform the water of psychological meaning into the wine of forgiveness. Then, like the good Samaritan ([Luke 10:33-35](https://www.biblegateway.com/passage/?search=Luke+10:33-35&version=KJV)), they will pour it on the wounds of all.  
+When imagination is discovered as [the first principle](/lectures/the-first-principle) of religion, the stone of literal understanding will have felt the rod of Moses and, like the rock of Zion ([Isaiah 28:16](https://www.biblegateway.com/passage/?search=Isaiah+28:16&version=KJV); [Romans 9:33](https://www.biblegateway.com/passage/?search=Romans+9:33&version=KJV)), issue forth the water of psychological meaning to quench the thirst of humanity; and all who take the proffered cup and live a life according to this truth will transform the water of psychological meaning into the wine of forgiveness. Then, like the good Samaritan (Luke 10:33-35), they will pour it on the wounds of all.  
 The Son of God is not to be found in history, nor in any external form. He can only be found as the imagination of him in whom His presence becomes manifest.  
 
 *"O, would thy heart but be a manger for His birth! God would once more become a child on earth."* (Angelus Silesius, a 17th century poet)  
@@ -36,7 +36,7 @@ The Son of God is not to be found in history, nor in any external form. He can o
 Man is the garden in which this only-begotten Son of God sleeps. He awakens this Son by lifting his imagination up to heaven and clothing men in godlike stature. We must go on imagining better than the best we know.  
 Man in the moment of his awakening to the imaginative life must meet the test of Sonship.  
 
-*"Father, reveal Thy Son in me"* (James Montgomery) and <span style="color: #4ade80;">*"It pleased God to reveal His Son in me"*</span>. ([Galatians 1:15,16](https://www.biblegateway.com/passage/?search=Galatians+1:15,16&version=KJV))  
+*"Father, reveal Thy Son in me"* (James Montgomery) and *"It pleased God to reveal His Son in me"*. (Galatians 1:15,16)  
  
 The supreme test of Sonship is the forgiveness of sin. The test that your imagination is Christ Jesus, the Son of God, is your ability to forgive sin. Sin means missing one's mark in life, falling short of one's ideal, failing to achieve one's aim. Forgiveness means identification of man with his ideal or aim in life. This is the work of [awakened imagination](/lectures/awakened-imagination), the supreme work, for it tests man's ability to enter into and partake of the nature of his opposite.  
 
@@ -51,7 +51,7 @@ And, if it does harden into fact, shall I on reflection find that my actions thr
 After assuming that I am already what I want to be, must I continually guide myself by reasonable ideas and actions in order to bring about the fulfillment of my Assumption?  
 Experience has convinced me that an Assumption, though false, if persisted in, will harden into fact, that continuous imagination is sufficient for all things, and all my reasonable plans and actions will never make up for my lack of continuous imagination.  
 Is it not true that the teachings of the Gospels can only be received in terms of faith and that the Son of God is constantly looking for signs of faith in people – that is, faith in their own imagination?  
-Is not the promise  <span style="color: #4ade80;">*"Believe that ye receive and ye shall receive"*</span> ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV)), the same as *"Imagine that you are and you shall be"*? Was it not an imaginary state in which Moses <span style="color: #4ade80;">*"Endured, as seeing Him who is invisible"*</span> ([Hebrews 11:27](https://www.biblegateway.com/passage/?search=Hebrews+11:27&version=KJV))?  
+Is not the promise  *"Believe that ye receive and ye shall receive"* (Mark 11:24), the same as *"Imagine that you are and you shall be"*? Was it not an imaginary state in which Moses <span style="color: #4ade80;">*"Endured, as seeing Him who is invisible"*</span> ([Hebrews 11:27](https://www.biblegateway.com/passage/?search=Hebrews+11:27&version=KJV))?  
 Was it not by the power of his own imagination that he endured?  
 Truth depends upon the intensity of the imagination, not upon external facts. Facts are the fruit bearing witness of the use or misuse of the imagination.  
 Man becomes what he imagines. He has a self-determined history. Imagination is the way, the truth, the life revealed.  
@@ -68,7 +68,7 @@ It is this self that must be awakened.
 
 The moment man discovers that his imagination is Christ, he accomplishes acts which on this level can only be called miraculous. But until man has the sense of Christ as his imagination,  
 
-<span style="color: #4ade80;">"You did not choose me, I have chosen you”</span>, ([John 15:16](https://www.biblegateway.com/passage/?search=John+15:16&version=KJV)), he will see everything in pure objectivity without any subjective relationship.  
+"You did not choose me, I have chosen you”, (John 15:16), he will see everything in pure objectivity without any subjective relationship.  
 Not realizing that all that he encounters is part of himself, he rebels at the thought that he has chosen the conditions of his life, that they are related by affinity to his own mental activity.  
 Man must firmly come to believe that reality lies within him and not without.  
 Although others have bodies, a life of their own, their reality is rooted in you, ends in you, as yours ends in God.

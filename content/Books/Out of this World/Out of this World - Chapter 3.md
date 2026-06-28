@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"Ye shall know the truth and the truth shall make you free"*</span> – ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
+*"Ye shall know the truth and the truth shall make you free"* – (John 8:32)
 
 Men claim that a true judgment must conform to the external reality to which it relates. This means that if I, while imprisoned, suggest to myself that I am free and succeed in believing that I am free, it is true that I believe in my freedom; but it does not follow that I am free for I may be the victim of illusion.
 
@@ -38,7 +38,7 @@ In dream we are usually the servant of our vision rather than its master, but th
 
 In dream, as in mediation, we slip from this world into a dimensionally larger world, and I know that the forms in dream are not flat two-dimensional images which modern psychologists believe them to be. They are substantial realities of the dimensionally larger world, and I can lay hold of them. I have discovered that, if I surprise myself dreaming, I can lay hold of any inanimate or stationary form of the dream – a chair – a table – a stairway – a tree – and command to awake, while firmly holding on the object of the dream, I am pulled through myself with the distinct feeling of awakening from dream. I awaken in another sphere holding the object of my dream, to find that I am no longer the servant of my vision but its master, for I am fully conscious and in control of the movements of my attention. It is in this fully conscious state, when we are in control of the direction of thought, that we call things that are not seen as though they were. In this state we call things by wishing and assuming the feeling of our wish fulfilled.
 
-Unlike the world of three dimensions where there is an interval between our Assumption and its fulfillment, in the dimensionally larger world there is an immediate realization of our Assumption. The external reality instantly mirrors our Assumption. Here there is no need to wait four months till harvest (see [John 4:35](https://www.biblegateway.com/passage/?search=John+4:35&version=KJV)). We look again as though we saw, and lo and behold, the fields are already white to harvest.
+Unlike the world of three dimensions where there is an interval between our Assumption and its fulfillment, in the dimensionally larger world there is an immediate realization of our Assumption. The external reality instantly mirrors our Assumption. Here there is no need to wait four months till harvest (see John 4:35). We look again as though we saw, and lo and behold, the fields are already white to harvest.
 
 In this dimensionally larger world ―Ye shall not need to fight, set yourselves, stand ye still and see the salvation of the Lord with you, ([2Chronicles 20:17](https://www.biblegateway.com/passage/?search=2+Chronicles+20:17&version=KJV)). And because that greater world is slowly passing through our three-dimensional world, we can by the power of imagination mold our world in harmony with our desire.
 
@@ -52,7 +52,7 @@ I do not wish to write a book of wonders, but rather to turn man’s mind back t
 
 All that was said of God was in reality said of man’s consciousness so we may say, <span style="color: #4ade80;">*"that, according as it is written, He that glorieth, let him glory in his own consciousness"*</span> ([1Corinthians 1:31](https://www.biblegateway.com/passage/?search=1+Corinthians+1:31&version=KJV); [2Corinthians 10:17,18](https://www.biblegateway.com/passage/?search=2+Corinthians+10:17,18&version=KJV); <span style="color: #4ade80;">*"But let him that glorieth glory in this, that he understandeth and knoweth Me, that [I am the LORD](/lectures/i-am-the-lord) which exercise lovingkindness, judgment, and righteousness, in the earth"*</span>, [Jeremiah 9:24](https://www.biblegateway.com/passage/?search=Jeremiah+9:24&version=KJV)).
 
-No man needs help to direct him in the application of this law of consciousness. *"I am"* is the self-definition of the absolute. The root out of which everything grows. <span style="color: #4ade80;">*"I am the vine"*</span> ([John 15:1](https://www.biblegateway.com/passage/?search=John+15:1&version=KJV); 15:5).
+No man needs help to direct him in the application of this law of consciousness. *"I am"* is the self-definition of the absolute. The root out of which everything grows. *"I am the vine"* (John 15:1; 15:5).
 
 What is your answer to the eternal question, *"[who am I](/lectures/who-am-i)?"*
 
@@ -64,13 +64,13 @@ Experience in imagination what you would experience in the flesh were you alread
 
 Things have no life if they are severed from their roots, and our consciousness, our *"I AM-ness"* is the root of all that springs in our world.
 
-<span style="color: #4ade80;">*"If we believe not that I am he, ye shall die in your sins"*</span> – ([John 8:24](https://www.biblegateway.com/passage/?search=John+8:24&version=KJV)) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
+*"If we believe not that I am he, ye shall die in your sins"* – (John 8:24) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
 
 There is no power, outside of the consciousness of man, to resurrect and make alive that which man desires to experience.
 
 That man who is accustomed to call up at will whatever images he pleases, will be, by virtue of the power of his imagination, master of his fate.
 
-―I am the resurrection, and the life; he that believeth in Me, though he were dead, yet shall he live. ([John 11:25](https://www.biblegateway.com/passage/?search=John+11:25&version=KJV))
+―I am the resurrection, and the life; he that believeth in Me, though he were dead, yet shall he live. (John 11:25)
 
 *"Ye shall know the truth, and the truth shall make you free."*
 

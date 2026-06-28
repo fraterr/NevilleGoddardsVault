@@ -46,7 +46,7 @@ Sensation precedes manifestation and is the foundation upon which all manifestat
 
 Think feelingly only of the state you desire to realize. Feeling the reality of the state sought and living and acting on that conviction is the way of all seeming miracles. All changes of expression are brought about through a change of feeling. A change of feeling is a change of destiny. All creation occurs in the domain of the subconscious. What you must acquire, then, is a reflective control of the operation of the subconscious, that is, control of your ideas and feelings.
 
-Chance or accident is not responsible for the things that happen to you, nor is predestined fate the author of your fortune or misfortune. Your subconscious impressions determine the conditions of your world. The subconscious is not selective; it is impersonal and no respecter of persons ([Acts 10:34](https://www.biblegateway.com/passage/?search=Acts+10:34&version=KJV); [Romans 2:11](https://www.biblegateway.com/passage/?search=Romans+2:11&version=KJV)). The subconscious is not concerned with the truth or falsity of your feeling. It always accepts as true that which you feel to be true. Feeling is the assent of the subconscious to the truth of that which is declared to be true. Because of this quality of the subconscious there is nothing impossible to man. Whatever the mind of man can conceive and feel as true, the subconscious can and must objectify. Your feelings create the pattern from which your world is fashioned, and a change of feeling is a change of pattern.
+Chance or accident is not responsible for the things that happen to you, nor is predestined fate the author of your fortune or misfortune. Your subconscious impressions determine the conditions of your world. The subconscious is not selective; it is impersonal and no respecter of persons ([Acts 10:34](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV); [Romans 2:11](https://www.biblegateway.com/passage/?search=Romans+2:11&version=KJV)). The subconscious is not concerned with the truth or falsity of your feeling. It always accepts as true that which you feel to be true. Feeling is the assent of the subconscious to the truth of that which is declared to be true. Because of this quality of the subconscious there is nothing impossible to man. Whatever the mind of man can conceive and feel as true, the subconscious can and must objectify. Your feelings create the pattern from which your world is fashioned, and a change of feeling is a change of pattern.
 
 The subconscious never fails to express that which has been impressed upon it.
 
@@ -74,7 +74,7 @@ It is easier to ascribe your feeling to events in the world than to admit that t
 
 *"As within, so without"* (*"As above, so below; as below, so above; as within, so without; as without, so within"*, *"Correspondence"*, the second of The Seven Principles of Hermes Trismegistus).
 
-<span style="color: #4ade80;">*"A man can receive nothing unless it is given him from heaven"*</span> ([John 3:27](https://www.biblegateway.com/passage/?search=John+3:27&version=KJV)) and <span style="color: #4ade80;">*"The kingdom of heaven is within you"*</span> ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV)). Nothing comes from without; all things come from within – from the subconscious.
+*"A man can receive nothing unless it is given him from heaven"* (John 3:27) and *"The kingdom of heaven is within you"* (Luke 17:21). Nothing comes from without; all things come from within – from the subconscious.
 
 It is impossible for you to see other than the contents of your consciousness. Your world in its every detail is your consciousness objectified. Objective states bear witness of subconscious impressions. A change of impression results in a change of expression.
 
@@ -84,7 +84,7 @@ You are already that which you want to be, and your refusal to believe this is t
 
 To seek on the outside for that which you do not feel you are is to seek in vain, for we never find that which we want; we find only that which we are.
 
-In short, you express and have only that which you are conscious of being or possessing. <span style="color: #4ade80;">*"To him that hath it is given"*</span> ([Matthew 13:12](https://www.biblegateway.com/passage/?search=Matthew+13:12&version=KJV); 25:29; [Mark 4:25](https://www.biblegateway.com/passage/?search=Mark+4:25&version=KJV); [Luke 8:18](https://www.biblegateway.com/passage/?search=Luke+8:18&version=KJV); 19:26). Denying the evidence of the senses and appropriating the feeling of the wish fulfilled is the way to the realization of your desire.
+In short, you express and have only that which you are conscious of being or possessing. *"To him that hath it is given"* (Matthew 13:12; 25:29; Mark 4:25; Luke 8:18; 19:26). Denying the evidence of the senses and appropriating the feeling of the wish fulfilled is the way to the realization of your desire.
 
 Mastery of self-control of your thoughts and feelings is your highest achievement.
 
