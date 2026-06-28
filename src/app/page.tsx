@@ -2,7 +2,7 @@ import { getDocumentBySlug } from '@/lib/markdown';
 import MarkdownRenderer from '@/components/MarkdownRenderer';
 
 export default function Home() {
-  const indexDoc = getDocumentBySlug(['Index']);
+  const indexDoc = getDocumentBySlug(['index']);
   
   if (!indexDoc) {
     return (
