@@ -93,6 +93,3 @@ Now let us go into the silence.
 
 ### The Silence and Meditation
 - The practice of silence and Meditation allows for deeper understanding and connection with the foundation stone within oneself.neself.
-
-
-#Assumption #Meditation

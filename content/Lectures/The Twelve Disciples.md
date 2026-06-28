@@ -127,6 +127,3 @@ These are the twelve qualities which were given to man in the foundation of the 
 ### Conclusion
 - Man's duty is to raise these twelve qualities to the level of discipleship.
 - By disciplining these qualities, one realizes the work assigned to them and experiences glory. glory.
-
-
-#Dreams

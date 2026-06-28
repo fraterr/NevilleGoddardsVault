@@ -115,6 +115,3 @@ Now let us go into the silence.
 - Thirty years is a small time in the grand eternity
 - The fulfillment of desires may take time, but it is certain
 - Death is the departure from this world into eternal lifeal life
-
-
-#Assumption

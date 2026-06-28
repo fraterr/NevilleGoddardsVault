@@ -273,8 +273,3 @@ You have become so enmeshed in the belief that you are man that you have forgott
 - Persist in consciousness of your desire and it will take form. The inner creates the outer.
 
 uter.
-
-
-
-
-#Prayer #Meditation

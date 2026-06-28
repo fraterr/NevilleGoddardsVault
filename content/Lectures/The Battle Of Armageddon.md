@@ -104,6 +104,3 @@ Now let us go into the silence.
 - Embrace the battle of Armageddon within yourself.
 - Find joy in the unrest as it signifies the eruption of truth.
 - Experience the story of Jesus Christ within you and transform your life.r life.
-
-
-#Assumption #Dreams

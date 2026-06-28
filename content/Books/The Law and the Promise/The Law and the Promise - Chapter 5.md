@@ -79,6 +79,3 @@ Imaginists know how to utilize their mental visions to create reality. Nothing i
 ### Your imagination is most creative when you imagine things as you desire them to be
 
 F.G. brought all her senses into play to imagine her dream trip. While confined to a hospital bed, she intensely imagined herself on the cruise she desired. She later won that exact trip, including the very stateroom she had imagined. To travel is the privilege of the imaginative.native.
-
-
-#Revision

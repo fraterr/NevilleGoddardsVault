@@ -103,6 +103,3 @@ Now let us go in to the silence.
 - Individuals are destined to be individualized forms of God, forever maintaining their individuality.the promise that God will give himself to each individual.
 - There is no fatalistic future, but a predestined calling to be conformed to the image of his Son.
 - Individuals are destined to be individualized forms of God, forever maintaining their individuality.uality.
-
-
-#Assumption #Prayer #Dreams

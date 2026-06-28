@@ -112,6 +112,3 @@ Now let us go into the silence.
 - The fulfillment of God's plan involves the awakening of all beings to their divinity.
 - Each person is gathered into the larger unity of Christ consciousness in their own time.
 - In the end, everyone will understand and fulfill God's plan completely.letely.
-
-
-#Dreams

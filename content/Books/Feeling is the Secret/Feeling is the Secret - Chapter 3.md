@@ -62,6 +62,3 @@ All you can possibly need or desire is already yours. You need no helper to give
 - Call desires into being by feeling them complete.
 - Accept the end and the means will follow.
 - Remain calm, the perfect end is already defined.efined.
-
-
-#Prayer

@@ -75,6 +75,3 @@ Control of the subconscious is dominion over all. Each state obeys one minds con
 - Subject executes imagined state as their own decision
 - Control of subconscious is dominion over all
 - Imagination and faith are the secrets of creationreation
-
-
-#Prayer

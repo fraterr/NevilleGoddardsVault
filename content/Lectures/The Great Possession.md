@@ -116,8 +116,3 @@ their existence and, therefore, the "I am" nature of God.
 - The power to awaken and exercise authority resides within individuals.
 
 uals.
-
-
-
-
-#Dreams

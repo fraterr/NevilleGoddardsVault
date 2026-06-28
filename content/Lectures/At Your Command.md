@@ -266,6 +266,3 @@ You have become so enmeshed in the belief that you are man that you have forgott
 - One's awareness is revealed as the Lord God, freeing man from bondage.
 - Man is the creator, decreeing the unseen to appear.
 - The world is at man's command, responding to the voice of God within.within.
-
-
-#Prayer #Meditation

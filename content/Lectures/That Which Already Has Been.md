@@ -98,6 +98,3 @@ Now let us go into the silence.
 - Life on earth is like a schoolroom to awaken and educate the sons of God.
 - The states of existence serve as lessons and stages of awakening.
 - The prophet's words reflect the preparation of the schoolroom for the awakening of the Son of God.of God.
-
-
-#Revision #Dreams

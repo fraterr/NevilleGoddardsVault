@@ -62,6 +62,3 @@ We sow our acts through imagination, reaping habits, character, and destiny. We 
 ### Affirming Our Nature
 
 We are born in love, which is the necessity of life. We must affirm this nature and not seek love, but be love. What we imagine ourselves to be, we become.become.
-
-
-#Assumption

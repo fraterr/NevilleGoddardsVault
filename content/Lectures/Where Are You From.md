@@ -151,6 +151,3 @@ Goodnight.
 - Scripture is seen as the eternal drama and should not be rewritten or diluted to fit personal interpretationsce of trusting and believing in divine experiences is highlighted
 - The skepticism of others should not deter individuals from their own experiences and understanding
 - Scripture is seen as the eternal drama and should not be rewritten or diluted to fit personal interpretationstations
-
-
-#Revision

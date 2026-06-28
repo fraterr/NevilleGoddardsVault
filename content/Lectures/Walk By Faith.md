@@ -106,6 +106,3 @@ Now let us go into the silence.
 - Walk by faith, not by sight, and turn away from past accomplishments to move forward towards desired goals.
 - Achieve every desire by walking in the state of already having achieved it and believing in the power of imagination and faith.lk by faith, not by sight, and turn away from past accomplishments to move forward towards desired goals.
 - Achieve every desire by walking in the state of already having achieved it and believing in the power of imagination and faith. faith.
-
-
-#Assumption

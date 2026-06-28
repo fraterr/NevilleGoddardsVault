@@ -107,6 +107,3 @@ Now let us go in to the silence.
 - It is important to remain faithful to the desired state and believe in its manifestation.individual.
 - By forgiving sin and assuming the desired state, one can experience transformation and set others free.
 - It is important to remain faithful to the desired state and believe in its manifestation.tation.
-
-
-#Assumption #Prayer #Dreams

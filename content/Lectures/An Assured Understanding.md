@@ -119,8 +119,3 @@ eality.
 - The Christ-seed will burst into bloom, and we will know ourselves as the Lord Jesus.
 
 esus.
-
-
-
-
-#Assumption

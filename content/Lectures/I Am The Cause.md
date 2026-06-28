@@ -174,8 +174,3 @@ llment of what they dictated before incarnating.
 - The story will erupt within everyone, and the author tells it repeatedly until all hear it.
 
 r it.
-
-
-
-
-#Assumption #Dreams

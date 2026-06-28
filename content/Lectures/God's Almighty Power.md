@@ -98,6 +98,3 @@ Now let us go into the silence.
 ### Trusting only one's own wonderful human imagination
 - Trusting the Lord brings peace and independence from worshiping others.
 - Only one will serve their own wonderful human imagination.nation.
-
-
-#Assumption

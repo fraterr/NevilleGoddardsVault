@@ -148,7 +148,3 @@ Now let us go into the silence.
 esires and that individuals should not try to dictate the methods.
 - The author emphasizes the importance of walking and living as though the desired reality already exists and letting the son of God within manifest it.
 st it.
-
-
-
-#Assumption #Meditation #Dreams

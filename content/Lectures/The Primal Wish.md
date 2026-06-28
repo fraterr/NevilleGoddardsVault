@@ -111,6 +111,3 @@ A: You are told in scripture, if two different persons agree in testimony it is 
 - Movement and changing one's perspective are crucial in manifesting desires.
 - The dream also hints at the concept of death and awakening to a higher state of consciousness,
 - Learning to move and remaining faithful to motion brings freedom and discipline.aining faithful to motion brings freedom and discipline.ipline.
-
-
-#Dreams

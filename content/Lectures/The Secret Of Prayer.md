@@ -95,14 +95,14 @@ Now let us go into the silence.
 - Develop a thou/I relationship with God and have faith that your desires will be fulfilled.
 - Live nobly and avoid judging and criticizing others.
 
-##yer
+#
 - The most effective Prayer is "Thank you, Father."
 - Develop a thou/I relationship with God and have faith that your desires will be fulfilled.
 - Live nobly and avoid judging and criticizing others.
 
-##rs.
+#.
 
 ##
 
 
-#Assumption #Brazen impudence #Prayer #Dreams #Abdullah
+impudence

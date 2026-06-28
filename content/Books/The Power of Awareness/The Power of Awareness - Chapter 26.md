@@ -49,10 +49,3 @@ Assume the highest for yourself in all ways.
 
 
 ys.
-
-
-
-
-
-
-#Assumption

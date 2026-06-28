@@ -122,6 +122,3 @@ Now let us go into the silence.
 
 - God loves his image, man, and will redeem every child born of woman
 - Through playing harsh roles, all awaken to life everlasting as God as God
-
-
-#Assumption #Dreams

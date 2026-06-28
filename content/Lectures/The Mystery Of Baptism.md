@@ -172,6 +172,3 @@ Now let us go into the silence.
 - The author encourages setting hope fully on true baptism, even though its timing is unknown.
 - Past actions should not create a barrier, as God's mercy can transform and wash away guilt.
 - God hovers over individuals, incubating them until they break through the surface and are baptized into unity. unity.
-
-
-#Dreams

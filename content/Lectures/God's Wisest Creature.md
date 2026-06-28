@@ -121,8 +121,3 @@ ture can lead to worldly success and achievements.
 - Despite the fall, man's expulsion from the Father was a deliberate act for expansion and ultimate birth.
 
 irth.
-
-
-
-
-#Assumption #Dreams

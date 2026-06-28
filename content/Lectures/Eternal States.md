@@ -82,6 +82,3 @@ Now let us go into the silence.
 - Encouragement to try the principle of imagining before passing judgment.
 - Evidence and performance will prove its effectiveness.
 - Trying it will lead to success.uccess.
-
-
-#Assumption #Dreams

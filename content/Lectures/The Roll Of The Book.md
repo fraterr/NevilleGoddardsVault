@@ -140,6 +140,3 @@ Now let us go into the silence.
 - The author's book serves as a record of God's unfolding within him and helps others wean themselves from traditional beliefs.
 - The author concludes by quoting scripture and emphasizing the significance of committing one's spirit to God and the power of redemption.e author's book serves as a record of God's unfolding within him and helps others wean themselves from traditional beliefs.
 - The author concludes by quoting scripture and emphasizing the significance of committing one's spirit to God and the power of redemption.mption.
-
-
-#Revision #Dreams

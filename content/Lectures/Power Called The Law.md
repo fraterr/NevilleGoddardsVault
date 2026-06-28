@@ -104,6 +104,3 @@ Now let us go into the silence.
 ### The Gathering in the Head
 - All individuals will gather together in the head, where they were crucified and buried.
 - The expansion of the brain cells within the one brain is the process of awakening.kening.
-
-
-#Revision

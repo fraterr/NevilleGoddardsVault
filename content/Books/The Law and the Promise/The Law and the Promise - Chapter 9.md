@@ -110,6 +110,3 @@ Living in the desired home, she inherited the means. Strongly imagine better tha
 ### Assemble imagery with meaning
 
 Imply the wish fulfilled. Random images won't create; intention unites. Occupy and enter. enter.
-
-
-#Dreams

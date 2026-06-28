@@ -136,6 +136,3 @@ Now let us go into the silence.
 ### Conclusion
 - The world is a school of shadows; trust one's I AMness and question everything.
 - Seek personal experiences and the revelation of God within oneself.neself.
-
-
-#Revision #Assumption #Prayer

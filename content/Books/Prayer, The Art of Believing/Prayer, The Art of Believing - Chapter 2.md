@@ -68,6 +68,3 @@ Ideas are best suggested when the objective mind is partly subjective, that is, 
 - Assume the wish fulfilled, the subjective mind will realize it
 - Unexpressed convictions are transmitted and influence others
 - Subjective mind is controlled by suggestion and acceptanceeptance
-
-
-#Assumption #Prayer

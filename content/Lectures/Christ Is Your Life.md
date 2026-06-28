@@ -141,6 +141,3 @@ Now let us go into the silence.
 - The individual should embrace the true story of redemption.
 - Christ is the individual's life and nothing is impossible for Christ.
 - Focus on objectives and dream noble Dreams.Dreams.
-
-
-#Revision #Dreams

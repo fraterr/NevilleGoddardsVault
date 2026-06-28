@@ -108,6 +108,3 @@ This lady can change the picture for her sister’s husband. She can imagine tha
 
 - The belief that Dreams are the medium through which God speaks to man.
 - The ability to dream for oneself or for others and manifest those Dreams.Dreams.
-
-
-#Dreams

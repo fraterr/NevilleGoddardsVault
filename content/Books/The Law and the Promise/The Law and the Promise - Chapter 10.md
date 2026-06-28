@@ -76,6 +76,3 @@ It's easy to teach yet not follow. She imagined the wish fulfilled and watched i
 ### Imagination binds the broken, frees captives
 
 Use it consciously to lift others. Acceptance alone is not enough - live by imaginal faith. faith.
-
-
-#Revision

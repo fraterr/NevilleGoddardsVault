@@ -70,6 +70,3 @@ If a physical fact can produce a psychological state, a psychological state can 
 
 - If a physical fact can generate a psychological state, a psychological state can generate a physical fact
 - *"All things whatsoever ye desire, when ye pray, believe that ye have received them, and ye shall have them"* them"*
-
-
-#Prayer #Dreams

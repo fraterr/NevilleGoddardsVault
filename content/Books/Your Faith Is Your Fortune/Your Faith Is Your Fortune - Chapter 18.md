@@ -116,8 +116,3 @@ Simon of Canaan hears only good news and preaches the Gospel.
 Judas commits mystic suicide, detaching from limitations to attain the desired.
 
 ired.
-
-
-
-
-#Dreams

@@ -70,6 +70,3 @@ If you remain in that state, you are told in the Bible three days, you will be *
 - Man can create a better reality by clearing his mind of negative thoughts and cultivating positive ones.
 - By assuming the feeling of already embodying their desired state, individuals can bring it into reality.
 - Staying in that state for a significant period of time will result in its manifestation in the external world.n its manifestation in the external world. world.
-
-
-#Assumption #Dreams

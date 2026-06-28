@@ -48,8 +48,3 @@ Failure concept makes you encounter conforming events.
 Your self-concept determines which portion of creation you experience now and later.
 
 ater.
-
-
-
-
-#Assumption

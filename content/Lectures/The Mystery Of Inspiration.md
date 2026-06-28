@@ -193,6 +193,3 @@ Now let us go into the silence.
 - Inspiration is a gift from God, not something that can be acquired.
 - Christ, the power and wisdom of God, is personified within individuals.
 - Awakening as God leads to the fulfillment of scripture.ipture.
-
-
-#Assumption #Meditation #Dreams

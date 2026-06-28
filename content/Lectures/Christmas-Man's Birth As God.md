@@ -160,6 +160,3 @@ Now let us go into the silence.
 - God became us to experience life and lead us back to himself.
 - The journey involves moving through different states and experiences until we return to the Father.
 - Christmas signifies the birth of man as God, not the birth of God as man.as man.
-
-
-#Assumption

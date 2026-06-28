@@ -132,7 +132,3 @@ g and waits for understanding.
 - Seeing the son, the divine child, is proof of God giving himself to individuals.
 - Obeying the husband means fulfilling the formula of salvation.
 ation.
-
-
-
-#Dreams

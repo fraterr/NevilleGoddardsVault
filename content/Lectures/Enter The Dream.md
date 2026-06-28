@@ -130,6 +130,3 @@ Now let us go into the silence.
 
 ### Silence
 - Enter into silence to reflect on these teachings.chings.
-
-
-#Assumption #Dreams

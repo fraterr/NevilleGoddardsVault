@@ -129,6 +129,3 @@ Now let us go into the silence.
 - We cannot die, as we are the God of the living, dreaming of life's experiences.
 - Our descent was in consciousness, and our ascension will also be in consciousness.f the living, dreaming of life's experiences.
 - Our descent was in consciousness, and our ascension will also be in consciousness.usness.
-
-
-#Assumption #Meditation #Dreams

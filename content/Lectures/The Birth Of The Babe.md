@@ -106,6 +106,3 @@ Answer: A child is best taught by example. Living the life of loving man is the 
 - The author shares that he was called the son of the devil by some, but he realized that he is part of the being of God when he held the baby in his hands, and it smiled at him.bove, and the current physical body represents Cain while the second son does not have a physical birth.
 - He suggests that children learn best through example and that living a life of love for humanity is the best way to teach them.
 - The author shares that he was called the son of the devil by some, but he realized that he is part of the being of God when he held the baby in his hands, and it smiled at him.at him.
-
-
-#Dreams

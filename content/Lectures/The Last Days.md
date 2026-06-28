@@ -156,6 +156,3 @@ Now let us go into the silence.
 ### Experiencing God's Revelation through Sonship
 - In the last days, God speaks to individuals through Sonship, helping them realize their true identity as God.
 - This revelation can only be fully understood and known through David's recognition of the individual as Father.Father.
-
-
-#Dreams

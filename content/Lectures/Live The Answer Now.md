@@ -172,6 +172,3 @@ Now let us go into the silence.
 
 - The Father who became you is speaking to you through Dreams and revealing Himself in visions
 - You are God the Father who conceived it all, and you will return to the one Godone God
-
-
-#Assumption #Dreams

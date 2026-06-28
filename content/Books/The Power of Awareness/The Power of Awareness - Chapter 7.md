@@ -68,11 +68,3 @@ By the intensity of her imagination and feeling, the designer cast a kind of enc
 
 
 y.
-
-
-
-
-
-
-
-#Assumption

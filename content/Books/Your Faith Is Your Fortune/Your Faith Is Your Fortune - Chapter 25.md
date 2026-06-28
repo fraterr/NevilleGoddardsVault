@@ -82,10 +82,3 @@ Easter comes after the full moon, your full consciousness of the fulfilled desir
 
 
 re.
-
-
-
-
-
-
-#Sabbath #Prayer

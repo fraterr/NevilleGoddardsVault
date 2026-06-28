@@ -65,4 +65,4 @@ rce.
 
 
 
-#Assumption #Bridge of incidents
+of incidents

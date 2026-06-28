@@ -130,4 +130,4 @@ A. That is when the disciples returned, glorifying God and telling what marvelou
 - The heavenly state within dictates beliefs and actions.ctions.
 
 
-#Assumption #Bridge of incidents #Prayer #Dreams
+of incidents

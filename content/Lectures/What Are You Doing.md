@@ -114,6 +114,3 @@ Now let us go into the silence.
 - Believe in what you have imagined and put all your energy into clarity of form.
 - Return to imagining if doubts arise.
 - Enter into the image and realize your vision.vision.
-
-
-#Dreams

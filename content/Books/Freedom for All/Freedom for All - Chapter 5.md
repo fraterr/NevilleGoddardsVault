@@ -127,6 +127,3 @@ Your consciousness is God resting in the knowledge that – *"It is well"* – *
 - Take attention off the problem (releasing Barabbas).
 - Fix consciousness on being the free state (crucify the savior).
 - The subjective will become objective if you rest on the seventh day.th day.
-
-
-#Sabbath

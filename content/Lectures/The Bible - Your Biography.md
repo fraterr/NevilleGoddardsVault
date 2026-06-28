@@ -113,6 +113,3 @@ Now let us go into the silence.
 
 ### Going into the Silence
 - The text concludes by suggesting to go into silence and meditate on these teachings.chings.
-
-
-#Assumption #Prayer #Dreams

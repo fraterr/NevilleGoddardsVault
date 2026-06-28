@@ -110,8 +110,3 @@ velation
 - The truth is not acquired through academic knowledge but through personal revelation.
 
 tion.
-
-
-
-
-#Dreams

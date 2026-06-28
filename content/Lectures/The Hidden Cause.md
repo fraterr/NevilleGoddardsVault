@@ -104,6 +104,3 @@ Now let us go into the silence.
 ### The Immortality of the Soul
 - Individuals are immortal and cannot die, as they are connected to the eternal self.
 - The journey of life ultimately leads back to the source of their being. being.
-
-
-#Assumption #Dreams

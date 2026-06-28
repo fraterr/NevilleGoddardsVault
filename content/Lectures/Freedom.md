@@ -115,6 +115,3 @@ Now let us go into the silence.
 - The story of scripture unfolds from within us as we awaken to our divine nature.
 - We will realize that the eternal story was always there, waiting to be discovered.
 - Accepting these teachings will set us free and bring us closer to our true identity as God.as God.
-
-
-#Dreams

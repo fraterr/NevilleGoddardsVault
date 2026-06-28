@@ -146,6 +146,3 @@ Now let us go into the silence.
 - The true Christ is within each person, continuously rising and revealing the individual as God the Father.
 - The relationship between Father and Son has existed since before the world's creation but has been forgotten.
 - This process is the return of the memory of God within individuals.iduals.
-
-
-#Assumption

@@ -127,6 +127,3 @@ Now let us go into the silence.
 - The revelation of one's true identity comes from the Father within, not from external sources.
 - The purpose of life is to fulfill scripture and discover one's true identity as God the Father.mes from the Father within, not from external sources.
 - The purpose of life is to fulfill scripture and discover one's true identity as God the Father.Father.
-
-
-#Sabbath

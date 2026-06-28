@@ -120,7 +120,3 @@ Now let us go into the silence.
 - Encountering David, the eternal being within us, reveals our true identity
 - The journey leads to becoming a Son of God and experiencing resurrection
 ection
-
-
-
-#Assumption

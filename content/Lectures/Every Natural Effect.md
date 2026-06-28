@@ -108,6 +108,3 @@ Neville: Well, I wouldn’t say they should not be in the Bible. We have 66 and 
 
 - The discovered Gospels offer inspiration but Bible is complete
 - Books once excluded like Hebrews are now included
-
-
-#Assumption #Dreams

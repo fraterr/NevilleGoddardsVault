@@ -114,6 +114,3 @@ Now let us go into the silence.
 - It will take thirty years for the birth of the child
 - God is Man, everything is Man
 - Commune with the world as friends, discover that everything is God and God is Man is Man
-
-
-#Assumption #Dreams

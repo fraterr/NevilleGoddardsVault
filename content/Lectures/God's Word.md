@@ -110,6 +110,3 @@ Now let us go into the silence.
 - Man is the tree of life, and others have seen them walking like stallions or with antlers.
 - Fulfilling God's Word is the ultimate goal, not wealth or fame.
 - The tree of life is within, and its energies will be regenerated to bear the fruit of life.f life.
-
-
-#Dreams

@@ -117,6 +117,3 @@ Now let us go into the silence.
 - The author emphasizes that there is only one Father and one Son, and when the Son calls the reader Father, memory will be restored, and truth will be known. Father is done by going within.
 - Coming from within and going back within leads to the realization of oneness with God.
 - The author emphasizes that there is only one Father and one Son, and when the Son calls the reader Father, memory will be restored, and truth will be known. known.
-
-
-#Dreams

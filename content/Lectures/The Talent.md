@@ -128,6 +128,3 @@ Now let us go into the silence.
 ### Conclusion
 - The author encourages readers to use their talents consciously and not bury them.
 - The talent of human imagination is God's gift of Himself to individuals.iduals.
-
-
-#Assumption #Dreams

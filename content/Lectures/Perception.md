@@ -100,6 +100,3 @@ Now let us go into the silence.
 - Scripture, when experienced deeply, is not just a myth but a literal truth.
 - By reaching the limits of contraction in human experiences, individuals can ascend into limitless expansion as God.
 - Through this return, one's power combines with God's power, and the cycle of growth and imagination continues.tinues.
-
-
-#Assumption #Prayer

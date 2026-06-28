@@ -41,6 +41,3 @@ From Advent on, *"He that toucheth you toucheth the apple of God's eye."* ([Zech
 
 - God was manifest in the flesh is a great mystery
 - From Advent on, Christ in us makes us the apple of God's eyed's eye
-
-
-#Revision

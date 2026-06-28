@@ -86,6 +86,3 @@ Life is surrender, not struggle. Prayers are answered by invoked powers, not exe
 ### The Healing Touch
 
 Our attitude heals. We need only change our attitude, assume virtue we lack, and feel our wish fulfilled. Prayer achieves more than this world Dreams.Dreams.
-
-
-#Assumption #Prayer #Dreams

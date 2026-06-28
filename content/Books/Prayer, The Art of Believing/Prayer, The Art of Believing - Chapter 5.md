@@ -115,6 +115,3 @@ The mental sound you hear in Prayer as coming from without is really produced by
 
 - Inward harmony subjectively heard is made by you
 - Self-observation reveals you create the inner musicr music
-
-
-#Assumption #Prayer

@@ -116,6 +116,3 @@ Now let us go into the Silence.
 
 ### Freedom to Choose
 - Concluding by urging listeners to select the state in which they want to live, asserting that all states within the world are available to them.o them.
-
-
-#Revision #Dreams

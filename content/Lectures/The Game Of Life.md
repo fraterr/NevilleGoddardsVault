@@ -154,7 +154,3 @@ Now let us go into the silence.
 - Relief is a crucial feeling to attain after casting desires.
 - Assembling mental states and allowing them to occur within oneself is all that is required, without the need for repetitive actions.
 tions.
-
-
-
-#Assumption #Dreams

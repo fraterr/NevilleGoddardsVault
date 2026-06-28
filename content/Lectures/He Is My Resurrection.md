@@ -133,6 +133,3 @@ Now let us go into the silence.
 - Simply assume your desired reality and remain faithful to it.
 - The principle of imagination works silently and secretly, preparing you for the fullness of time.
 - Eventually, all that is said of Christ will be personally experienced in the first person.person.
-
-
-#Assumption

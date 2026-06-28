@@ -85,7 +85,3 @@ The text acknowledges the mystical experience of the power of imagination and ho
 n and Visions
 The text acknowledges the mystical experience of the power of imagination and how it unfolds in the mind of individuals. It suggests that visions and Dreams are significant in the Bible and serve as a means of personal awakening and transformation.
 ation.
-
-
-
-#Dreams

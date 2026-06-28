@@ -118,6 +118,3 @@ After their fourteen-day vigil, a man went into the one and only jewelry store i
 
 - Advance confidently in the direction of your dream
 - And you will meet with success unexpected in common hoursn hours
-
-
-#Assumption #Dreams

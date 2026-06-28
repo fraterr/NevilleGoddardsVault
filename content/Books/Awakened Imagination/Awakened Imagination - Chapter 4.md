@@ -140,6 +140,3 @@ Try revising the day. It is to [the pruning shears of Revision](/lectures/the-pr
 
   - Outer world follows from actualized inner movement.
   - Paradise is made by revising, not blaming outer conditions.itions.
-
-
-#Revision

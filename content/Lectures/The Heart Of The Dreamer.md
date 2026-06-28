@@ -121,6 +121,3 @@ Now let us go into the silence.
 - The goal is to return to the mind of the dreamer and discover one's true identity.ndividual's spiritual birth from within.
 - The fullness of time brings the awakening of the Lord Jesus Christ within.
 - The goal is to return to the mind of the dreamer and discover one's true identity.entity.
-
-
-#Dreams

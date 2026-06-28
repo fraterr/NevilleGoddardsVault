@@ -139,6 +139,3 @@ To make such a claim is easily done. To prove it in the experience of others is 
 
 - The commentary links themes showing imagining creates reality
 - It proves the claim and stirs you to constructive useive use
-
-
-#Revision #Dreams

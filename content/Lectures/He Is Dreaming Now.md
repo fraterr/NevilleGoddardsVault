@@ -151,6 +151,3 @@ A: Why certainly my dear, every moment in time is a note. It's an experience and
 - By focusing on the individual details, the mind tires quickly, allowing for a restful sleep.
 - It is important to record and remember the individual incidents of the day to fully appreciate the moments of life.r a restful sleep.
 - It is important to record and remember the individual incidents of the day to fully appreciate the moments of life.f life.
-
-
-#Dreams

@@ -103,6 +103,3 @@ Now let us go into the silence.
 
 ### The Symbolic Nature of Life
 - Life is an activity of imagining, and everything and everyone is a symbol revealing who we truly are.ly are.
-
-
-#Assumption #Prayer

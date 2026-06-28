@@ -92,6 +92,3 @@ Now let us go into the silence.
 - Use God-given talents of sight, sound, touch, taste, and smell to manifest desires
 - Give something to a friend without their knowledge, exercising the senses to bring desires into realityod-given talents of sight, sound, touch, taste, and smell to manifest desires
 - Give something to a friend without their knowledge, exercising the senses to bring desires into realityreality
-
-
-#Assumption

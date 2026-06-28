@@ -211,4 +211,4 @@ To change the future, we need only concern ourselves with two worlds in the infi
 - By moving along time's length in imagination we can alter the future.future.
 
 
-#Assumption #Meditation #Dreams #State akin to sleep
+akin to sleep

@@ -136,7 +136,3 @@ release the imprisoned splendor within oneself to know the true knowledge of God
 - Each person has the right to pursue their own path to God.
 - Ultimately, experiencing the story of Jesus Christ is necessary to know the true knowledge of God.
 f God.
-
-
-
-#Assumption

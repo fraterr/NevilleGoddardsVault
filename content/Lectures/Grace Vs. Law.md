@@ -102,4 +102,4 @@ Now let us go into the silence.
 - In the kingdom, everyone is equal and possesses the same power, wisdom, and love of God.of God.
 
 
-#Assumption #Bridge of incidents #Dreams
+of incidents

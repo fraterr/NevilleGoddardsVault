@@ -107,6 +107,3 @@ And now at the end of the silence, this is what we do. Knowing that any time tha
 ### Inner action and outer action
 - The actions of the inner man must coincide with the actions the outer man must take to realize desires.
 - Immobilizing the body, while imagining and experiencing the desired state, aligns the inner and outer actions.ctions.
-
-
-#Assumption #Prayer #Dreams

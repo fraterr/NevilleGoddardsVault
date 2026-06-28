@@ -100,10 +100,3 @@ What you are conscious of you feed and sustain. Things wither if you cease being
 
 
 em.
-
-
-
-
-
-
-#Meditation

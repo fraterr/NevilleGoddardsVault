@@ -115,6 +115,3 @@ The true answer, viewed from the level of higher meaning, would be such a revers
 
 - Outer events express inner states and attitudes
 - Persist in seeing from the level of highest meaningmeaning
-
-
-#Dreams

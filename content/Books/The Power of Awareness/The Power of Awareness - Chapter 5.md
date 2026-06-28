@@ -54,8 +54,3 @@ From the fourth dimension of space — And on through the universe boundless, Ou
 - Imagination is boundless creation.
 
 tion.
-
-
-
-
-#Assumption #Prayer #Dreams

@@ -106,6 +106,3 @@ Now let us go into the silence.
 
 ### Closing Thought
 - All will eventually come to the understanding of the power of imagination and the ability to create one's realityreality
-
-
-#Dreams

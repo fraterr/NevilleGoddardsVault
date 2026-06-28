@@ -51,10 +51,3 @@ Picturing desires without feeling of wish fulfilled is futile daydreaming.
 
 
 ng.
-
-
-
-
-
-
-#Assumption

@@ -103,6 +103,3 @@ The universe which we study with such care is a dream, and we the dreamers of th
 
 - The universe is a dream; we are the eternal dreamers
 - We will one day awaken to find we never left our eternal homeal home
-
-
-#Assumption #Meditation #Dreams

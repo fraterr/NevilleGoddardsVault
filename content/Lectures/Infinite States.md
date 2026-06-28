@@ -98,8 +98,3 @@ ral by persistently occupying it.
 - Thought, belief, and persistence lead to the manifestation of desires and attainment of states.
 
 ates.
-
-
-
-
-#Dreams

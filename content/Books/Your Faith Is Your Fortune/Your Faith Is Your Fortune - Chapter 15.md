@@ -58,8 +58,3 @@ Persist through the interval in the conviction of already being your desire.
 Return from the future punto pick up your present self to receive and live the wish fulfilled.
 
 lled.
-
-
-
-
-#Sabbath

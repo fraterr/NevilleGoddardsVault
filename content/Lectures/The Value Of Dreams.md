@@ -93,6 +93,3 @@ This garment (the body) is to be used as I awaken. But as I become more and more
 - The purpose of man's existence is to bring about this awakening and fulfill the divine creative power within. like Him.
 - The smallness and insignificance of the individual do not hinder this awakening.
 - The purpose of man's existence is to bring about this awakening and fulfill the divine creative power within.within.
-
-
-#Dreams

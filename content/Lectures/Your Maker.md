@@ -181,6 +181,3 @@ Now let us go into the silence.
 - Adjust your thinking as necessary and construct imaginal changes to bring about desires.
 - Never stop seeking and finding your true identity within yourself.
 - Man must seek and find his true identity within himself, for he and he alone is the revealer and maker of everything in this world. world.
-
-
-#Assumption #Dreams

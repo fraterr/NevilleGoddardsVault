@@ -89,7 +89,4 @@ As the Elohim we were brothers, not strangers, but - as the parable tells us - n
   
 We have suffered because we are sharers in creation's cruel dream. The story is told us in [the Book of Job](/lectures/the-book-of-job). Everyone plays the part of Job. It's a crude experiment, but the end is so glorious that one forgets the pain, as told us in the 8th chapter of the Book of Romans: *"I consider the sufferings of this present time not worth comparing to the glory to be revealed in me."* We all share in the suffering, because we are dreaming in concert, dreaming the most cruel Dreams; but it takes all to awaken, and in the awakening we are greater than we were prior to the beginning of the dream.   
   
-I know people see an absolute God but if God could not 
-
-
-#Sabbath #Dreams
+I know people see an absolute God but if God could not

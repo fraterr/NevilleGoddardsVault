@@ -131,4 +131,4 @@ But you can't ascend until you first make the purple robe and although we have o
 - The importance of intuitive understanding and seeking deeper mysteries in religious texts. texts.
 
 
-#Revision #Inner conversations
+conversations

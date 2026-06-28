@@ -155,6 +155,3 @@ There was her father. As she embraced him, she remembered her first imaginary ac
 
 - We are gods, children of the Most High
 - Be wise as serpents, harmless as dovess doves
-
-
-#Dreams

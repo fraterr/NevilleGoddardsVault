@@ -112,6 +112,3 @@ Now let us go into the silence.
 ### The Evocative Power of Scripture
 - Scripture evokes rather than describes.
 - Everything in scripture becomes man.es man.
-
-
-#Assumption

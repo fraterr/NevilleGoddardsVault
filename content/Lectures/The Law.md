@@ -96,6 +96,3 @@ Now let us go into the silence.
 ### Take the power of imagination seriously
 - Enact scenes in your imagination and faithfully remain in that state.
 - No power can stop the unfolding of your desires when you are faithful to your imaginal activity.tivity.
-
-
-#Dreams

@@ -106,6 +106,3 @@ Now let us go into the silence.
 
 - God redeemed himself by taking all that was man and awakening as His own Self
 - Man matures when he discovers David (God's son, humanity) calls him Father Father
-
-
-#Dreams

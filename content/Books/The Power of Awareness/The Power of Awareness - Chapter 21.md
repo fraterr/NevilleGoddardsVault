@@ -83,9 +83,3 @@ You only experience the portion of creation dictated by Assumption.
 
 
 ion.
-
-
-
-
-
-#Assumption

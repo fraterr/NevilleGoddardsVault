@@ -141,6 +141,3 @@ Now let us go into the silence.
 - The plan of salvation is fertilized by one who has awakened from the dream of life.
 - Those who have not yet awakened can still contribute creatively on this level.
 - God assumes a human mask to play the necessary part in the fertilization of the plan.e plan.
-
-
-#Assumption

@@ -213,6 +213,3 @@ In the 14th chapter of John, he does say, 'but my Father is greater than I.' As 
 - Our purpose is to redeem each other from different states and bring each other back to our true beingnd experience it within themselves
 - We are all the brotherhood of gods, and no one will be lost
 - Our purpose is to redeem each other from different states and bring each other back to our true beinge being
-
-
-#Assumption #Dreams

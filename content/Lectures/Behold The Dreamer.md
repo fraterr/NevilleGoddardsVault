@@ -159,6 +159,3 @@ Now let us go into the silence.
 - Reflect on the shared visions and hold fast to them.
 - The stories and experiences will take root in your mind, leading to the eruption of the realization that you are Jesus Christ.
 - Eventually, we leave this world and enter eternity as God.as God.
-
-
-#Dreams

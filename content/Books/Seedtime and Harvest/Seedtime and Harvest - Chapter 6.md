@@ -66,6 +66,3 @@ That cat lived comfortably for five more years, when, without pain or illness, h
 ### Awakened Instructions in Sleep
 
 - In sleep man receives insight on persistently assumed ideals ideals
-
-
-#Assumption #Dreams

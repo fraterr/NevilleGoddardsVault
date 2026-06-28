@@ -159,6 +159,3 @@ Now let us go into the silence.
 - The coming of Christ is the only foundation, known from experience.
 - The speaker speaks from personal experience, not speculation.
 - Believers will awaken and return to the one being who began the adventure.enture.
-
-
-#Assumption #Dreams

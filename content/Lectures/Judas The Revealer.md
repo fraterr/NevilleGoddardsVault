@@ -160,6 +160,3 @@ Now let us go into the silence.
 - Assume the feeling of the wish fulfilled for oneself, family, and friends.
 - Everything in the world is oneself pushed out.
 - Through self-realization, one realizes their identity as God.as God.
-
-
-#Assumption #Dreams

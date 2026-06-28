@@ -101,6 +101,3 @@ Her print luck and his client gift made their imaginal real with no cost.
 ### Trifles produced via imagination, not means
 
 The bus rider let a vision of bread dance in her head. Going home, it was waiting on seat.n seat.
-
-
-#Dreams

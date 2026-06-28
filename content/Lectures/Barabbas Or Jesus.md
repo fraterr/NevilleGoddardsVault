@@ -148,6 +148,3 @@ So, I am proud to say I am a Jew because I am a Christian. I have been born from
 ### The Mystery of the Trial
 - The trial is a mystery, and the most fantastical story.
 - The whole story originates from Israel and carries deep significance.icance.
-
-
-#Assumption

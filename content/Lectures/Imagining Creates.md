@@ -155,7 +155,3 @@ od.
 - Imagination creates reality; our current reality is the result of our imagination.
 - We must imagine and believe in the reality we desire, even if there is no evidence of it.
 of it.
-
-
-
-#Assumption

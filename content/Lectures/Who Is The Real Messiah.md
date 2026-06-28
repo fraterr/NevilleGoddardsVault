@@ -100,7 +100,4 @@ I did not cease to be aware that I am the being that I thought myself to be; yet
 
 And then I was placed in the presence of another, who was [Infinite Power](/lectures/infinite-power); and it was he who sent me. He is the same one who embraced me, for God is a protean Being. He assumes any form that suits the purpose of the moment. So when I was sent, Power sent me; when I was embraced, Love embraced me. That is for Eternity, as told in the 8th of Romans: *"Nothing in Eternity can separate us from the love of God"* [[Romans 8:39](https://www.biblegateway.com/passage/?search=Romans+8:39&version=KJV)]. So not a thing that I will go through, having been sent, can separate me from that union with Love. But I was sent, not by Love; I was sent by Power. He seemed to be Almighty Power when he sent me. *"Down with the bluebloods,"* – not the social structure. Down with all external worship – it simply is an expression meaning all church protocol: everything that is something on the outside – down with it. It hasn’t a thing to do with Reality.
 
-All the things you see when you go to church – all the crosses and all the things 
-
-
-#Prayer
+All the things you see when you go to church – all the crosses and all the things

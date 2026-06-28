@@ -120,6 +120,3 @@ Now let us go into the silence.
 - Use the law to fulfill the promise while holding true to faith.
 - Commit your spirit to your imaginal act, and when your journey is over, God will awaken in you.
 - You will be born of God, not of flesh or human will.n will.
-
-
-#Assumption #Dreams

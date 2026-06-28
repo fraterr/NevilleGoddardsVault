@@ -125,6 +125,3 @@ Now let us go into the silence.
 - Have faith in the unseen reality and trust that it will manifest.
 - Going into silence can help in connecting with God and manifesting desired outcomes. will manifest.
 - Going into silence can help in connecting with God and manifesting desired outcomes.tcomes.
-
-
-#Assumption

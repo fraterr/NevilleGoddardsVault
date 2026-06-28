@@ -110,6 +110,3 @@ Now I see my time is up, and so at this moment I'll take the chair and let us al
 - Individuals have the freedom to choose their own beliefs and determine the course of their lives.ld by constructing and sustaining the feeling of the wish fulfilled.
 - Testing the power of awareness for a period of four weeks can bring about significant changes in one's life.
 - Individuals have the freedom to choose their own beliefs and determine the course of their lives. lives.
-
-
-#Assumption #Meditation #Dreams

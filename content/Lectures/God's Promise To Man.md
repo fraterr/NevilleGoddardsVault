@@ -104,6 +104,3 @@ ANSWER: It is difficult for man to believe it, but the most denied book in the B
 - The speaker explains that each person will fulfill their destiny in their own time, and regardless of whether it happens in the present embodiment, it will still happen in the future.
 - Time is not linear, and there is no remembrance of former things, but man will be resurrected as God.ime, and regardless of whether it happens in the present embodiment, it will still happen in the future.
 - Time is not linear, and there is no remembrance of former things, but man will be resurrected as God.as God.
-
-
-#Dreams

@@ -191,6 +191,3 @@ Without the decision to change her mind in regard to the child, and the imaginat
 
 - We have redemption through imagining lovingly for another
 - Taste the cup yourself to know the powere power
-
-
-#null

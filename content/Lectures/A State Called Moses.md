@@ -96,6 +96,3 @@ Now let us go into the silence.
 
 - Mortal empires and fortunes die, having no permanence
 - Put hope in God's plan erupting within, leading you to immortal lifeal life
-
-
-#Assumption

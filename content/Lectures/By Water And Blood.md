@@ -97,6 +97,3 @@ But you see he gave us such a gift. He completely freed me of the responsibility
 - The mystery within is the awakening of the Son of God called Christ.
 - Man's destiny is to unfold and awaken to their true nature as God.
 - Each individual has the choice to remain passive or activate their imagination and Assumption to experience the birth of their desired state. state.
-
-
-#Assumption #Prayer #Meditation

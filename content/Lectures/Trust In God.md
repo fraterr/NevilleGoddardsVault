@@ -92,6 +92,3 @@ Now let us go into the silence.
 ### Conclusion
 - Trusting in God and one's own imagination will never lead astray.
 - It is important to go within and enter the silence for reflection and connection with God.th God.
-
-
-#Assumption #Dreams

@@ -98,6 +98,3 @@ Character is largely the result of the direction and persistence of voluntary ac
 - Like Dr. Millikan, we should judge righteously and focus on the good.
 - By knowing the truth that sets us free, we are led to all good.
 - Character is influenced by voluntary action, thoughts, words, and living truly. truly.
-
-
-#Assumption #Prayer

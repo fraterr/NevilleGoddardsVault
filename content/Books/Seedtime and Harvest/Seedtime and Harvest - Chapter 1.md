@@ -66,6 +66,3 @@ This realm, this Eden - your imagination - is vaster than you know and repays ex
 
 - This Eden of imagination has vast undiscovered parts
 - Wind the golden string into a ball to be led within within
-
-
-#Dreams

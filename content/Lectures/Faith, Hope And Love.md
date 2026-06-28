@@ -116,6 +116,3 @@ Now let us go in to the silence.
 - Believing the words spoken by the lady, such as "I am the Father," can lead to a confession of faith.
 - One's own imagination contains the power to bring about what is desired, without the need for external assistance.
 - Faith and hope bring about the realization of what has been imagined.agined.
-
-
-#Dreams

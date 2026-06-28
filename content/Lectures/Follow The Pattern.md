@@ -82,6 +82,3 @@ Now let us go into the silence.
 - The Bible is a book of patterns, and each individual will experience the unfolding of the pattern in their own time.
 - The child, or the realization of our divine potential, will come when we have had all the experiences that life can offer.each individual will experience the unfolding of the pattern in their own time.
 - The child, or the realization of our divine potential, will come when we have had all the experiences that life can offer. offer.
-
-
-#Revision #Sabbath #Dreams #Abdullah

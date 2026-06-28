@@ -103,7 +103,3 @@ rience transformations and control over the dream world.
 - Take the words seriously and put them to the test.
 - The way to knowledge of being God the Father is through these teachings.
 hings.
-
-
-
-#Assumption

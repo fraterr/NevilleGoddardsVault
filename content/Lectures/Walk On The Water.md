@@ -133,6 +133,3 @@ Now let us go into the silence.
 - Envy fades when we know we are God, and others are extensions of ourselves.
 - Reject unwanted circumstances and replace them with what we would like to experience.
 - Believing in the reality of our imaginations will make them our actual experiences.iences.
-
-
-#Dreams

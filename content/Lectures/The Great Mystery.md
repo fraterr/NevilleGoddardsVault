@@ -92,6 +92,3 @@ Now let us go into the silence.
 - The author prays that others will come to know and possess this power as well.ad that can move mountains.
 - This power has been growing since the death of God and has led to their expansion and wisdom.
 - The author prays that others will come to know and possess this power as well.s well.
-
-
-#Assumption #Prayer #Dreams

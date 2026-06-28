@@ -85,8 +85,3 @@ esents a state, and there is no inherently good or bad person, only good or bad 
 - The solution to a present state lies in identifying and assuming the desired state.
 
 tate.
-
-
-
-
-#Assumption #Sabbath #Dreams

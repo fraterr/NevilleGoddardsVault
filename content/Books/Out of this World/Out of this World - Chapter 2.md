@@ -121,4 +121,4 @@ I can, however, with the ancient teacher say: *"This one thing I do, forgetting 
 - But I continue reaching forward to press toward the prize. prize.
 
 
-#Assumption #Meditation #Dreams #State akin to sleep
+akin to sleep

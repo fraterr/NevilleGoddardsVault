@@ -91,6 +91,3 @@ That we... *"speaking the truth in love, may grow up into Him in all things, whi
 - Our goal is to grow and expand our consciousness to embrace higher ideals
 - We shape outer reality by matching our inner speech to such ideals
 - This transmutes our world to reflect divine imaginative powere power
-
-
-#Prayer #Dreams

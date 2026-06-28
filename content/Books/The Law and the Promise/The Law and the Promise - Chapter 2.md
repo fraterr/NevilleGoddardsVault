@@ -149,4 +149,4 @@ Imaginal acts — not blind fate — determine the course of history.
 - Imaginal acts, not fate, shape historyhistory
 
 
-#Living in the end #Dreams
+in the end

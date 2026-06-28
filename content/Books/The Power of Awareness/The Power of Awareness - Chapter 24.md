@@ -51,9 +51,3 @@ Your dominion is as great as any, need only unfold the proportions.
 
 
 ons.
-
-
-
-
-
-#Assumption

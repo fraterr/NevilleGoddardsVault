@@ -102,6 +102,3 @@ Now let us go into the silence.
 
 - Every scriptural story unfolds literally from within in unique ways
 - The Cosmic Christ agreed to dream life into being until awakened once morece more
-
-
-#Assumption

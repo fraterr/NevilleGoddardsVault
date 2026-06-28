@@ -50,6 +50,3 @@ He who finds himself is guided by love, too pure of eyes to behold iniquity. We 
 ### Feeling the Ideal
 
 Feel yourself into the ideal image until you absorb its qualities. Extend your feelers, participate in imagination flights. Results are the test of true imagination. Sow ideals in love to reap your destiny.estiny.
-
-
-#Prayer

@@ -124,6 +124,3 @@ Now let us go into the silence.
 - Follow Jesus' teachings of assuming and appropriating subjective states
 - Ask in faith without doubt, and persist in Assumption for manifestation
 - Silence is an opportunity to reflect and put these teachings into action action
-
-
-#Assumption #Prayer

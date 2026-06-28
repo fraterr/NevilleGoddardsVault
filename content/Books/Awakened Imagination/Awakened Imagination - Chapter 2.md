@@ -141,6 +141,3 @@ You can experience what you please once you realize that you are His Son, and th
   - By thinking from the end, man escapes limitations of senses and reason.
   - Nothing can stop the man who can think from the imaginal end.
   - We can determine our life by controlling the ends from which we think. think.
-
-
-#Assumption #Dreams #Abdullah

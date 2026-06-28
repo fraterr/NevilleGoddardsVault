@@ -67,10 +67,3 @@ Realize the whole drama is your consciousness desiring and becoming through self
 
 
 on.
-
-
-
-
-
-
-#Dreams

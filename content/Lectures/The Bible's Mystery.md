@@ -98,6 +98,3 @@ Now let us go into the silence.
 ### The Marvelous Story of the Gospel
 - The Bible is written about every individual, and ultimately there is only one Lord.
 - Life is like a play that exists for its author and for itself, fulfilling the author's desires.esires.
-
-
-#Assumption #Prayer

@@ -59,12 +59,3 @@ Health, wealth, beauty, and genius are not created; they are only manifested by 
 
 
 .
-
-
-
-
-
-
-
-
-#Dreams

@@ -118,6 +118,3 @@ Then comes the presentation of the ideal servant. [Zech. 3:8](https://www.bibleg
 - The prophecies in the Old Testament were not understood until the revelation of Christ unfolded within the individual
 - The mystery of Christ is revealed through a series of events in the soul of man
 - People may reject this revelation of Christ as they are expectant of a different kind of manifestationstation
-
-
-#Assumption #Prayer #Dreams

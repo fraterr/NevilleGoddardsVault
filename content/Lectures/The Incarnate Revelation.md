@@ -137,8 +137,3 @@ Now let us go into the silence.
 ling of being while maintaining individuality.
 
 lity.
-
-
-
-
-#Assumption #Dreams

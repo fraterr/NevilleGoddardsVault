@@ -84,7 +84,3 @@ Living in this fixed attitude of mind, living in the consciousness that you are 
 - Abide in the inner reality of your desire fulfilled.
 - It will then embody itself.
 tself.
-
-
-
-#Sabbath

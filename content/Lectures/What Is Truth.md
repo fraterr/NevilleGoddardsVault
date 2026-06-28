@@ -153,7 +153,3 @@ r witness to His Word.
 ### Fulfilling the Mission
 - The individual's mission is to testify to the truth of God's Word.
  Word.
-
-
-
-#Dreams

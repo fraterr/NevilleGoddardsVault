@@ -99,6 +99,3 @@ Now let us go into the silence.
 - The journey is individual, but all will be incorporated into God's body.
 - The end of the journey brings a transcendent expansion of consciousness.urney is individual, but all will be incorporated into God's body.
 - The end of the journey brings a transcendent expansion of consciousness.usness.
-
-
-#Dreams

@@ -38,11 +38,3 @@ Silent adoration is highest praise.
 
 
 e.
-
-
-
-
-
-
-
-#Assumption

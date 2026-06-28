@@ -49,6 +49,3 @@ In passive state, think only of your fulfilled wish. Feel you are now expressing
 ### Receptiveness to Spirit
 
 Meditation awakens inner light through receptiveness, not willpower. By witnessing the wished-for end in Meditation, we remain calm in subsequent challenges, knowing the end is defined.efined.
-
-
-#Assumption #Meditation

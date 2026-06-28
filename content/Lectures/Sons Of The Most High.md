@@ -107,7 +107,3 @@ Now let us go into the silence.
 - There is a pattern set by Jesus Christ to guide us back to the consciousness of being one with God.
 - We return to our true nature as God through the pattern man Jesus Christ.
 hrist.
-
-
-
-#Assumption #Dreams

@@ -69,9 +69,3 @@ Faith does not question, it knows.
 
 
 ows.
-
-
-
-
-
-#Assumption

@@ -130,6 +130,3 @@ Now let us go into the silence.
 - The Bible is the only true book, based on the understanding of God as your imagination., are being redeemed through experiencing limitations and weaknesses.
 - Every child born is a garment worn by a son of God, and all the sons collectively form the Father.
 - The Bible is the only true book, based on the understanding of God as your imagination.nation.
-
-
-#Dreams

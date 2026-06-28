@@ -115,6 +115,3 @@ Now let us go into the silence.
 - The power to change one's world lies within, with the ability to use talents and exercise imagination.
 - The speaker urges the audience to take these teachings seriously and use their talents wisely for the benefit of all.
 - Transforming one's perception and treating others with love and compassion is transformative for both oneself and the world. world.
-
-
-#Prayer #Dreams

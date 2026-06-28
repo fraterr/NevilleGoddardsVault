@@ -44,21 +44,3 @@ Life's drama is psychological, written and produced by assumptions.
 ### Master Assumption
 
 Learn the art of Assumption to create your own happiness.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-#Assumption

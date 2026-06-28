@@ -134,6 +134,3 @@ Now let us go into the silence.
 - Christ is formed in the individual by the individual themselves.
 - After the journey is over, the individual sheds their body of flesh for the last time and returns to the heavenly sphere as God the Father.hrist is formed in the individual by the individual themselves.
 - After the journey is over, the individual sheds their body of flesh for the last time and returns to the heavenly sphere as God the Father.Father.
-
-
-#Assumption #Prayer

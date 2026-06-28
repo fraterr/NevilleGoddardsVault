@@ -154,6 +154,3 @@ Scripture states what is imagined comes to be. Yeats knew imaginative men cast f
 ### Test Your Power
 
 Test your imaginal power through assuming desired states. You will see you are constantly creating reality. There is no fiction in a wider view.r view.
-
-
-#Dreams

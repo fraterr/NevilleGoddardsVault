@@ -192,9 +192,3 @@ Their faith in the law allowed them to cling to assumptions until proven true.
 
 
 rue.
-
-
-
-
-
-#Assumption

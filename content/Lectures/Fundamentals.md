@@ -61,6 +61,3 @@ Neville
 - The path of true metaphysics lies in the midst of life's challenges.
 - Individuals should be doers of truth by practicing self-observation, thinking from the aim, and detachment from negative emotions and thoughts.
 - Finally, individuals should remember that their state of consciousness is what attracts their life and should continuously strive for personal growth. state of consciousness is what attracts their life and should continuously strive for personal growth.growth.
-
-
-#Assumption

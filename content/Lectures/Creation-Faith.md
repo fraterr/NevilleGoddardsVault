@@ -187,6 +187,3 @@ Now let us go into the silence.
 ### Externalization and Loyalty to Unseen Assumptions
 - Constructing the world in the mind's eye based on unseen reality leads to externalization
 - Men often perpetuate what they do not desire by not understanding this conceptconcept
-
-
-#Assumption #Dreams

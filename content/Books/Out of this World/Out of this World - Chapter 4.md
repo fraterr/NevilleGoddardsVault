@@ -75,6 +75,3 @@ There is nothing to change but our concept of self. As soon as we succeed in tra
 
 - There is nothing to change but our self-concept.
 - When we change within, our outer world spontaneously transforms accordingly.dingly.
-
-
-#Assumption #Meditation

@@ -49,6 +49,3 @@ All can change their lives as Millikan did by making their desire a present fact
 ### Embodying the New Man
 
 We must embody the new man, seeing ourselves and others as we wish to be. Our spiritual revival comes from each accepting the challenge of imagining themselves to be their higher self, like Dr. Millikan.llikan.
-
-
-#Assumption #Prayer

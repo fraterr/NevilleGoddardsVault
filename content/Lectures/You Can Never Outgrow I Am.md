@@ -137,6 +137,3 @@ That concludes the summary of the text.th and death.
 - Awakening to one's true identity as God brings a realization that one never left the divine home and was never born or died.
 
 That concludes the summary of the text.e text.
-
-
-#Dreams

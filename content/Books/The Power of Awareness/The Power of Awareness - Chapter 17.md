@@ -52,8 +52,3 @@ You constantly assume feelings consciously and unconsciously.
 Controlling assumptions is the key to an expansive, noble life.
 
 life.
-
-
-
-
-#Assumption

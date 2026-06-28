@@ -133,4 +133,4 @@ But the crucial matter is thinking from the end, for thinking from means unifica
 - Center imagination in the wish fulfilled to make the transitionnsition
 
 
-#Assumption #Mental diet
+diet

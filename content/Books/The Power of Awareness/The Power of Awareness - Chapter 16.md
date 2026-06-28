@@ -35,9 +35,3 @@ Then rise as prophet of the law of Assumption.
 
 
 ion.
-
-
-
-
-
-#Assumption

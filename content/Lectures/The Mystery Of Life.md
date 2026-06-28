@@ -145,8 +145,3 @@ o Reflect
 The author encourages readers to remember the true meaning of Christmas and to recognize that everyone present will eventually have the same awakening experience. He assures that all individuals will awaken to their true identity as God the Father and be united with Him.
 
  Him.
-
-
-
-
-#Meditation #Dreams

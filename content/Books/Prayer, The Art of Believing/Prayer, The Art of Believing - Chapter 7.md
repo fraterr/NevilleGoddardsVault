@@ -69,6 +69,3 @@ Our subconscious assumptions continually externalize themselves that others may 
 - Assume *"We are transformed into Christ's glory"*
 - Let God awake and his enemies be destroyed
 - No greater Prayer than to awaken God within within
-
-
-#Assumption #Prayer

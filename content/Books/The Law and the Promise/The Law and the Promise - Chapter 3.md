@@ -162,6 +162,3 @@ Even the buried past can be remade by Revision. Heal lifelong pain by revising i
 ### Test Imagining In Life
 
 Experiment with revising scenes and watch imagined ends emerge. Daily Revision builds an enlarging future. Break recurrence by awaking imagination.nation.
-
-
-#Revision #Dreams

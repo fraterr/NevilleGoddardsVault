@@ -137,8 +137,3 @@ hemselves in the prison of their senses.
 - Awakening from this dream-like state is the process of coming to one's senses and realizing the true nature of reality.
 
 lity.
-
-
-
-
-#Dreams

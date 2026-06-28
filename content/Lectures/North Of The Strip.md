@@ -99,6 +99,3 @@ Now let us go into the silence.
 - Dream nobly and persistently, and your desires will manifest.
 - Learn the art of repentance, which means changing your mind and seeing outer changes as you change within.
 - Prove the power of imagination in your own life and then share it with others.others.
-
-
-#Dreams

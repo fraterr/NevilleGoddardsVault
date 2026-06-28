@@ -135,6 +135,3 @@ Now let us go into the silence.
 
 - Put these teachings into practice and experience their fulfillment, as all things exist within you.
 - Enter into silence for contemplation and reflection.ection.
-
-
-#Revision #Dreams

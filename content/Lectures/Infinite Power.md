@@ -136,7 +136,3 @@ sion in the flesh.
 - The author will return to the body of love after experiencing and owning the world.
 - Reincorporation into the body of love brings the ultimate joy.
 e joy.
-
-
-
-#Dreams

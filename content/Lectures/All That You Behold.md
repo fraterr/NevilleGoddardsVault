@@ -128,6 +128,3 @@ Now let us go into the silence.
 
 - As you resurrect within, you'll know all humanity is David, your son and self
 - Formed into one being, yet infinitely enhanced by the mortal dreaml dream
-
-
-#Assumption

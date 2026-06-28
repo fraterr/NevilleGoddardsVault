@@ -68,6 +68,3 @@ Now let us go into the silence.
 - All sins and states of consciousness are forgivable, except the sin against the Holy Spirit
 - Forgiving others and changing their state can be done before being breathed upon by the Holy Spirit
 - Awakening to the reality of Christ happens unexpectedly and you become one with God foreverexpectedly and you become one with God foreverforever
-
-
-#Prayer #Dreams

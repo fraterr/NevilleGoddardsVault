@@ -128,6 +128,3 @@ Now let us go into the silence.
 ### The Dream of Reality and the True Being
 - One day, the dreamer will awaken and see the world as a dead reflection of the human imagination.
 - The dreamer will leave the world as it is and return to the true being – the Lord God and creator of the dream. dream.
-
-
-#Assumption #Dreams

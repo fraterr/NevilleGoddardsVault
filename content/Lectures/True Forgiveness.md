@@ -116,7 +116,3 @@ to Forgive
 - All plays belong to God, the author.
 - Forgiveness leads to understanding and the end of the play.
  play.
-
-
-
-#Meditation #Dreams

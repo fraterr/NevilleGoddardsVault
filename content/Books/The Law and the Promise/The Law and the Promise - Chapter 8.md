@@ -208,6 +208,3 @@ We are where we are imagined to be, not confined to the body. Unlock the limited
 ### Question not the corporeal eye
 
 Blake advises looking through it to other worlds, as mystics mentally travel. Test yourself.urself.
-
-
-#Dreams

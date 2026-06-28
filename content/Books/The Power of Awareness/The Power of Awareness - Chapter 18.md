@@ -53,10 +53,3 @@ The dynamic active doer is infinitely more creative than passive hearers.
 
 
 rs.
-
-
-
-
-
-
-#Assumption

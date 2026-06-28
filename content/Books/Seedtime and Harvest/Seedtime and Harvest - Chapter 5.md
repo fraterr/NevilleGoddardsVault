@@ -114,4 +114,4 @@ A change of attitude is a change of position on the playing field of life. The g
 - The real game is played in the mind, not outer spacer space
 
 
-#Inner conversations
+conversations

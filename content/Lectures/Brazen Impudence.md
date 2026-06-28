@@ -102,4 +102,4 @@ Now let us go into the silence.
 - Sharing the understanding with others and embracing one's true nature as the Lord Jesus Christ leads to a fulfilling life.g life.
 
 
-#Assumption #Brazen impudence #Prayer
+impudence

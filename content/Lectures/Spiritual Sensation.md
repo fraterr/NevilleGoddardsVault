@@ -129,6 +129,3 @@ Now let us go into the silence.
 - The speaker recounts personal experiences of encountering David and realizing the father-son relationship.
 - The speaker forgives all, acknowledging that each individual must experience all parts.
 - The lecture ends with a call to enter into silence.ilence.
-
-
-#Assumption

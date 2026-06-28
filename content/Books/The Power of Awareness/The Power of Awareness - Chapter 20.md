@@ -50,9 +50,3 @@ Seek first the kingdom (I AM) and righteousness; things will follow.
 
 
 low.
-
-
-
-
-
-#Assumption

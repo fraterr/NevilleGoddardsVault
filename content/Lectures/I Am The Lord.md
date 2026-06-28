@@ -111,8 +111,3 @@ Now let us go into the silence.
 - Every individual's autobiography is recorded in scripture, and each person brings Christ into the world through their imagination.
 
 tion.
-
-
-
-
-#Dreams

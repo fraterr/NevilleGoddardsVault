@@ -114,4 +114,4 @@ That man who is accustomed to call up at will whatever images he pleases, will b
 - The truth of imagined states sets us free.s free.
 
 
-#Assumption #Meditation #State akin to sleep
+akin to sleep

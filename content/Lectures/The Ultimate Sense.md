@@ -99,7 +99,3 @@ Now let us go into the silence.
 imagination and Assumption.
 - The present moment is always advancing into the future to bring the fulfillment of desires.
 sires.
-
-
-
-#Assumption #Dreams

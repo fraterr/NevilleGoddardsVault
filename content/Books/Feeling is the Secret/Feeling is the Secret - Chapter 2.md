@@ -148,6 +148,3 @@ Sleep is the door into heaven. What you take in as a feeling you bring out as a 
 - Acceptance of the wish automatically wills the means.
 - Define your feeling before sleep to define your expression on waking.
 - Sleep is the door to realize your wish in the world. world.
-
-
-#Assumption #Prayer

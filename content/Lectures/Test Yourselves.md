@@ -107,6 +107,3 @@ Now let us go into the silence.
 - Test yourself and act as though things are as you desire them to be.
 - Persuade yourself that your desires are true and let the results follow.
 - It is up to the individual to perform the action and bring about the desired outcome.utcome.
-
-
-#Revision #Meditation

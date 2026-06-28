@@ -139,8 +139,3 @@ nto the body of God, represents the one who sent him.
 - Seeing the inner man, infused with God's likeness, reveals the one who sent him.
 
  him.
-
-
-
-
-#Assumption

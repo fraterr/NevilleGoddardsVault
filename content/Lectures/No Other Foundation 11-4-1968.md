@@ -150,8 +150,3 @@ Reality
 - They urge individuals to live a life worthy of recall and die to delusions.
 
 ions.
-
-
-
-
-#Assumption #Dreams

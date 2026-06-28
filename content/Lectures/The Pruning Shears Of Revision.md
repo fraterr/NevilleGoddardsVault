@@ -92,6 +92,3 @@ Take anything; you have a child today: we took all the requests this morning, th
 - By envisioning and communing with others in a loving and kind way, one can mediate God's power to man."
 - It is the source of every creation and can be used to bring about positive changes.
 - By envisioning and communing with others in a loving and kind way, one can mediate God's power to man.to man.
-
-
-#Revision

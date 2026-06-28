@@ -46,4 +46,4 @@ Assume others see your new concept of self. You always inspire them to see your 
 Desire intensely the good for others in Meditation by representing them as already possessing that greatness. Forgetting the past, persist in pressing toward the prize of your ideal. Experience has shown me this is the perfect way.ct way.
 
 
-#Assumption #Meditation #Dreams #State akin to sleep
+akin to sleep

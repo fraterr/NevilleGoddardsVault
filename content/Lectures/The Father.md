@@ -82,6 +82,3 @@ The author invites the listener to seek their own personal experience, urging th
 
 ### An invitation to personal experience
 The author invites the listener to seek their own personal experience, urging them to remember the name "I AM" before falling asleep. In the language of symbolism and imagery, the Father may appear to be separate but is always present.resent.
-
-
-#Meditation #Dreams

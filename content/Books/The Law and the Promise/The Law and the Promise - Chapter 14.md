@@ -92,9 +92,3 @@ Not just creating things. God does it in man. We are all imagination.
 
 
 ion.
-
-
-
-
-
-#Prayer #Dreams

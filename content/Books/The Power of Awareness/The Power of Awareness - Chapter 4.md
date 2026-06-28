@@ -40,11 +40,3 @@ If you do not believe that you are He (the person you want to be), then you rema
 
 
 t.
-
-
-
-
-
-
-
-#Assumption

@@ -105,6 +105,3 @@ Now let us go into the silence.
 - The Bible contains the truth, but it must be experienced to be truly understood.
 - The individual's personal experience unfolds the story of the Bible within them.
 - It takes personal experience and the awakening of the inner self to fully comprehend the scriptures.ptures.
-
-
-#Dreams

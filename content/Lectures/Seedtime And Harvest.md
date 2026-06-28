@@ -129,7 +129,3 @@ Now my time is up.
 - By planting positive seeds, individuals can contribute to the betterment of society and bring about positive changes.
 - Life is eternal, and there is no real end or insignificance.
 - The attitude towards life should be one of understanding the infinite nature of existence.iction of yesterday become the reality and fact of today.
-
-
-
-#Dreams

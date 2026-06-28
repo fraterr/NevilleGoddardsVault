@@ -53,9 +53,3 @@ Have no Gods before your I AM presence and dominion will be restored. You are th
 
 
 eek.
-
-
-
-
-
-#Prayer

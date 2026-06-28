@@ -121,6 +121,3 @@ Now let us go into the silence.
 
 - Man is destined to witness the truth of scripture unfold within himself
 - Then he will know he is the Lord Jesus Christ, sent to fulfill God's purposeod's purposepurpose
-
-
-#Assumption #Abdullah

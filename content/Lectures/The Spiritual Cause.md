@@ -66,6 +66,3 @@ Now let us go into the silence.
 - Every individual has the power to change their state and imagine a new reality.
 - The significance of imagination in creating reality is emphasized, and every individual is responsible for their own experiences.
 - God is man's imagination, and all causes are spiritual in nature..in nature..ature..
-
-
-#Assumption

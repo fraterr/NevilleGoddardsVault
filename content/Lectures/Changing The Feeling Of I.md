@@ -91,8 +91,3 @@ nd focusing on an aim is crucial for progress
 - Being still and attentive allows one to hear guidance from within themselves and the divine
 
 ivine
-
-
-
-
-#Prayer #Meditation #Abdullah

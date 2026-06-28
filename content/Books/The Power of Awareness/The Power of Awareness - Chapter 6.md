@@ -66,12 +66,3 @@ You will walk in the Assumption of the wish fulfilled as on a foundation more so
 
 
 .
-
-
-
-
-
-
-
-
-#Assumption

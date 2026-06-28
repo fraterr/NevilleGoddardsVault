@@ -56,9 +56,3 @@ Realize you are the trinity, meeting to fashion a world like your consciousness.
 
 
 ess.
-
-
-
-
-
-#Meditation

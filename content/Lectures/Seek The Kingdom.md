@@ -108,8 +108,3 @@ Now let us go into the silence.
 - Ultimately, all will be called "Father," and we will realize that we are all brothers.
 
 hers.
-
-
-
-
-#Assumption

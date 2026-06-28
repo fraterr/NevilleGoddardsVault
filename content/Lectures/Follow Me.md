@@ -157,6 +157,3 @@ Now let us go into the silence.
 ### Follow Neville into the Kingdom of God
 - Neville encourages listeners to believe and follow his revelations, as they offer an entirely different perspective on the world.
 - He emphasizes the importance of words and encourages listeners to believe and join him in the kingdom of God.of God.
-
-
-#Dreams

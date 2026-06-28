@@ -111,6 +111,3 @@ Now let us go into the silence.
 - We are stewards of the mysteries and must feed our power within.
 - Practice and exercise your imagination as a musician practices their craft.
 - Embrace the silence to connect with the Christ within.within.
-
-
-#Assumption #Dreams

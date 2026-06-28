@@ -115,8 +115,3 @@ old scriptures to find passages that parallel his experiences.
 - Challenge yourself to test the power of imagination and create a new reality.
 
 lity.
-
-
-
-
-#Assumption

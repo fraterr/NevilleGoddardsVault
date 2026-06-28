@@ -154,6 +154,3 @@ Now let us go into the silence
 - The speaker invites the listener to go all out in their imagination and believe that they are the person they want to be.
 - The world is a dream and can be reshaped through the power of imagination.
 - There is a realization that man is all imagination and God exists within man.in man.
-
-
-#Dreams

@@ -82,6 +82,3 @@ Good-bye.
 ### Conclusion
 - Easter is about dying to old beliefs and realizing that one's identity goes beyond the physical body.
 - Man is not the body but the essence of his beliefs and assumptions.ptions.
-
-
-#Assumption

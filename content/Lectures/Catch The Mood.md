@@ -177,4 +177,4 @@ Now let us go into the Silence.
 - One should focus on extracting the deeper meaning behind Scripture and apply it in their lives for personal growth.growth.
 
 
-#Bridge of incidents #Prayer #Dreams
+of incidents

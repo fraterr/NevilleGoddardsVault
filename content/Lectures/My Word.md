@@ -112,6 +112,3 @@ Now let us go into the silence.
 - Imitate God by naming desires and feeling their nature.
 - Remember the nature that produced the desire when it becomes manifest.
 - This world is a play and will continue until God's word redeems itself.itself.
-
-
-#Dreams

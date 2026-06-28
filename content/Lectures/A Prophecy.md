@@ -150,6 +150,3 @@ Now let us go into the silence.
 
 - The events of Jesus Christ's life symbolize God's awakening
 - Visions foreshadowing this unfold subjectively, fulfilling scriptureripture
-
-
-#Dreams

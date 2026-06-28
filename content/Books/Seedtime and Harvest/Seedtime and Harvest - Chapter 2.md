@@ -163,6 +163,3 @@ In the intervening years, she had many opportunities to use her imagination cons
 ### The Mystic Vision Flows into Reality
 
 - Inner acts shape outer reality; Dreams become the worlde world
-
-
-#Dreams #Tetragrammaton

@@ -77,8 +77,3 @@ dual's creative power.
 - An example of "unburning" a burned hand through mental Revision.
 
 sion.
-
-
-
-
-#Revision #Dreams

@@ -84,6 +84,3 @@ He never waits four months for the harvest. If in four months the harvest will a
 
 - Give now the beauty, joy and praise that would come later
 - You are called trees of righteousness, planted by the Lordhe Lord
-
-
-#Prayer

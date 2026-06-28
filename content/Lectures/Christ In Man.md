@@ -114,7 +114,3 @@ ich is fulfilled in the New Testament.
 - A deep sleep and amnesia cause man to forget his true identity and dream the dream of life.
 - Through faith and imagination, man can create and transform his reality.
 ality.
-
-
-
-#Revision #Dreams

@@ -125,6 +125,3 @@ These are the two gateways into the subconscious.
 - Assume the feeling of your wish fulfilled.
 - Prayer and sleep aid subconscious impression.
 - Master self-control of thoughts/feelings.elings.
-
-
-#Assumption #Prayer

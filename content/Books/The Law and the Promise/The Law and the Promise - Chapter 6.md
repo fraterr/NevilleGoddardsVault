@@ -123,6 +123,3 @@ Like poets, they contemplate then create. R.O. imagined herself in her apartment
 ### Imagine things as you desire them
 
 F.G.'s sensory imagination of her dream trip created it physically. To travel is the privilege of the imaginative.native.
-
-
-#Assumption #Dreams

@@ -102,6 +102,3 @@ Now let us go into the Silence.
 - Always remember that you are love, the one and only reality that endures forever.e you will truly live.
 - Fulfill every desire of your heart, for everything in time will pass away.
 - Always remember that you are love, the one and only reality that endures forever.orever.
-
-
-#Dreams

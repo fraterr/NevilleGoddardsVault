@@ -115,6 +115,3 @@ Now let us go into the silence.
 - The reverence for Caesar's world and the need to fulfill worldly obligations
 - Laboring in the earthly realm is necessary
 - The formation of the image has never faltered and will continue until completionpletion
-
-
-#Assumption #Prayer #Dreams

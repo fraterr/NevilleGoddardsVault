@@ -155,4 +155,4 @@ Now let us go into the silence.
 
 
 
-#Assumption,Prayer
+,Prayer

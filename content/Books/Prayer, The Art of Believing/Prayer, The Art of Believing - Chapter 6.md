@@ -68,6 +68,3 @@ The gift transmitted to another is the like the divine measure, pressed down, sh
 - The good you accept for others is expressed by them and you
 - Transformations yield more than was put in, like loaves and fish
 - Your gift to another overflows in twelve baskets full left overft over
-
-
-#Assumption #Prayer

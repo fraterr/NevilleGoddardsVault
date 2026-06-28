@@ -94,6 +94,3 @@ Now let us go into the silence.
 - All desires can be claimed and manifested through imagination.
 - It is possible to ask for help from others in realizing one's desires.
 - Everything in life is available for everyone to take, simply by imagining it.ing it.
-
-
-#Prayer #Meditation

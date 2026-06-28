@@ -118,6 +118,3 @@ Now let us go into the silence.
 
 - God redeems himself by awakening within man to his own true identity
 - Through inner vision and hearing, imagine yourself into experiencing scriptureripture
-
-
-#Assumption #Prayer

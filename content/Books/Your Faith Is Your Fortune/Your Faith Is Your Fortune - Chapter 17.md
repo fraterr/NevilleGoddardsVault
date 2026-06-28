@@ -58,9 +58,3 @@ Prayer succeeds when you claim and become one with your aim. This practice bears
 
 
 uit.
-
-
-
-
-
-#Prayer #Meditation

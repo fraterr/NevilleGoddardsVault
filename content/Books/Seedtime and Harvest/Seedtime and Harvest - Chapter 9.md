@@ -78,6 +78,3 @@ Transforms me into God.”
 
 - Love takes the clod and transforms man into God
 - Incarnate wisdom's purpose is clothing in Love and Truthd Truth
-
-
-#null

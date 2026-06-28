@@ -133,8 +133,3 @@ Now let us go into the silence.
 - Death does not terminate life, imagination continues to create reality.
 
 lity.
-
-
-
-
-#Revision #Assumption #Dreams

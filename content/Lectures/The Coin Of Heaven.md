@@ -100,4 +100,4 @@ And now my time is up.
 - Applying the principles leads to the opening of the eye and the discovery of a wonderful world of awakened humanity.manity.
 
 
-#Revision #Inner conversations
+conversations

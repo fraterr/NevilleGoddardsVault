@@ -74,6 +74,3 @@ Now let us go into the silence.
 - Falling into division will eventually lead to resurrection into unity.ination can create reality.
 - Wrestling is not against physical beings, but against spiritual forces.
 - Falling into division will eventually lead to resurrection into unity. unity.
-
-
-#Revision #Dreams

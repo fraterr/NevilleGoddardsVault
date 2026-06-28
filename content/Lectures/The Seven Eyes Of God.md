@@ -161,7 +161,3 @@ Now let us go into the silence.
 - The seventh eye is essential to being a true Christian.
 - Many religious and political leaders only use the fourth eye.
 - The true eye of Jesus sacrifices for the sake of all beings.
-
-
-
-#Dreams

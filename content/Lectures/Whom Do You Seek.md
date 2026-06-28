@@ -94,7 +94,3 @@ Now let us go into the silence.
 ithout hurting others by accepting it and living as though it's already theirs.
 - Sharing the truth with others and persistently telling the story will eventually lead to understanding and acceptance.
 tance.
-
-
-
-#Assumption #Prayer

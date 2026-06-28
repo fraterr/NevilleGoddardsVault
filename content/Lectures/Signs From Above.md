@@ -90,6 +90,3 @@ Now let us go into the silence.
 - This journey involves waking in the tomb of one's being, discovering the Fatherhood of God, and receiving the sealing of the Word with the words "You are my beloved son in whom I am well pleased"n others
 - Thirty years later, the seed erupts within the individual and they are redeemed
 - This journey involves waking in the tomb of one's being, discovering the Fatherhood of God, and receiving the sealing of the Word with the words "You are my beloved son in whom I am well pleased"leased"
-
-
-#Assumption

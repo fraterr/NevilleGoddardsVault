@@ -270,4 +270,4 @@ So, if I tell you that you are, you may not believe it, but I know I am telling 
 - The text encourages readers to dream nobly and live in the Assumption of their true identity, trusting that their imaginal acts will manifest in reality.eality.
 
 
-#Assumption #Bridge of incidents #Prayer #Dreams
+of incidents

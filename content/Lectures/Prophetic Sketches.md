@@ -115,8 +115,3 @@ Now let us go into the silence.
 ### Conclusion
 - The individual is awakening to their true nature, uniting with the Christ within
 - Prophetic sketches in the Bible serve as guidance and instruction for each person's journeybeginning to end
-
-
-
-
-#Dreams

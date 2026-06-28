@@ -70,4 +70,4 @@ ss
 
 
 
-#Assumption #Brazen impudence #Prayer
+impudence

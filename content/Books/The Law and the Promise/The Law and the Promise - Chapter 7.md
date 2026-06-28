@@ -121,6 +121,3 @@ By *"buying"* her son's warts in a game, the mother's playful certainty of their
 ### Man taking a mood takes its results
 
 As Russell wrote, your moods summon their affinities out of the indifferent. Make your moods at will.t will.
-
-
-#Assumption #Dreams

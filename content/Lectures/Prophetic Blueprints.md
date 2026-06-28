@@ -68,6 +68,3 @@ Now let us go into the silence.
 - The end result is the unveiling of Jesus Christ within oneself.
 
 Note: The speaker also mentions personal mystical experiences and the unfolding of scripture in his own life. scripture in his own life.n life.
-
-
-#Dreams

@@ -125,8 +125,3 @@ ld align with scripture, proving that God's plan is being fulfilled.
 - The goal is to become the bone structure on which the image of God's purpose is revealed.
 
 aled.
-
-
-
-
-#Assumption

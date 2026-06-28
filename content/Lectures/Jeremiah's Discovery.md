@@ -174,6 +174,3 @@ Now let us go into the silence.
 - The physical world is temporary and fades away, but the true self is eternal and operates in a realm of perfection.
 - Awakening to one's true nature and unity with God is a personal experience, not purely based on reason or logic.rary and fades away, but the true self is eternal and operates in a realm of perfection.
 - Awakening to one's true nature and unity with God is a personal experience, not purely based on reason or logic. logic.
-
-
-#Assumption

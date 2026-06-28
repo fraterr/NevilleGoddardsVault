@@ -128,6 +128,3 @@ Now let us go into the silence.
 
 ### The Truth of God as Light
 - The author reiterates the truth that God is light, as stated in scripture.ipture.
-
-
-#Assumption #Dreams
