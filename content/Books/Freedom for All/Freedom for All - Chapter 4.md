@@ -96,7 +96,7 @@ You consciously let go of this day, month or year, as the case may be, and you i
 
 With the knowledge of your power to bless you can open the doors of any prison – the prison of illness or poverty or of a humdrum existence.
 
-*"The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken hearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound"* ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV), [Luke 4:18](https://www.biblegateway.com/passage/?search=Luke+4:18&version=KJV)).
+<span style="color: #4ade80;">*"The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken hearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound"*</span> ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV), [Luke 4:18](https://www.biblegateway.com/passage/?search=Luke+4:18&version=KJV)).
 
 ## Summary
 

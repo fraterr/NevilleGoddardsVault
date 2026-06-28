@@ -6,7 +6,7 @@ DUALITY IS an inherent condition of life. Everything that exists is double. Man 
 
 <span style="color: #4ade80;">*"He it is, Who coming after me is preferred before me."*</span> ([John 1:27](https://www.biblegateway.com/passage/?search=John+1:27&version=KJV))
 
-*"The second Man is the Lord from heaven."* (1Corinthians 15:47)
+<span style="color: #4ade80;">*"The second Man is the Lord from heaven."*</span> ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
 
 Man begins to awake to the imaginative life the moment he feels the presence of another being in himself.
 
@@ -14,7 +14,7 @@ In your limbs lie nations twain, rival races from their birth; one the mastery s
 
 There are two distinct centers of thought or outlooks on the world possessed by every man. The Bible speaks of these two outlooks as natural and spiritual.
 
-*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* (1Corinthians 2:14)
+<span style="color: #4ade80;">*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."*</span> ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV))
 
 Man's inner body is as real in the world of subjective experience as his outer physical body is real in the world of external realities, but the inner body expresses a more fundamental part of reality.
 

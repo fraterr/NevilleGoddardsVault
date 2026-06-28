@@ -24,7 +24,7 @@ A friend of mine shared this vision with me. He said: "I am driving my car, when
 
 *"We began to talk, and I opened my wallet to show you a card which implied I was a writer. The man at your side questioned you and you answered him very superficially, conveying to me with a look that the man was incapable of understanding anything. Then you and I were alone, and you said: 'No one can deny you the next four reunions with God.' I did not understand the words, but your manner implied they were very important and a joy permeated my being as I awoke."* 
 
-These fleshly garments look like the garments he saw, when seen from a certain level. Paul tells us that the first man (Esau, Cain, etc.) is the man of dust, but the second man (Christ) is the man of heaven. (I Corinthians 15) 
+These fleshly garments look like the garments he saw, when seen from a certain level. Paul tells us that the first man (Esau, Cain, etc.) is the man of dust, but the second man (Christ) is the man of heaven. ([I Corinthians 15](https://www.biblegateway.com/passage/?search=1+Corinthians+15&version=KJV)) 
 
 These bodies of dust are moved by a power from within. Blake explained this so beautifully, when he said: *"Those in great Eternity who contemplate on death (this world) say thus, 'What seems to be is, to those to whom it seems to be, and is productive of the most dreadful consequences, to those to whom it seems to be, even of torment, despair and Eternal death. But Divine Mercy steps beyond and redeems Man in the body of Jesus.'"* 
 

@@ -1,4 +1,4 @@
-The Bible defines faith as *"the assurance of things hoped for, the conviction of things not seen."* ([Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV), Revised Standard Version)  
+The Bible defines faith as <span style="color: #4ade80;">*"the assurance of things hoped for, the conviction of things not seen."*</span> ([Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV), Revised Standard Version)  
   
 What is seen is made out of things that do not appear. Faith does not give reality to things that are not seen. It is loyalty to reality that makes things appear. Can I see the facts the world sees and still believe in the unseen state? If I can remain loyal to the unseen state, in some way I will get confirmation of it.  
   

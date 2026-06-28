@@ -32,9 +32,9 @@ She tested the Potter and proved His creativity in performance.
 
 Only the indolent mind would fail to rise to this challenge.
 
-Paul states, *"the spirit of God dwells in you” (1Cor. 3:16, [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), [James 4:5](https://www.biblegateway.com/passage/?search=James+4:5&version=KJV)), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." (2Cor. 13:5,6)
+Paul states, <span style="color: #4ade80;">*"the spirit of God dwells in you”</span> (1Cor. 3:16, [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), [James 4:5](https://www.biblegateway.com/passage/?search=James+4:5&version=KJV)), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." (2Cor. 13:5,6)
 
-If *"all things were made through Him, and without Him was not anything made that was made” ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." (Rom. 4:17)
+If <span style="color: #4ade80;">*"all things were made through Him, and without Him was not anything made that was made”</span> ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." (Rom. 4:17)
 
 The Potter's presence in us is inferred from what He does there. We cannot see Him there as One, not ourselves. The nature of the Potter — Jesus Christ — is to create and there is no creation without Him.
 

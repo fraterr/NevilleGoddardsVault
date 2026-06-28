@@ -57,7 +57,7 @@ Trifles: all trifles — but they produced their trivia without price. Imagining
 
 Man rates wealth in a way that bears no relation to real values.
 
-*"Come, buy wine and milk without money and without price."* — ([Isaiah 55:1](https://www.biblegateway.com/passage/?search=Isaiah+55:1&version=KJV))
+<span style="color: #4ade80;">*"Come, buy wine and milk without money and without price."*</span> — ([Isaiah 55:1](https://www.biblegateway.com/passage/?search=Isaiah+55:1&version=KJV))
 
 
 

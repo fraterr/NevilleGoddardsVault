@@ -1,4 +1,4 @@
-*"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
+<span style="color: #4ade80;">*"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."*</span> (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
 
@@ -68,7 +68,7 @@ Make no mistake about this; law is no respecter of persons.
 
 Discover the law of self-expression and live by it; then you will be free. With this understanding of the law, define your desire; know exactly what you want; make certain that it is desirable and acceptable.
 
-The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. *"Before they ask I have answered"* (approx., [Isaiah 65:24](https://www.biblegateway.com/passage/?search=Isaiah+65:24&version=KJV)), *"I have ways ye know not of"* (approx., Isaia 42:16), <span style="color: #4ade80;">*"My ways are past finding out"*</span> ([Romans 11:33](https://www.biblegateway.com/passage/?search=Romans+11:33&version=KJV)).
+The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. <span style="color: #4ade80;">*"Before they ask I have answered"*</span> (approx., [Isaiah 65:24](https://www.biblegateway.com/passage/?search=Isaiah+65:24&version=KJV)), <span style="color: #4ade80;">*"I have ways ye know not of"*</span> (approx., [Isaiah 42:16](https://www.biblegateway.com/passage/?search=Isaiah+42:16&version=KJV)), <span style="color: #4ade80;">*"My ways are past finding out"*</span> ([Romans 11:33](https://www.biblegateway.com/passage/?search=Romans+11:33&version=KJV)).
 
 The undisciplined man, on the other hand, constantly sees opposition to the fulfillment of his desire, and, because of the frustration, he forms desires of destruction which he firmly believes must be expressed before his basic desire can be realized. When man discovers this law of one consciousness he will understand the great wisdom of the Golden Rule and so he will live by it and prove to himself that the kingdom of heaven is on earth.
 
@@ -80,7 +80,7 @@ Your world is defined by your conception of yourself PLUS YOUR CONCEPTIONS OF OT
 
 The story of the Passover is to help you turn your back on the limitations of the present and pass over into a better and freer state.
 
-The suggestion to *"Follow the man with the pitcher of water"* ([Mark 14:13](https://www.biblegateway.com/passage/?search=Mark+14:13&version=KJV); [Luke 22:10](https://www.biblegateway.com/passage/?search=Luke+22:10&version=KJV)) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
+The suggestion to <span style="color: #4ade80;">*"Follow the man with the pitcher of water"*</span> ([Mark 14:13](https://www.biblegateway.com/passage/?search=Mark+14:13&version=KJV); [Luke 22:10](https://www.biblegateway.com/passage/?search=Luke+22:10&version=KJV)) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
 
 The mind that is disciplined to hear only the good feasts upon good states and so embodies the good on earth.
 

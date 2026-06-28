@@ -83,7 +83,7 @@ Before us go the results of all that seemingly is behind. Not gone is the last m
 The circumstances of life are the muffled utterances of the inner talking that made them – the word made visible.  
 *"The Word"*, said Hermes, *"is Son, and the Mind is Father of the Word. They are not separate one from the other; for life is the union of Word and Mind."*  
 <span style="color: #4ade80;">*"He willed us forth from Himself by the Word of Truth."*</span> ([James 1:18](https://www.biblegateway.com/passage/?search=James+1:18&version=KJV))  
-Let us [be imitators of God](/lectures/be-imitators-of-god) as dear children, ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)), and use our inner speech wisely to mould an outer world in harmony with our ideal. *"The Lord spake by me, and His Word was in my tongue."* (2Samuel 23:2)  
+Let us [be imitators of God](/lectures/be-imitators-of-god) as dear children, ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)), and use our inner speech wisely to mould an outer world in harmony with our ideal. <span style="color: #4ade80;">*"The Lord spake by me, and His Word was in my tongue."*</span> ([2Samuel 23:2](https://www.biblegateway.com/passage/?search=2+Samuel+23:2&version=KJV))  
 The mouth of God is the mind of man. Feed God only the best.  
 <span style="color: #4ade80;">*"Whatsoever things are of good report... think on these things."*</span> ([Philippians 4:8](https://www.biblegateway.com/passage/?search=Philippians+4:8&version=KJV))  
 The present moment is always precisely right for an investment, to inwardly speak the right word.  

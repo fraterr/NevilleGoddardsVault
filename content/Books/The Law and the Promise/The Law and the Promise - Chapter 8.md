@@ -46,7 +46,7 @@ To the extent that man builds from Dreams of fancy, he is alive; and, therefore,
 
 It follows that restricting the imagination by *"staying the eye"* on the reflective glass of the senses is a reduction of life.
 
-The specious surface of fact reflects rather than discloses, deflecting the *"Eye of Imagination"* from the truth that sets man free ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV)).
+The specious surface of fact reflects rather than discloses, deflecting the <span style="color: #4ade80;">*"Eye of Imagination"*</span> from the truth that sets man free ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV)).
 
 *"The Eye of Imagination”, if not deflected, looks on what ought to be there, not what is. However familiar the scene on which sight rests, the "* Eye of Imagination" could gaze on one never before witnessed.
 
@@ -62,7 +62,7 @@ Faith plus Love is self-commission. We can't commit ourselves to what we do not 
 
 And to make the state alive, one must become it.
 
-*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (<span style="color: #4ade80;">*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*</span>, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 
@@ -144,7 +144,7 @@ Paul states: *"I know a man in Christ who fourteen years ago was caught up to th
 
 Paul is telling us that he is that man and that he traveled by the power of imagination or Christ.
 
-In his next letter to the Corinthians, he writes: *"[Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"* (2Corinthians 13:5). We need not be 'dead' in order to enjoy spiritual privileges. *"Man is All Imagination and God is Man."* (William Blake, from *"Annotations to Berkeley"*). Test yourselves as this mother did.
+In his next letter to the Corinthians, he writes: <span style="color: #4ade80;">*"[Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"*</span> ([2Corinthians 13:5](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5&version=KJV)). We need not be 'dead' in order to enjoy spiritual privileges. *"Man is All Imagination and God is Man."* (William Blake, from *"Annotations to Berkeley"*). Test yourselves as this mother did.
 
 Sir Arthur Eddington said that all we have a right to say of the external world is that it is a *"shared experience"*. Things are more or less 'real' according to the extent to which they are capable of being shared with others or with ourselves at another time.
 

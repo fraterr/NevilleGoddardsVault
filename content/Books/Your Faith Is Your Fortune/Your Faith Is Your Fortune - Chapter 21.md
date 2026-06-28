@@ -1,4 +1,4 @@
-*"Thy God whom thou servest continually; he will deliver thee."* ([Daniel 6](https://www.biblegateway.com/passage/?search=Daniel+6&version=KJV): 16)
+<span style="color: #4ade80;">*"Thy God whom thou servest continually; he will deliver thee."*</span> ([Daniel 6](https://www.biblegateway.com/passage/?search=Daniel+6&version=KJV): 16)
 
 The story of Daniel is the story of every man. It is recorded that Daniel, while locked in the lions’ den, turned his back upon the hungry beasts; and with his vision turned toward the light coining from above he prayed to the one and only God. The lions who were purposely starved for the feast remained powerless to hurt the prophet. Daniel’s [faith in God](/lectures/faith-in-god) was so great that it finally brought about his freedom and his appointment to a high office in the government of his country. This story was written for you to instruct you in the art of freeing yourself from any problem or prison in the world.
 

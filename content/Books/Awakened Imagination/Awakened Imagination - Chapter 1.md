@@ -36,7 +36,7 @@ The Son of God is not to be found in history, nor in any external form. He can o
 Man is the garden in which this only-begotten Son of God sleeps. He awakens this Son by lifting his imagination up to heaven and clothing men in godlike stature. We must go on imagining better than the best we know.  
 Man in the moment of his awakening to the imaginative life must meet the test of Sonship.  
 
-*"Father, reveal Thy Son in me"* (James Montgomery) and *"It pleased God to reveal His Son in me"*. ([Galatians 1:15,16](https://www.biblegateway.com/passage/?search=Galatians+1:15,16&version=KJV))  
+*"Father, reveal Thy Son in me"* (James Montgomery) and <span style="color: #4ade80;">*"It pleased God to reveal His Son in me"*</span>. ([Galatians 1:15,16](https://www.biblegateway.com/passage/?search=Galatians+1:15,16&version=KJV))  
  
 The supreme test of Sonship is the forgiveness of sin. The test that your imagination is Christ Jesus, the Son of God, is your ability to forgive sin. Sin means missing one's mark in life, falling short of one's ideal, failing to achieve one's aim. Forgiveness means identification of man with his ideal or aim in life. This is the work of [awakened imagination](/lectures/awakened-imagination), the supreme work, for it tests man's ability to enter into and partake of the nature of his opposite.  
 
@@ -64,11 +64,11 @@ But he realizes that every man must become conscious of this inner activity and 
 It is a marvelous thing to find that you can imagine yourself into the state of your fulfilled desire and escape from the jails which ignorance built.  
 The Real Man is a Magnificent Imagination.  
 It is this self that must be awakened.  
-*"Awake thou that sleepest, and arise from the dead, and Christ shall give thee light."* [Ephesians 5:14](https://www.biblegateway.com/passage/?search=Ephesians+5:14&version=KJV)  
+<span style="color: #4ade80;">*"Awake thou that sleepest, and arise from the dead, and Christ shall give thee light."*</span> [Ephesians 5:14](https://www.biblegateway.com/passage/?search=Ephesians+5:14&version=KJV)  
 
 The moment man discovers that his imagination is Christ, he accomplishes acts which on this level can only be called miraculous. But until man has the sense of Christ as his imagination,  
 
-"You did not choose me, I have chosen you”, ([John 15:16](https://www.biblegateway.com/passage/?search=John+15:16&version=KJV)), he will see everything in pure objectivity without any subjective relationship.  
+<span style="color: #4ade80;">"You did not choose me, I have chosen you”</span>, ([John 15:16](https://www.biblegateway.com/passage/?search=John+15:16&version=KJV)), he will see everything in pure objectivity without any subjective relationship.  
 Not realizing that all that he encounters is part of himself, he rebels at the thought that he has chosen the conditions of his life, that they are related by affinity to his own mental activity.  
 Man must firmly come to believe that reality lies within him and not without.  
 Although others have bodies, a life of their own, their reality is rooted in you, ends in you, as yours ends in God.

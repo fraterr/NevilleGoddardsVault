@@ -38,7 +38,7 @@ Wouldest thou love one who never died for thee, or ever die for one who had not 
 
 " So God dies — that is to say — God has freely given Himself for man. Deliberately, He has become man and has forgotten that He is God, in the hope that man, thus created, will eventually rise as God.
 
-God has so completely offered His own Self for man, that He cries out on the cross of man, *"My God, My God; why hast Thou forsaken Me?"* (Mat. 27:46; [Psalm 21:1](https://www.biblegateway.com/passage/?search=Psalm+21:1&version=KJV)).
+God has so completely offered His own Self for man, that He cries out on the cross of man, <span style="color: #4ade80;">*"My God, My God; why hast Thou forsaken Me?"*</span> (Mat. 27:46; [Psalm 21:1](https://www.biblegateway.com/passage/?search=Psalm+21:1&version=KJV)).
 
 He has completely forgotten that He is God. But after God rises in one man, that man will say to his brothers, *"Why stand we here, trembling around, calling on God for help, and not ourselves, in whom God dwells?"* (William Blake)
 
@@ -94,9 +94,9 @@ Tennyson has a description of Death as a warrior — a skeleton *"high on a nigh
 
 Two other visions I will tell because they bear out the truth of my assertion that the Bible is mystical fact, that everything written about the promised child in the law of Moses and the Prophets and the Psalms must be mystically experienced in the imagination of the individual.
 
-The child's birth is a sign and a portent, signaling the resurrection of David, the Lord's anointed, of whom He said, *"You are My Son, today I have begotten You"*, ([Psalms 2:7](https://www.biblegateway.com/passage/?search=Psalms+2:7&version=KJV))
+The child's birth is a sign and a portent, signaling the resurrection of David, the Lord's anointed, of whom He said, <span style="color: #4ade80;">*"You are My Son, today I have begotten You"*</span>, ([Psalms 2:7](https://www.biblegateway.com/passage/?search=Psalms+2:7&version=KJV))
 
-Five months after the birth of the child, on the morning of December 6, 1959, in the city of Los Angeles, a vibration similar to the one which preceded his birth started in my head. This time its intensity was centered at the top of my head. Then came a sudden explosion and I found myself in a modestly furnished room. There, leaning against the side of an open door was my son David of Biblical fame. He was a lad in his early teens. What struck me forcibly about him was the unusual beauty of his face and figure. He was — as he is described in the first book of Samuel — ruddy, with beautiful eyes and very handsome (1Samuel 16:12, 17:42).
+Five months after the birth of the child, on the morning of December 6, 1959, in the city of Los Angeles, a vibration similar to the one which preceded his birth started in my head. This time its intensity was centered at the top of my head. Then came a sudden explosion and I found myself in a modestly furnished room. There, leaning against the side of an open door was my son David of Biblical fame. He was a lad in his early teens. What struck me forcibly about him was the unusual beauty of his face and figure. He was — as he is described in the first book of Samuel — ruddy, with beautiful eyes and very handsome ([1Samuel 16:12, 17:42](https://www.biblegateway.com/passage/?search=1+Samuel+16:12,+17:42&version=KJV)).
 
 Not for one moment did I feel myself to be anyone other than who I am now. Yet, I knew that this lad, David, was my son, and he knew that I was his father; for *"the wisdom from above is without uncertainty"* (But the wisdom that is from above is first pure, then peaceable, gentle, and easy to be intreated, full of mercy and good fruits, without partiality, and without hypocrisy, [James 3:17](https://www.biblegateway.com/passage/?search=James+3:17&version=KJV)). As I sat there contemplating the beauty of my son, the vision faded and I awoke.
 
@@ -114,13 +114,13 @@ In other words, I Am the Son of who I Am, I am self begotten, I Am the Son of Go
 
 'Whose son...?' is not about David, but about David's Father, whom the king had promised (1Sam. 17:25) to make free in Israel. Note: in all these passages (1Sam. 17:55,56,58) the king's inquiry is not about David but about David's Father.
 
-'I have found David, my servant... He shall cry to Me, *"Thou art my Father, my God, and the Rock of my salvation. And I will make him the first-born, the highest of the kings of the earth"*, ([Psalm 89:20](https://www.biblegateway.com/passage/?search=Psalm+89:20&version=KJV);26-27).
+'I have found David, my servant... He shall cry to Me, <span style="color: #4ade80;">*"Thou art my Father, my God, and the Rock of my salvation. And I will make him the first-born, the highest of the kings of the earth"*</span>, ([Psalm 89:20](https://www.biblegateway.com/passage/?search=Psalm+89:20&version=KJV);26-27).
 
-The individual who is born from above will find David and know him to be his very own son. Then he will ask the Pharisees — who are always with us — *"What do you think of the Christ? Whose son is He?"* And when they say to him, *"The son of David"*, he will say to them, *"How is it then that David, in the Spirit, calls him Lord... If David thus calls him Lord, how is he his son?"* (Matt. 22:41-45). Man's misconception of the role of the Son — which is only a sign and a portent — has made the Son an idol. *"Little children, keep yourselves from idols."* (1[John 5:21](https://www.biblegateway.com/passage/?search=John+5:21&version=KJV)).
+The individual who is born from above will find David and know him to be his very own son. Then he will ask the Pharisees — who are always with us — *"What do you think of the Christ? Whose son is He?"* And when they say to him, *"The son of David"*, he will say to them, *"How is it then that David, in the Spirit, calls him Lord... If David thus calls him Lord, how is he his son?"* (Matt. 22:41-45). Man's misconception of the role of the Son — which is only a sign and a portent — has made the Son an idol. <span style="color: #4ade80;">*"Little children, keep yourselves from idols."*</span> ([1John 5:21](https://www.biblegateway.com/passage/?search=1+John+5:21&version=KJV)).
 
 God awakes; and that man in whom he awakes becomes his own father's father. He who was David's Son, *"Jesus Christ, the son of David"* (Matt. 1:1) has become David's Father.
 
-No longer will I cry to *"our father David, thy child"*, (Acts. 4:25). *"I have found David"* ([Psalm 89:20](https://www.biblegateway.com/passage/?search=Psalm+89:20&version=KJV), [Acts 13:22](https://www.biblegateway.com/passage/?search=Acts+13:22&version=KJV)). He has cried to me, *"Thou art my Father"*, (Psalms. 89:26). Now I know myself to be one of the Elohim, the God who became man, that man may become God. *"Great indeed, we confess, is the mystery of our religion"*, (1Tim. 3:16).
+No longer will I cry to *"our father David, thy child"*, (Acts. 4:25). <span style="color: #4ade80;">*"I have found David"*</span> ([Psalm 89:20](https://www.biblegateway.com/passage/?search=Psalm+89:20&version=KJV), [Acts 13:22](https://www.biblegateway.com/passage/?search=Acts+13:22&version=KJV)). He has cried to me, *"Thou art my Father"*, (Psalms. 89:26). Now I know myself to be one of the Elohim, the God who became man, that man may become God. *"Great indeed, we confess, is the mystery of our religion"*, (1Tim. 3:16).
 
 If the Bible were history, it would not be a mystery.
 
@@ -130,11 +130,11 @@ A figure of speech is used for the purpose of calling attention to, emphasizing 
 
 *"The curtain of the temple was torn in two, from top to bottom, and the earth shook and the rocks were split"*, (Matt. 27:51).
 
-On the morning of April 8, 1960 — four months after it was revealed to me that I am David's father — a bolt of lightning out of my skull split me in two from the top of my skull to the base of my spine. I was cleft as though I were a tree that had been struck by lightning. Then I felt and saw myself as a golden liquid light moving up my spine in a serpentine motion; as I entered my skull, it vibrated like an earthquake. <span style="color: #4ade80;">*"Every word of God proves true; he is a shield to those who take refuge in him. Do not add to his words, lest he rebuke you, and you be found a liar"*</span> ([Proverbs 30:5,6](https://www.biblegateway.com/passage/?search=Proverbs+30:5,6&version=KJV)). *"And as Moses lifted up the serpent in the wilderness, so must the Son of man be lifted up"*, ([John 3:14](https://www.biblegateway.com/passage/?search=John+3:14&version=KJV)).
+On the morning of April 8, 1960 — four months after it was revealed to me that I am David's father — a bolt of lightning out of my skull split me in two from the top of my skull to the base of my spine. I was cleft as though I were a tree that had been struck by lightning. Then I felt and saw myself as a golden liquid light moving up my spine in a serpentine motion; as I entered my skull, it vibrated like an earthquake. <span style="color: #4ade80;">*"Every word of God proves true; he is a shield to those who take refuge in him. Do not add to his words, lest he rebuke you, and you be found a liar"*</span> ([Proverbs 30:5,6](https://www.biblegateway.com/passage/?search=Proverbs+30:5,6&version=KJV)). <span style="color: #4ade80;">*"And as Moses lifted up the serpent in the wilderness, so must the Son of man be lifted up"*</span>, ([John 3:14](https://www.biblegateway.com/passage/?search=John+3:14&version=KJV)).
 
 These mystical experiences will help to rescue the Bible from the externals of history, persons and events, and to restore it to its real significance in the life of man.
 
-Scripture must be fulfilled *"in"* us. God's promise will be fulfilled. You will have these experiences: *"And you shall be my witnesses in Jerusalem and in all Judea and Sa-ma-ri-a and to the end of the earth"*, ([Acts 1:8](https://www.biblegateway.com/passage/?search=Acts+1:8&version=KJV)).
+Scripture must be fulfilled *"in"* us. God's promise will be fulfilled. You will have these experiences: <span style="color: #4ade80;">*"And you shall be my witnesses in Jerusalem and in all Judea and Sa-ma-ri-a and to the end of the earth"*</span>, ([Acts 1:8](https://www.biblegateway.com/passage/?search=Acts+1:8&version=KJV)).
 
 The widening circle — Jerusalem... Judea... Samaria, the end of the earth — is God's plan.
 

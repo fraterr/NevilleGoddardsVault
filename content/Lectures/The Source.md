@@ -54,7 +54,7 @@ Now, if by God all things were made, and without him was not anything made that 
 
 This brings me to a point. A lady recently asked what was wrong with her, because - knowing in the depth of her soul that she was right -when confronted with another opinion, she remains quiet, unable to voice her opposition. 
 
-In the Book of John, he tells an incredible story, saying: *"I am God the Father. When you see me, you see the Father. Do you not know that I am in the Father and the Father in me?"* Making one fantastic statement after the other, he adds: *"I have told you before it takes place, so that when it does take place you will believe that I am he."* For we are told: *"Unless you believe that I am he, you die in your sins."* ([John 13](https://www.biblegateway.com/passage/?search=John+13&version=KJV)-14) 
+In the Book of John, he tells an incredible story, saying: *"I am God the Father. When you see me, you see the Father. Do you not know that I am in the Father and the Father in me?"* Making one fantastic statement after the other, he adds: *"I have told you before it takes place, so that when it does take place you will believe that I am he."* For we are told: <span style="color: #4ade80;">*"Unless you believe that I am he, you die in your sins."*</span> ([John 13](https://www.biblegateway.com/passage/?search=John+13&version=KJV)-14) 
 
 John emphasizes over and over again that you must believe you are the one you would like to be, or you will never become it. Rather, you will remain what you believe yourself to be right now. Your belief is always externalizing itself on the screen of space. It has to, for it is in you and not out there. 
 

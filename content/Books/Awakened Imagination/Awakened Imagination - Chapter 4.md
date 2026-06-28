@@ -1,4 +1,4 @@
-*"The second Man is the Lord from Heaven."* (1Corinthians 15:47)
+<span style="color: #4ade80;">*"The second Man is the Lord from Heaven."*</span> ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
 
 
 THE VERY first act of correction or cure is always *"revise"*. One must start with oneself. It is one's attitude that must be changed.  

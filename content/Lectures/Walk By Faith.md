@@ -22,7 +22,7 @@ Like Blake, I have found the Bible most entertaining, challenging, and instructi
 
 Take this simple statement in Hebrews: *"In many and various ways God spoke of old to our fathers by the prophets, but in these last days he has spoken to us by his son who reflects the glory of God and bears the stamp of his nature."* 
 
-The prophets, instruments through which God spoke, recorded their visions of what God intended, saying: *"The heavens declare the glory of God and the firmament shows forth his handiwork."* ([Psalms 18](https://www.biblegateway.com/passage/?search=Psalms+18&version=KJV) & 19) But in [the last days](/lectures/the-last-days) God speaks to us by his son, David. This is a fantastic revelation, for in the end God is going to reveal himself. 
+The prophets, instruments through which God spoke, recorded their visions of what God intended, saying: <span style="color: #4ade80;">*"The heavens declare the glory of God and the firmament shows forth his handiwork."*</span> ([Psalms 18](https://www.biblegateway.com/passage/?search=Psalms+18&version=KJV) & 19) But in [the last days](/lectures/the-last-days) God speaks to us by his son, David. This is a fantastic revelation, for in the end God is going to reveal himself. 
 
 I could tell you until the ends of time that you are He, but only David can make you believe it. I'll tell you why. Many people, like Bishop Pike, question the authority of scripture; but it will never be questioned after it is experienced. 
 

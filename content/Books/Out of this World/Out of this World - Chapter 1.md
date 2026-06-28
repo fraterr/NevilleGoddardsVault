@@ -1,4 +1,4 @@
-*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
+<span style="color: #4ade80;">*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."*</span> – ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
 
 MANY persons, myself included, have observed events before they occurred; that is, before they occurred in this world of three dimensions. Since man can observe an event before it occurs in the three dimensions of space, life on earth must proceed according to plan, and this plan must exist else-where in another dimension and be slowly moving through our space.
 If the occurring events were not in this world when they were observed, then, to be perfectly logical, they must have been [out of this world](/books/out-of-this-world/out-of-this-world).
@@ -25,7 +25,7 @@ There are two actual outlooks on the world possessed by every-one – a natural 
 
 We may differentiate them as ordinary waking consciousness – governed by our senses, and a controlled imagination – governed by desire.
 
-We recognize these two distinct centers of thought in the statement: *"The natural man receiveth not the things of the spirit of God for they are foolishness unto him; neither can he know them for they are spiritually discerned"* (1Corinthians 2:14).
+We recognize these two distinct centers of thought in the statement: <span style="color: #4ade80;">*"The natural man receiveth not the things of the spirit of God for they are foolishness unto him; neither can he know them for they are spiritually discerned"*</span> ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV)).
 
 The natural view confines reality to the moment called now. To the natural view, the past and future are purely imaginary.
 
@@ -41,7 +41,7 @@ We have but to concentrate on the state desired in order to see it.
 
 The habit of withdrawing attention from the region of sensation and concentrating it on the invisible develops our spiritual outlook and enables us to penetrate beyond the world of sense and to see that which is invisible.
 
-*"For the invisible things of him from the creation of the world are clearly seen"* – [Romans 1:20](https://www.biblegateway.com/passage/?search=Romans+1:20&version=KJV).
+<span style="color: #4ade80;">*"For the invisible things of him from the creation of the world are clearly seen"*</span> – [Romans 1:20](https://www.biblegateway.com/passage/?search=Romans+1:20&version=KJV).
 
 This vision is completely independent of the natural faculties. Open it and quicken it! Without it, these instructions are useless, for *"the things of the spirit are spiritually discerned."*
 

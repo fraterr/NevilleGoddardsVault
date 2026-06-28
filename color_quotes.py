@@ -4,6 +4,46 @@ import re
 CONTENT_DIR = os.path.join(os.getcwd(), "content")
 SKIP_NAMES = {'.DS_Store', '.trash', 'Handles', 'Template', 'Context', '.obsidian'}
 
+GREEN_COLOR = "#4ade80"
+
+def strip_previous_colors(content):
+    """Strip all previously injected style tags around quotes."""
+    # Matches <span style="color: ...">*"Quote"*</span> and restores to *"Quote"*
+    # We use [^>]+ to allow any variation of the color style
+    content = re.sub(
+        r'<span style="color:[^>]+">(\*?["“].*?["”]\*?)</span>',
+        r'\1',
+        content,
+        flags=re.DOTALL
+    )
+    return content
+
+def color_bible_quotes(content):
+    """Color all quotes that are followed closely by a Bible reference.
+    
+    Regex matches:
+    Group 1: The quote wrapped optionally in asterisks
+    Group 2: The separator (up to 80 chars, no newlines or quotes, to allow text like "approx.," or "see")
+    Group 3: The Bible gateway link (starting with [Book Chapter:Verse](url))
+    """
+    pattern = re.compile(
+        r'(\*?["“][^"”]+["”]\*?)([^\n"”]{0,80}?)(\[[^\]]+\]\(https://www\.biblegateway\.com/passage/[^)]+\))',
+        re.DOTALL
+    )
+    
+    def replacer(match):
+        quote = match.group(1)
+        sep = match.group(2)
+        link = match.group(3)
+        
+        # Check if already styled
+        if "color:" in quote:
+            return match.group(0)
+            
+        return f'<span style="color: {GREEN_COLOR};">{quote}</span>{sep}{link}'
+        
+    return pattern.sub(replacer, content)
+
 def process_file(filepath):
     try:
         with open(filepath, 'r', encoding='utf-8') as f:
@@ -15,34 +55,13 @@ def process_file(filepath):
         except:
             with open(filepath, 'r', encoding='utf-8', errors='replace') as f:
                 content = f.read()
-    
+                
     original = content
     
-    # Pattern to match:
-    # 1. Quote: optionally starting with *, then ", then anything but ", then ", optionally ending with *
-    # 2. Optional whitespace
-    # 3. BibleGateway link
-    
-    # We use a non-greedy match for the quote content: .*?
-    # but to avoid matching across long text, we ensure it's on the same line or similar.
-    # Actually, [^"]+ is safer so we match the immediately preceding quote.
-    
-    pattern = r'(\*?"[^"]+"\*?)\s*(\(\[[^\]]+\]\(https://www.biblegateway\.com/passage/[^)]+\)\))'
-    
-    # We want to keep the markdown asterisks outside the span so react-markdown still renders them if needed,
-    # or we can just wrap the whole thing.
-    # We will use an inline style to ensure it works regardless of CSS modules.
-    
-    def replacer(match):
-        quote_text = match.group(1)
-        link_text = match.group(2)
-        # Check if already wrapped
-        if "color: var(--accent-green)" in quote_text or "#4ade80" in quote_text:
-            return match.group(0)
-            
-        return f'<span style="color: #4ade80;">{quote_text}</span> {link_text}'
-        
-    content = re.sub(pattern, replacer, content)
+    # 1. Clean previous colors
+    content = strip_previous_colors(content)
+    # 2. Apply robust coloring
+    content = color_bible_quotes(content)
     
     if content != original:
         with open(filepath, 'w', encoding='utf-8') as f:
@@ -51,23 +70,21 @@ def process_file(filepath):
     return False
 
 def main():
-    print("Coloring Bible quotes...")
+    print("Coloring Bible quotes in markdown files...")
     modified_count = 0
     total = 0
     
     for root, dirs, files in os.walk(CONTENT_DIR):
         dirs[:] = [d for d in dirs if not d.startswith('.') and d not in SKIP_NAMES]
-        
         for f in files:
             if not f.endswith('.md') or f.startswith('.') or f.startswith('_'):
                 continue
-            
             filepath = os.path.join(root, f)
             total += 1
             if process_file(filepath):
                 modified_count += 1
                 
-    print(f"Done! Colored quotes in {modified_count} out of {total} files.")
+    print(f"\nDone! Colored quotes in {modified_count} out of {total} files.")
 
 if __name__ == "__main__":
     main()

@@ -15,7 +15,7 @@ Who is the father who is one with his son, yet greater than he? Can he be the so
   
 In the last chapter of the Book of Revelation, God says: *"I am the root and the offspring of David, the bright morning star."* God is the root, the source, the cause of all life. He is the father of David, yet his offspring!   
   
-As the source God is David's father, called Jesse or I AM. As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: *"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."* (II Samuel 7)   
+As the source God is David's father, called Jesse or I AM. As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: <span style="color: #4ade80;">*"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."*</span> ([II Samuel 7](https://www.biblegateway.com/passage/?search=2+Samuel+7&version=KJV))   
   
 Here we see that the root and the offspring are one. I (the root of David) am the cause of all life. In spite of that I come out of David, recognize him and say: *"Thou art my son, today I have begotten thee."*   
   

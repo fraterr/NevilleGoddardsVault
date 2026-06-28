@@ -1,4 +1,4 @@
-*"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+31:15&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
+<span style="color: #4ade80;">*"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"*</span> ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+31:15&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
 
 These six days are not twenty-four-hour periods of time.
 

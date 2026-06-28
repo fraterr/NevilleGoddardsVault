@@ -1,7 +1,7 @@
 SLEEP, the life that occupies one-third of our stay on earth, is the natural door into the subconscious.
 So it is with sleep that we are now concerned. The conscious two-thirds of our life on earth is measured by the degree of attention we give sleep. Our understanding of and delight in what sleep has to bestow will cause us, night after night, to set out for it as though we were keeping an appointment with a lover.
 
-*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
+<span style="color: #4ade80;">*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*</span>, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
 
 It is in sleep and in Prayer, a State akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
@@ -9,7 +9,7 @@ The subconscious – unlike the woman of the world who marries her husband to ch
 
 The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost feeling that they may reveal you to yourself.
 
-*"As in heaven, so on earth"* ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
+<span style="color: #4ade80;">*"As in heaven, so on earth"*</span> ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
 
 Whatever you have in consciousness as you go to sleep is the measure of your expression in the waking two-thirds of your life on earth.
 
@@ -49,7 +49,7 @@ As you feel so do you impress her; and she, the perfect lover, gives form to the
 
 <span style="color: #4ade80;">*"Thou art all fair, my love; there is no spot in thee"*</span> ([Song of Solomon 4:7](https://www.biblegateway.com/passage/?search=Song+of+Solomon+4:7&version=KJV)) is the attitude of mind to adopt before dropping off to sleep.
 
-Disregard appearances and feel that things are as you wish them to be, for *"He calleth things that are not seen as though they were, and the unseen becomes seen"* (Approx., [Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). To assume the feeling of satisfaction is to call conditions into being which will mirror satisfaction.
+Disregard appearances and feel that things are as you wish them to be, for <span style="color: #4ade80;">*"He calleth things that are not seen as though they were, and the unseen becomes seen"*</span> (Approx., [Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). To assume the feeling of satisfaction is to call conditions into being which will mirror satisfaction.
 
 *"Signs follow, they do not precede"*.
 
@@ -85,7 +85,7 @@ The actions of man are determined by his subconscious impressions.
 
 His illusion of free will, his belief in freedom of action, is but ignorance of the causes which make him act. He thinks himself free because he has forgotten the link between himself and the event.
 
-Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. *"Let the dead bury the dead"* ([Matthew 8:22](https://www.biblegateway.com/passage/?search=Matthew+8:22&version=KJV); [Luke 9:60](https://www.biblegateway.com/passage/?search=Luke+9:60&version=KJV)). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
+Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. <span style="color: #4ade80;">*"Let the dead bury the dead"*</span> ([Matthew 8:22](https://www.biblegateway.com/passage/?search=Matthew+8:22&version=KJV); [Luke 9:60](https://www.biblegateway.com/passage/?search=Luke+9:60&version=KJV)). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
 
 Feeling a state produces that state.
 

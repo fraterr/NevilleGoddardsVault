@@ -76,7 +76,7 @@ Experience has convinced me that this is the perfect way to achieve my goal.
 
 However, my own many failures would convict me were I to imply that I have completely mastered the movements of my attention.
 
-I can, however, with the ancient teacher say: *"This one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize."* ([Philippians 3:13,14](https://www.biblegateway.com/passage/?search=Philippians+3:13,14&version=KJV).)
+I can, however, with the ancient teacher say: <span style="color: #4ade80;">*"This one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize."*</span> ([Philippians 3:13,14](https://www.biblegateway.com/passage/?search=Philippians+3:13,14&version=KJV).)
 
 
 ## Summary

@@ -92,7 +92,7 @@ Now today, even after a month, Jim now thinks that it didn’t happen because he
 
 Well, you give him six more months and he’ll be convinced beyond a doubt that what he did in imagination and what his wife did had no bearing whatsoever upon the sale. But that is the story told throughout the Bible.
 
-*"Were there not ten of you, and only one has returned to say thanks?"* (See [Luke 17:14-18](https://www.biblegateway.com/passage/?search=Luke+17:14-18&version=KJV)) Well, the other nine thought it would have happened anyway. No, not a thing could cure them of their leprosy; and one spoke and it became a fact. And he kept on going. It wasn’t done because he did it,--it would have happened anyway.
+<span style="color: #4ade80;">*"Were there not ten of you, and only one has returned to say thanks?"*</span> (See [Luke 17:14-18](https://www.biblegateway.com/passage/?search=Luke+17:14-18&version=KJV)) Well, the other nine thought it would have happened anyway. No, not a thing could cure them of their leprosy; and one spoke and it became a fact. And he kept on going. It wasn’t done because he did it,--it would have happened anyway.
 
 That’s what the nine said, but one Samaritan came back and said, Thank you. That’s the whole vast world in which we live. We are so sound asleep, we could never believe in these irrational things of which I speak. *"Why, that doesn’t make sense!"*
 

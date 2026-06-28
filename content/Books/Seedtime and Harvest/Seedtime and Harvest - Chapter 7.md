@@ -9,14 +9,14 @@ When he knows this truth, he will stop the futile struggle of self-contention an
 *"Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms."*
 (Tagore)
 
-In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - [Genesis 3:1](https://www.biblegateway.com/passage/?search=Genesis+3:1&version=KJV) - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
+In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As <span style="color: #4ade80;">*"the serpent was more subtile than any beast of the field which the Lord God had made"*</span> - [Genesis 3:1](https://www.biblegateway.com/passage/?search=Genesis+3:1&version=KJV) - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
 
 <span style="color: #4ade80;">*"...was made subject to vanity, not willingly, but by reason of him who hath subjected the same in hope... For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for it? But if we hope for that we see not, then do we have patience wait for it."*</span> ([Romans 8:20, 24, 25](https://www.biblegateway.com/passage/?search=Romans+8:20,+24,+25&version=KJV))
 
 Although the outer, or *"natural"*, man of the senses is interlocked with his environment, the inner, or spiritual, man of imagination is not thus interlocked. If the interlocking were complete, the charge to be *"wise as serpents"* would be in vain. Were we completely interlocked with our environment, we could not withdraw our attention from the evidence of the senses and feel ourselves into the situation of our fulfilled desire, in hope that that unseen state would solidify as our new environment. But:
 
 *"There is a natural body, and there is a spiritual body."*
-(I Corinthians 15:44)
+([I Corinthians 15:44](https://www.biblegateway.com/passage/?search=1+Corinthians+15:44&version=KJV))
 
 The spiritual body of imagination is not interlocked with man's environment. The spiritual body can withdraw from the outer man of sense and environment and imagine itself to be what it wants to be. And if it remains faithful to the vision, imagination will build for man a new environment in which to live. This is what is meant by the statement:
 
@@ -39,7 +39,7 @@ The creative power in man sleeps and needs to be awakened.
 Wake from the sleep that tells you the outer world is the cause of the conditions of your life. Rise from the dead past and create a new environment.
 
 *"Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?"*
-(I Corinthians 3:16)
+([I Corinthians 3:16](https://www.biblegateway.com/passage/?search=1+Corinthians+3:16&version=KJV))
 
 The Spirit of God in you is your imagination, but it sleeps and needs to be awakened, in order to lift you off the bar of the senses where you have so long lain stranded.
 

@@ -18,7 +18,7 @@ Your third son, Japheth, is the confirmation, the visible proof that you know th
 
 He is the extended or objectified state bearing witness of the invisible or subjective state in which you abide.
 
-In the story of Noah it is recorded that Ham saw the secrets of his Father ([Genesis 9:22](https://www.biblegateway.com/passage/?search=Genesis+9:22&version=KJV)), and, because of his discovery, he was made to serve his brothers, Shem and (Japheth 9:25). Ham, or feeling, is the secret of the Father, your I AM, for it is through feeling that the consciousness desiring is joined to the thing desired.
+In the story of Noah it is recorded that Ham saw the secrets of his Father ([Genesis 9:22](https://www.biblegateway.com/passage/?search=Genesis+9:22&version=KJV)), and, because of his discovery, he was made to serve his brothers, Shem and Japheth ([Genesis 9:25](https://www.biblegateway.com/passage/?search=Genesis+9:25&version=KJV)). Ham, or feeling, is the secret of the Father, your I AM, for it is through feeling that the consciousness desiring is joined to the thing desired.
 
 The conscious union or mystical marriage is made possible only through feeling.
 

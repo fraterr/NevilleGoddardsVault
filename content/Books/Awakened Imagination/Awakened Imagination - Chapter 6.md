@@ -1,7 +1,7 @@
 THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
 <span style="color: #4ade80;">*"The Kingdom of Heaven is within you."*</span> ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
-*"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
+<span style="color: #4ade80;">*"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."*</span> ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
 The world which is described from observation is a manifestation of the mental activity of the observer.  
 When man discovers that his world is his own mental activity made visible, that no man can come unto him except he draws him, and that there is no one to change but himself, his own imaginative self, his first impulse is to reshape the world in the image of his ideal.  
 But his ideal is not so easily incarnated. In that moment when he ceases to conform to external discipline, he must impose upon himself a far more rigorous discipline, the self-discipline upon which the realization of his ideal depends.  
@@ -17,7 +17,7 @@ Our ideals are waiting to be incarnated, but unless we ourselves match our inner
 Inner speech and action are the channels of God's action. He cannot respond to our Prayer unless these paths are offered.  
 The outer behaviour of man is mechanical. It is subject to the compulsion applied to it by the behaviour of the inner self, and old habits of the inner self hang on till replaced by new ones. It is a peculiar property of the second or inner man that he gives to the outer self something similar to his own reality of being. Any change in the behavior of the inner self will result in corresponding outer changes.  
 The mystic calls a change of consciousness *"death"*. By death he means, not the destruction of imagination and the state with which it was fused, but the dissolution of their union.  
-Fusion is union rather than oneness. Thus the conditions to which that union gave being vanish. *"I die daily"*, said Paul to the Corinthians (1Corinthians 15:31). Blake said to his friend Crabbe Robinson:  
+Fusion is union rather than oneness. Thus the conditions to which that union gave being vanish. <span style="color: #4ade80;">*"I die daily"*</span>, said Paul to the Corinthians ([1Corinthians 15:31](https://www.biblegateway.com/passage/?search=1+Corinthians+15:31&version=KJV)). Blake said to his friend Crabbe Robinson:  
 There is nothing like death. Death is the best thing that can happen in life; but most people die so late and take such an unmerciful time in dying. God knows, their neighbors never see them rise from the dead.  
 To the outer man of sense, who knows nothing of the inner man of Being, this is sheer nonsense. But Blake made the above quite clear when he wrote in the year before he died:  
 William Blake – one who is very much delighted with being in good company. Born 28 November 1757 in London and has died several times since.  

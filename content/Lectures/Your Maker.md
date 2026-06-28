@@ -55,7 +55,7 @@ You can prove you are all imagination if you believe it, for you live by your be
 
 Fawcett said: *"Divine imagining is like pure imagining in ourselves. It lives in the very depth of our soul underlining all of our faculties, including perception, but streams into our surface mind least disguised in the form of creative fantasy."* All Dreams proceed from God whether they be in the day, or night. Everything is preceded by a dream, called an imaginal act! 
 
-Take me seriously and test the maker in you. "Examine yourselves to see if you are holding to your faith. Test yourselves. Do you not realize that Jesus Christ is in you? Unless, indeed, you fail to meet the test.' (II Corinthians 13) I hope you will find out that you have not failed! 
+Take me seriously and test the maker in you. "Examine yourselves to see if you are holding to your faith. Test yourselves. Do you not realize that Jesus Christ is in you? Unless, indeed, you fail to meet the test.' ([II Corinthians 13](https://www.biblegateway.com/passage/?search=2+Corinthians+13&version=KJV)) I hope you will find out that you have not failed! 
 
 Now let us go into the silence.
 

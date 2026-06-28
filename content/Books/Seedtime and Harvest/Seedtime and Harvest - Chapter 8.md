@@ -35,10 +35,10 @@ To know what to do about a seeming misfortune is to have the *“cup of water”
 
 This he does by living a life according to the truth which he has discovered.
 
-Only by such use of the truth can he *“taste the water that was made wine…”* ([John 2:9](https://www.biblegateway.com/passage/?search=John+2:9&version=KJV))
+Only by such use of the truth can he <span style="color: #4ade80;">*“taste the water that was made wine…”*</span> ([John 2:9](https://www.biblegateway.com/passage/?search=John+2:9&version=KJV))
 
-A mans birthright is to be Jesus. He is born to “save
-his people from their sins” ([Matthew 1](https://www.biblegateway.com/passage/?search=Matthew+1&version=KJV) : 21)
+A mans birthright is to be Jesus. He is born to <span style="color: #4ade80;">“save
+his people from their sins”</span> ([Matthew 1](https://www.biblegateway.com/passage/?search=Matthew+1&version=KJV) : 21)
 
 But the salvation of a man is *“not by water only, but by water and blood”*.
 
@@ -89,7 +89,7 @@ There is no day that passes that does not afford us the opportunity to transform
 *“Without the shedding of blood there is no remission.”*
 ([Hebrews 9:22](https://www.biblegateway.com/passage/?search=Hebrews+9:22&version=KJV))
 
-One night in New York City I was able to unveil the mystery of the *“water and the blood”* to a school teacher. I had quoted the above statement from [Hebrews 9:22](https://www.biblegateway.com/passage/?search=Hebrews+9:22&version=KJV), and went on to explain that the realization that we have no hope save in ourselves is the discovery that God is within us – that this discovery causes the dark caverns of the skull to grow luminous, and we know that: *“The spirit of man is the candle of the lord”* ([Proverbs 20:27](https://www.biblegateway.com/passage/?search=Proverbs+20:27&version=KJV)) – and that this realization is the light to guide us safely over the earth.
+One night in New York City I was able to unveil the mystery of the <span style="color: #4ade80;">*“water and the blood”*</span> to a school teacher. I had quoted the above statement from [Hebrews 9:22](https://www.biblegateway.com/passage/?search=Hebrews+9:22&version=KJV), and went on to explain that the realization that we have no hope save in ourselves is the discovery that God is within us – that this discovery causes the dark caverns of the skull to grow luminous, and we know that: <span style="color: #4ade80;">*“The spirit of man is the candle of the lord”*</span> ([Proverbs 20:27](https://www.biblegateway.com/passage/?search=Proverbs+20:27&version=KJV)) – and that this realization is the light to guide us safely over the earth.
 
 *“His Candle shined upon my head and by his light I walked through darkness”*
 ([Job 29:3](https://www.biblegateway.com/passage/?search=Job+29:3&version=KJV))
