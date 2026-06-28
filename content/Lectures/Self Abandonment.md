@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Self Abandonment
-keywords: []
-bible_ref:
-tags: lecture
-topics: []
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Week after week, as I take this platform, I know what I want to say. It is merely finding out how to say it so that it is intelligible, for we are dealing with a mystery. It's not something you can spell out and say, 'Now this is it.'
 
 It's peculiar, the most fantastic mystery in the world. To me, to experience Scripture, to experience God's plan of salvation, is my interpretation of the whole purpose of life. That is what I firmly believe. I firmly believe that the roots of our 'being' are rooted in God, and God unfolds Himself creatively in us.

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Lord, Our Potter
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Imagination as the Potter and the Lord, Story of the Escaped Prisoner, Interconnectedness and Relatedness, The Law and the Power of Imagination, God as the "I AM" Within]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In the 64th chapter of the Book of Isaiah we read: *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the work of thy hand."* When you hear the words Lord, Father, and potter, do you think of another? I certainly hope not. 
 
 The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"I AM"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"imagination"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 

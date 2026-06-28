@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Creation-Faith
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Understanding Creation through Faith, Loyalty to Unseen Reality, Accessing the Unseen Reality, The Power of Faith, Loyal to Unseen Reality, The Potency of Faith, Controlling the World with Faith, The Power of Implication, Forgiveness and Pleasing God, Loyalty to Unseen Reality, Harvesting God's Promises, Dream Interpretation, The Mystery of Salvation, Faith in the Inner Power, Externalization and Loyalty to Unseen Assumptions, Faith in the Inner Power, Externalization and Loyalty to Unseen Assumptions]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The mystery of creation is to be understood in terms of faith, so what is faith? It is the assurance of things hoped for, the conviction of things not seen with the mortal eye. Through faith we understand that the world was created by the word of God, so that what is seen was made out of things which do not appear.   
   
 *"Many suppose that before creation, all was solitude and chaos. That is the most pernicious idea that can enter the mind of man, for it robs the Bible of all sublimity and the nature of the man who entertains that idea a little grubbing worm outside of himself. Eternity exists and all things in eternity, independent of creation which was an act of mercy."* (William Blake)  
@@ -102,7 +88,7 @@ Now I want to share a dream of a friend, as it contains a message for us all. Be
   
 In this lady's dream she encounters her mother, yet knows she is herself. Her husband, yet her father, was missing, and her mother said: *"Listen, I can hear his voice."* Then the scene changed, and she and her mother are being entertained by four little men, each one foot high. As she looked into the eyes of one of them, she realized he was her father. Calling her mother's attention to this fact, her mother approached, touched him and said something in code. Then suddenly she knew that her father was not free to identify himself and she awoke sobbing.   
   
-This dream speaks volumes. Remember, all [[Dreams]] are egocentric, with God as the dreamer. Everyone is seeking the Father, the cause of the phenomena of life, not realizing he is imprisoned in all. Belief, however, will set him free! If you will imagine David standing before you and feel the Father/Son relationship. Remain loyal to that scene, you will release your heavenly Father!   
+This dream speaks volumes. Remember, all [Dreams](/Dreams) are egocentric, with God as the dreamer. Everyone is seeking the Father, the cause of the phenomena of life, not realizing he is imprisoned in all. Belief, however, will set him free! If you will imagine David standing before you and feel the Father/Son relationship. Remain loyal to that scene, you will release your heavenly Father!   
   
 Because of one's former religious training, when the truth is heard that will set him free, he is torn between the two. To think that one can come to hear my message, yet still believe in what the churches teach, is like what someone once said to me: *"I have given up all belief in numerology and astrology, but the moon is passing Venus tonight and because he is in my second house I know what to expect tomorrow."* They have completely given up their belief BUT... That big *"BUT"* happens in all.   
   
@@ -120,9 +106,9 @@ Dwell upon this great mystery of creation in terms of faith. All ministers, rabb
   
 All of these things are on the outside. Faith in any power other than He who is within you is false, and anyone who teaches a power on the outside is a false teacher. Christ in you is your hope of glory, and there is no other power.   
   
-The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the [[Assumption]] of unseen reality and loyalty to its assemblage.   
+The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the [Assumption](/Assumption) of unseen reality and loyalty to its assemblage.   
   
-In spite of denial by your senses and reason, if you will be faithful to your unseen [[Assumption]], it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
+In spite of denial by your senses and reason, if you will be faithful to your unseen [Assumption](/Assumption), it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
   
 Knowing what you want, close your eyes and enter its fulfillment, knowing that God is seeing what you are seeing. That He is hearing what you are saying; and what God sees and hears and remains loyal to, He externalizes.   
   
@@ -177,7 +163,7 @@ Now let us go into the silence.
 - Belief in one's own human imagination releases God from within
 
 ### Dream Interpretation
-- [[Dreams]] come from God and contain messages
+- [Dreams](/Dreams) come from God and contain messages
 - Belief sets God free, and imagination can be used to construct scenes implying fulfillment
 
 ### The Mystery of Salvation

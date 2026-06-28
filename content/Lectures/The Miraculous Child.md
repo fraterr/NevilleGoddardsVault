@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Miraculous Child
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Introduction to the Miraculous Child, Understanding Scriptural Characters, The Promise of a Child, Moses and the Promise of a Child, The Fulfillment of the Promise, The Significance of the Miraculous Child, Personal Experiences, The Great Exam, Symbolism of the Rose, Unfolding of Scripture, Self-Realization and the Fatherhood of Humanity, The Miraculous Child Within Oneself, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is 'The Miraculous Child.' This child will not appear to the world, for they are so fixed in their misconceptions of Scripture, and there is no dead weight so heavy. But tonight I wish you would pay special attention, as I want to introduce you to this miraculous child. For 'Though Christ a thousand times in Bethlehem be born, if he is not born in thee, thy soul is still forlorn.'
 
 God participates in human history and is known in those through whom his timeless purpose is working in time. He who began a good work in you will bring it to completion at the day of Jesus Christ, and he appears, symbolized as a child. This miraculous child is not Christ, but a sign that Christ is born, in you. Now listen to one in whom God's timeless purpose has been fulfilled in time.
@@ -48,7 +34,7 @@ Yesterday, about 4:00 o'clock in the afternoon, as is my custom, I was reading t
 
 All I can tell you is what I have experienced concerning Scripture. This miraculous child is a fact. The day will come when you will experience everything said of this child. There will be those who will make a hasty journey to see that which has happened in Bethlehem. They will find the child and, knowing whose child it is, they will call you by name. If your name is John they will declare it is John's baby. Then you will pick up the child, look into its heavenly face and as he laughs the vision comes to its end. And then you will know the reality of the child that was given to you as a sign that the savior was born. There is only one savior who is God. So if the savior is born, God is born. He came down into man and raises man by being reborn, from man, for I am the root and the offspring of David.
 
-Now, the lady and gentleman whose [[Dreams]] I shared with you tonight do not know one another. Her name is Vera. Born in Russia, she came there to be a dancer in New York City and has now opened a lovely dress shop in the Disneyland Hotel. Jimmie was born in Italy. I have known them both for years, but they have never met. Last night I had a dream. Here is Vera, a lady, quite small and about 50 years old. And Jimmie, also about 50, handsome, wonderful and well put together as he always is, is looking at her. In my dream Vera is his mother and she is hugging me. Jimmie is disturbed and scolds her for displaying her feelings toward me. Then she turned to him and said in a very Russian accent, 'And why shouldn't I? He is your father.' Well, the bewildered look on his face when he heard that bit of news was so priceless I started to laugh. I woke myself up laughing and even woke my wife. Here it is 3:30 in the morning and I am laughing so hard my wife says, 'What on earth is wrong with you?' I told her I had a dream and would share it with her in the morning. Then I got out of bed and went into the living room to laugh some more. But his was a true revelation.
+Now, the lady and gentleman whose [Dreams](/Dreams) I shared with you tonight do not know one another. Her name is Vera. Born in Russia, she came there to be a dancer in New York City and has now opened a lovely dress shop in the Disneyland Hotel. Jimmie was born in Italy. I have known them both for years, but they have never met. Last night I had a dream. Here is Vera, a lady, quite small and about 50 years old. And Jimmie, also about 50, handsome, wonderful and well put together as he always is, is looking at her. In my dream Vera is his mother and she is hugging me. Jimmie is disturbed and scolds her for displaying her feelings toward me. Then she turned to him and said in a very Russian accent, 'And why shouldn't I? He is your father.' Well, the bewildered look on his face when he heard that bit of news was so priceless I started to laugh. I woke myself up laughing and even woke my wife. Here it is 3:30 in the morning and I am laughing so hard my wife says, 'What on earth is wrong with you?' I told her I had a dream and would share it with her in the morning. Then I got out of bed and went into the living room to laugh some more. But his was a true revelation.
 
 If I am the Father of David and I know I am and David is the personification of all the generations of men and their experiences, and Jimmie is a man, am I not his Father? Am I not the Father of humanity if I am the Father of the essence of humanity, which is David? David has called me Father in fulfillment of the 89th Psalm. If I am David's father, and he is the personification of all the generations of men and their experiences, am I not Jimmie's father? It's all the unfolding of Scripture, for there is nothing but God in this world. And when he unfolds himself in you, you will know it too. Those who have not experienced Scripture will think you are as mad as a hatter, but the day will come when you will know that you too are the Father of humanity, because you are going to be the Father of the sum total of all the generations of men personified as the eternal youth whose name is David. And if he is the essence of humanity, are you not, then, the Father of humanity?
 
@@ -103,8 +89,8 @@ Now let us go into the silence.
 
 ### Personal Experiences
 
-- The speaker shares letters from individuals experiencing [[Dreams]] and visions.
-- The [[Dreams]] and visions confirm the nearing of the end and the fulfillment of Scripture.
+- The speaker shares letters from individuals experiencing [Dreams](/Dreams) and visions.
+- The [Dreams](/Dreams) and visions confirm the nearing of the end and the fulfillment of Scripture.
 - Personal experiences provide insight into the reality of the Miraculous Child.
 
 ### The Great Exam

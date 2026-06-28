@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: All Things Are Possible
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Christ is Our True Identity, None Knows the Father, No Dependence on Outsiders, Suffering Leads to Glory, The Living Word, I Am Not of This World, You Are Christ, The Unfolding Pattern, The Unfolding Pattern]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Jesus Christ is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus Christ, but not yourself? If you do it is because you do not know who you are!
 
 In 1929, believing Jesus Christ to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
@@ -62,7 +48,7 @@ We are told: *"I am from above. You are from below. You are of this world. I am 
 
 Everything you have ever done was done by Christ! He is your life and without Jesus Christ in you, you could not breathe. Allowing everything to happen, he will experience it all, as you!
 
-Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that [[Assumption]] and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
+Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that [Assumption](/Assumption) and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
 
 You are the Cosmic Christ who nailed your power on humanity in six vortices as the six-pointed Star of David. At the moment of sheer ecstasy God began a good work in you, and He will bring it to completion as His predestined state unfolds from within!
 

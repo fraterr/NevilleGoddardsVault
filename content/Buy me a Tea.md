@@ -1,8 +1,3 @@
----
-banner: Handles/img/banner buy me a tea.png
-sticker: emoji//1f375
-dg-publish: true
----
 If you find value in the Neville Goddard Vault, your contribution is greatly appreciated!
 
 The easiest way to donate is through Buy Me a Coffee. 

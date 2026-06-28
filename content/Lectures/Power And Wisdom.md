@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Power And Wisdom
-keywords: [Abdullah]
-bible_ref:
-tags: lecture
-topics: []
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Although man develops more and more power on earth, it is like kindergarten, compared to the power that is his in the New Age. Christ within you as your hope of glory is the personification of this power 
 
 Knowing himself to be all power, Jesus turned to those who followed him, and said: *"Wait in the city until you are clothed with power from on high."* You are clothed with that power when the Holy Spirit, symbolized as a dove, descends upon you. 
@@ -68,7 +54,7 @@ Imagine whatever you desire. Believe you will receive it and go about your busin
 
 Believe me, for God's pattern of salvation has unfolded in me. The divine drama has reached its climax. Only Caesar's history continues, and every child born of woman is fulfilling it. Moving across the screen of space for thousands of years, man experiences moments of joy and sorrow, sadness and pain, until the dramatic story of Christ unfolds from within. It takes 1260 days from God's first mighty act to the final one. Then, if the brothers decide it is your task to remain and tell the story, you will. Like Paul, I long to depart. I feel as though there is a thorn in my side and I pray to have it removed. But I will remain, knowing my grace is sufficient, for my power is made perfect in weakness. 
 
-I recall the first night I met [[Abdullah]]. I had purposely delayed going to one of his meetings, because a man whose judgment I did not trust had insisted on my attendance. At the end of the meeting, Ab approached me and said: *"Neville, you are six months late."* Startled, I questioned how he knew my name, when he said: *"The brothers told me you would be here six months ago."* Then he added: *"I will remain until you have received all that I must give you. Then I will depart."* He, too, may have longed to go, but he had to wait for me. 
+I recall the first night I met [Abdullah](/Abdullah). I had purposely delayed going to one of his meetings, because a man whose judgment I did not trust had insisted on my attendance. At the end of the meeting, Ab approached me and said: *"Neville, you are six months late."* Startled, I questioned how he knew my name, when he said: *"The brothers told me you would be here six months ago."* Then he added: *"I will remain until you have received all that I must give you. Then I will depart."* He, too, may have longed to go, but he had to wait for me. 
 
 If you are serious about the study of the Bible, read the eighth chapter of Proverbs. Begin with the 22nd verse, and as you go through to the end you will discover it is all about wisdom. 
 
@@ -99,7 +85,7 @@ Now let us go into the silence.
 - When clothed with power from on high, a person becomes aware of a different world and their role as a life-giving spirit.
 - Belief and imagination are powerful tools for manifesting desires.
 - The divine drama reaches its climax through the story of Christ unfolding within each individual.
-- [[Abdullah]], a teacher, had specific knowledge about Neville and remained to guide him.
+- [Abdullah](/Abdullah), a teacher, had specific knowledge about Neville and remained to guide him.
 - The study of wisdom is crucial for finding life and receiving favor from the Lord.
 - The world and its conflicts are essential for personal growth, leading to reunions with God and entrance into the New Age..New Age..w Age..
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: No Other Foundation 11-4-1968
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Christ as the Only Foundation, The Temptation to Build on Other Foundations, Laying the Foundation of Jesus Christ, The Illusion of External Causes and Dreams, United with the Lord, The Reality of Dreams, Dreams as Symbolic Reality, The Foundation of Imagination, Thoughts Tested by Fire, Becoming Aware of Oneness with God, Ending Illusions and Building on the Foundation, Dreams as Real as Reality, The Promise of Imagination, The Promise of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Defining Christ as God's power and wisdom, Paul makes this statement: *"No other foundation can anyone lay than that which is laid, which is Christ. If you build on it with gold, silver, precious stones, wood, hay or stubble, your work will become manifest. It will be revealed by the day. If the work survives, you will receive a reward. If it is destroyed, you will suffer loss; but you yourself will be saved, but only as through fire."* Then he adds this thought: *"Do you not know that you are the temple of God and the Spirit of God dwells in you?"* (1 Cor. 3)
 
 Paul was made an apostle for the purpose of laying the foundation of Jesus Christ. He did not commission himself as a physical man, but was drafted, called, and sent through an act of grace. When I was drafted, called, and sent, it was with the command: *"Down with the bluebloods."* In other words, down with all church protocol, with anything that would interfere with the individual's direct access to God. There is only one foundation upon which to build. That foundation is I am, and there is no other!
@@ -36,7 +22,7 @@ One night in particular I stood in a hotel lobby. Remembering what I had done to
 
 Although I knew of no road that would lead me back, I knew that feeling was the secret. So, while standing in a solidly real body, I imagined my head was on a pillow. I persisted until I knew I was there. Then I realized that my body was dead. That I was a living presence which had moved into it. It seemed like an eternity before I could move my little finger, my arm from the elbow down, and finally to feel the warmth of my wife's body and know I had returned.
 
-The world we enter at night is just as real as this one. Like this world, everything there contains within itself the capacity for symbolic significance. At the end of your day (or night) dream, try to interpret it symbolically, as there is only one foundation for your [[Dreams]]; and that is your own wonderful human imagination.
+The world we enter at night is just as real as this one. Like this world, everything there contains within itself the capacity for symbolic significance. At the end of your day (or night) dream, try to interpret it symbolically, as there is only one foundation for your [Dreams](/Dreams); and that is your own wonderful human imagination.
 
 A friend wrote telling of a dream which, although it seemed as though years separated the events, it took place in one night. At four different moments in time, he entered a very plush eating establishment in England, where he was recognized and greeted as royalty. Deciding to disguise himself, he entered the rear door, when the maitre d' pointed to him and said to a waiter: *"He really is the Lord."* 
 
@@ -72,15 +58,15 @@ You are not fated to become wise or foolish, rich or poor. It's entirely up to y
 
 In scripture, the one who claimed that his father was God and that he was one with his father, was accused of blasphemy; but he walked as though he were, If you would do the work of God, you must assume that you are he. You cannot do the work of one that you do not feel you are. You must claim your awareness is Jesus Christ in order to know who you really are.
 
-I tell you the world you step into tonight when you put your head on a pillow is just as real as this one. Men claim it is a shadow and unreal, yet from these so-called [[Dreams]] they interpret their state of consciousness. How can anyone interpret that which is unreal? The reality of that world as opposed to this one is solely produced from the level upon which consciousness is focused. If you are thinking from that world it seems the only reality. Focus your attention on this level, however, and that world will seem unreal. So, objectivity and subjectivity are solely determined by the level of consciousness upon which the individual is focused.
+I tell you the world you step into tonight when you put your head on a pillow is just as real as this one. Men claim it is a shadow and unreal, yet from these so-called [Dreams](/Dreams) they interpret their state of consciousness. How can anyone interpret that which is unreal? The reality of that world as opposed to this one is solely produced from the level upon which consciousness is focused. If you are thinking from that world it seems the only reality. Focus your attention on this level, however, and that world will seem unreal. So, objectivity and subjectivity are solely determined by the level of consciousness upon which the individual is focused.
 
-I hope you will take me seriously, as there is no other foundation. You need not be born into a certain nation, race, or religious belief to experience your desire. You can become the lady or gentleman you want to be by standing on the only foundation. Many successful people had no social, financial, or political foundation to get them where they are. They simply believed in themselves. They imagined they were what they wanted to be by living as though they were. Then in a way no one could devise, their [[Assumption]] externalized itself.
+I hope you will take me seriously, as there is no other foundation. You need not be born into a certain nation, race, or religious belief to experience your desire. You can become the lady or gentleman you want to be by standing on the only foundation. Many successful people had no social, financial, or political foundation to get them where they are. They simply believed in themselves. They imagined they were what they wanted to be by living as though they were. Then in a way no one could devise, their [Assumption](/Assumption) externalized itself.
 
 Most people, after externalizing their desire, forget the ladder by which they did ascend. I hope you will not. You don't need to brag, but if anyone should ask you how you achieved your goal, tell them how - in spite of any so-called worldly requirements - you believed you already were the person you wanted to be, and possessed the section of the world you wanted to possess. Do this, that you may encourage him to do the same.
 
 Can you believe in this one and only foundation? If the word Jesus Christ offends you, use another. I love the word because I know its meaning. Jesus Christ is the power and the wisdom of God who is your own wonderful imagination. 
 
-Dare to assume that you have your desire. You may feel you do not have the wisdom to find the means to get it, but you do. If it takes one thousand or ten thousand people to play their parts to bring you into the embodiment of what you have assumed you are, they will play their parts, knowingly or unknowingly. You don't have to be concerned as to who is going to aid you. Simply dare to assume you are what you want to be, and you will compel everyone to play their part to bring about your [[Assumption]]. That is life.
+Dare to assume that you have your desire. You may feel you do not have the wisdom to find the means to get it, but you do. If it takes one thousand or ten thousand people to play their parts to bring you into the embodiment of what you have assumed you are, they will play their parts, knowingly or unknowingly. You don't have to be concerned as to who is going to aid you. Simply dare to assume you are what you want to be, and you will compel everyone to play their part to bring about your [Assumption](/Assumption). That is life.
 
 Live so that your mind can store a past worthy of recall, because any section of your past that cannot stand the fire will suffer loss. Build nobly, for you will continue to be confronted with your past until God awakens within you.
 
@@ -109,7 +95,7 @@ Now let us go into the silence.
 - The author was also drafted and called, with a command to eliminate any interference between individuals and direct access to God.
 - The foundation upon which to build is "I am" - there is no other foundation.
 
-### The Illusion of External Causes and [[Dreams]]
+### The Illusion of External Causes and [Dreams](/Dreams)
 - In infancy, man believes external things are the cause of life's phenomena.
 - The author used to believe in astrology but outgrew it and realized the power of imagination.
 - They recount teaching astrology to a friend who became an astrologer and had successes based on her belief and self-persuasion.
@@ -118,12 +104,12 @@ Now let us go into the silence.
 - The author states they were sent by the same being who sent Paul, stood in the presence of the Risen Lord, and became one with him.
 - They emphasize their oneness with the Lord and the unity of their spiritual sender.
 
-### The Reality of [[Dreams]]
-- [[Dreams]] are as real as this waking world.
+### The Reality of [Dreams](/Dreams)
+- [Dreams](/Dreams) are as real as this waking world.
 - The author describes experiencing a vivid dream where they entered a different world consciously but struggled to return until they focused on their imagination.
 
-### [[Dreams]] as Symbolic Reality
-- [[Dreams]] are experienced in a shadow world, but they hold symbolic significance.
+### [Dreams](/Dreams) as Symbolic Reality
+- [Dreams](/Dreams) are experienced in a shadow world, but they hold symbolic significance.
 - The author discusses a friend's dream that signifies recognition of their true identity as the Lord.
 
 ### The Foundation of Imagination
@@ -144,22 +130,22 @@ Now let us go into the silence.
 - They emphasize the need to break free from illusions and trust in oneself as the source of fulfillment.
 - It does not matter what role one plays in life; everyone is destined to become the Lord.
 
-### [[Dreams]] as Real as Reality
-- The author asserts that [[Dreams]] are just as real as the waking world.
-- The interpretation of [[Dreams]] depends on the level of consciousness one is focused on.
+### [Dreams](/Dreams) as Real as Reality
+- The author asserts that [Dreams](/Dreams) are just as real as the waking world.
+- The interpretation of [Dreams](/Dreams) depends on the level of consciousness one is focused on.
 
 ### The Promise of Imagination
 - The author encourages readers to believe in the one and only foundation.
-- They emphasize the power of [[Assumption]] and the role of imagination in manifesting desires.
+- They emphasize the power of [Assumption](/Assumption) and the role of imagination in manifesting desires.
 - They urge individuals to live a life worthy of recall and die to delusions.
 
 Reality
-- The author asserts that [[Dreams]] are just as real as the waking world.
-- The interpretation of [[Dreams]] depends on the level of consciousness one is focused on.
+- The author asserts that [Dreams](/Dreams) are just as real as the waking world.
+- The interpretation of [Dreams](/Dreams) depends on the level of consciousness one is focused on.
 
 ### The Promise of Imagination
 - The author encourages readers to believe in the one and only foundation.
-- They emphasize the power of [[Assumption]] and the role of imagination in manifesting desires.
+- They emphasize the power of [Assumption](/Assumption) and the role of imagination in manifesting desires.
 - They urge individuals to live a life worthy of recall and die to delusions.
 
 ions.

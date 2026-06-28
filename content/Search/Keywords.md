@@ -1,10 +1,3 @@
----
-sticker: lucide//hash
-dg-publish: true
----
-
-
-
 # Assumption
 
 ```dataview

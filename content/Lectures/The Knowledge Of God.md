@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Knowledge Of God
-keywords: []
-bible_ref:
-tags: lecture
-topics: [God's Knowledge and the Creative Act, Surrender and Glorification, Scripture and God's Plan of Redemption, The Intimacy of Knowing God, Becoming One with God, The Eternal Nature of God, Thinking From the Fulfillment of Desires, The Promise and Oneness with God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Last night I fell asleep dwelling on two thoughts which parallel each other. One is from Paul's letters to the Corinthians and the other from the Gospel of John. Paul said: *"I cannot address you as spiritual men, but as members of the flesh, babes in Christ. I feed you milk, not solid food for you cannot take it."* And in the Gospel of John, the central character said: *"I have yet many things to say to you, but you cannot bear them now."* When I awoke this morning my mind was crowded with the knowledge of God. This is not easy to speak of or to accept, but if you are a good student of scripture you will know that what I tell you is true. 
 
 In the Book of Genesis it is said that Adam knew Eve, his wife. That she conceived and bore Cain saying: *"I did it with the aid of Jehovah."* And in the Book of Luke, we are told that when the angel told Mary she would conceive and bear a son, Mary asked; *"How can this be seeing that I know not a man?"* The words *"know, knew, foreknowledge, or foreknew"* are used as a euphemism for the creative act. And the one who performs this act is Jehovah. 

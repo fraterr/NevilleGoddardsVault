@@ -1,26 +1,8 @@
----
-book:
-chapter: Be What You Wish; Be What You Believe
-keywords:
-  - Assumption
-  - Prayer
-bible_ref:
-tags: lecture
-topics:
-  - Affirming the Wish Fulfilled
-  - Becoming the Meek Man
-  - Changing Your Life
-  - Embodying the New Man
-banner: Handles/img/banner radio lectures.png
-sticker: emoji//1f4e3
-radio_lecture: yes
-dg-publish: true
----
 A newspaperman related to me that our great scientist, Robert Millikan, once told him that he had set a goal for himself at an early age when he was still very poor and unproven in the great work he was to do in the future. He condensed his dream of greatness and security into a simple statement, which statement, implied that his dream of greatness and security was already realized. Then he repeated the statement over and over again to himself until the idea of greatness and security filled his mind and crowded all other ideas out of his consciousness. These may not have been the words of Dr. Millikan but they are those given to me and I quote, *"I have a lavish, steady, dependable income, consistent with integrity and mutual benefit."* As I have said repeatedly, everything depends upon our attitude towards ourselves. That which we will not affirm as true of ourselves cannot develop in our life. Dr. Millikan wrote his dream of greatness and security in the first person, present tense. He did not say, *"I will be great; I will be secure,"* for that would have implied that he was not great and secure. Instead, he made his future dream a present fact. *"I have,"* said he, *"a lavish, steady, dependable income, consistent with integrity and mutual benefit."*
 
 The future dream must become a present fact in the mind of him who seeks to realize it. We must experience in imagination what we would experience in reality in the event we achieved our goal, for the soul imagining itself into a situation takes on the results of that imaginary act. If it does not imagine itself into a situation, it is ever free of the result.
 
-It is the purpose of this teaching to lift us to a higher state of consciousness, to stir the highest in us to confidence and self-assertion, for that which stirs the highest in us is our teacher and healer. The very first word of correction or cure is always, *"Arise."* If we are to understand the reason for this constant command of the Bible to *"arise,"* we must recognize that the universe understood internally is an infinite series of levels and man is what he is according to where he is in that series. As we are lifted up in consciousness, our world reshapes itself in harmony with the level to which we are lifted. He who rises from his [[Prayer]] a better man, his [[Prayer]] has been granted.
+It is the purpose of this teaching to lift us to a higher state of consciousness, to stir the highest in us to confidence and self-assertion, for that which stirs the highest in us is our teacher and healer. The very first word of correction or cure is always, *"Arise."* If we are to understand the reason for this constant command of the Bible to *"arise,"* we must recognize that the universe understood internally is an infinite series of levels and man is what he is according to where he is in that series. As we are lifted up in consciousness, our world reshapes itself in harmony with the level to which we are lifted. He who rises from his [Prayer](/Prayer) a better man, his [Prayer](/Prayer) has been granted.
 
 To change the present state we, like Dr. Millikan, must rise to a higher level of consciousness. This rise is accomplished by affirming that we are already that which we want to be; by assuming the feeling of the wish fulfilled. The drama of life is a psychological one which we bring to pass by our attitudes rather than by our acts. There is no escape from our present predicament except by a radical psychological transformation. Everything depends upon our attitude towards ourselves. That which we will not affirm as true of ourselves will not develop in our lives.
 
@@ -34,7 +16,7 @@ It is my belief that all men can, like Dr. Millikan, change the course of their 
 
 A spiritual revival is needed for mankind, but by spiritual revival I mean a true religious attitude, one in which each individual, himself, accepts the challenge of embodying a new and higher value of himself as Dr. Millikan did. A nation can exhibit no greater wisdom in the mass than it generates in its units. For this reason, I have always preached self-help, knowing that if we strive passionately after this kind of self-help, that is, to embody a new and higher concept of ourselves, then all other kinds of help will be at our service.
 
-The ideal we serve and hope to achieve is ready for a new incarnation; but unless we offer it human parentage it is incapable of birth. We must affirm that we are already that which we hope to be and live as though we were, knowing like Dr. Millikan, that our [[Assumption]], though false to the outer world, if persisted in, will harden into fact.
+The ideal we serve and hope to achieve is ready for a new incarnation; but unless we offer it human parentage it is incapable of birth. We must affirm that we are already that which we hope to be and live as though we were, knowing like Dr. Millikan, that our [Assumption](/Assumption), though false to the outer world, if persisted in, will harden into fact.
 
 The perfect man judges not after appearances; he judges righteously. He sees himself and others as he desires himself and them to be. He hears what he wants to hear. He sees and hears only the good. He knows the truth, and the truth sets him free and leads him to good. The truth shall set all mankind free. This is our spiritual revival. Character is largely the result of the direction and persistence of voluntary attention.
 

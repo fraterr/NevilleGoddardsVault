@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christ In You
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Testing the Christ Within You, The Power of Imagination and Abiding in States, Awakening to Fearlessness and Christ's Promises, The True Nature of Redemption and Power of Imagination, Tuning Your Imagination and Fine-Tuning Your Thoughts, Dreams as Symbols and the Power Within, Becoming Stewards of the Mystery and Embracing the Silence, Becoming Stewards of the Mystery and Embracing the Silence]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"Examine yourselves to see if you are holding to your faith. Test yourselves! Do you not realize that Jesus Christ is in you?"* Now, faith is not complete until through experiment it becomes experience! When you test the Christ in you and prove from experience that it works, then you have the faith. But first you must find who Christ is, where he is, and what he is. You are not called upon to test a tradition of man as something on the outside, but Jesus Christ who is in you!  
   
 Perhaps you heard on the news tonight that the Catholics have just eliminated forty saints. For hundreds of years millions of people have prayed to Saint Christopher, yet now they are being told that he never existed. How many St. Christopher medals and figurines were sold to protect those who went into battle or traveled afar? Believing he was the saint of the traveler, how many put their faith in him? Santa Barbara was named after Saint Barb, who is now believed to be non-existent, yet the cause of the recent broken oil line!  
@@ -60,13 +46,13 @@ As love, you will exercise your almighty power in the world to come. To have tha
   
 Tonight learn to fine-tune your imagination. Knowing the voice of your friend, tune him in. Determine the words you want him to say and listen carefully. Tune him in until his words are fine and clear, then believe you heard him. Think it really happened. If you will, it will come to pass. When, I cannot say, for every imaginal act is like an egg and no two eggs (unless they are of the same species) have the same interval of time for hatching. The little bird comes out in three weeks, a sheep in five months, a horse in twelve months, and a human in nine months. Your imaginal act has its own appointed hour to ripen and flower. If it seems long, wait - for it is sure and will not be late for itself.  
   
-An imaginal act is a creative act, for the moment it is felt, the seed (or state) is fertilized. It will take a certain length of time to be born, so start today by assuming you are the man (or woman) you would like to be and let the people in your mind’s eye reflect the truth of your [[Assumption]]. Be faithful to your [[Assumption]]. Persist in this thought, for persistence is the way to bring your desire to pass. You don’t persist through effort or fear, rather knowing that your imaginal act is now a fact; wait for its birth, for it will come.  
+An imaginal act is a creative act, for the moment it is felt, the seed (or state) is fertilized. It will take a certain length of time to be born, so start today by assuming you are the man (or woman) you would like to be and let the people in your mind’s eye reflect the truth of your [Assumption](/Assumption). Be faithful to your [Assumption](/Assumption). Persist in this thought, for persistence is the way to bring your desire to pass. You don’t persist through effort or fear, rather knowing that your imaginal act is now a fact; wait for its birth, for it will come.  
   
 Now, a friend wrote, saying that in her dream she was walking down the street holding a fish in her hands. The fish appeared to be dead, yet she could feel it pulse. Determine to keep the fish alive, she found a cup, filled it with water, and placed the fish inside. Then she awoke, hearing a male voice say: *"Oh my darling."*  
   
 Every dream contains within itself the capacity for symbolic significance. A fish is the symbol of the power of the human imagination. Imagine yourself depressed, and imagination will throw you into the pit of depression. Imagine yourself free, and your imaginative power will bring you out, for your imagination is the savior of your world. When you become lost in the reasoning world, your imagination is not fed with your desire, for reason negates its flow. Christ, being your human imagination, is not limited by the reasoning world and all things are possible to him. If you would ignore the facts and walk in your imaginal acts as though your wish were already fulfilled you are feeding Christ, and he becomes alive within you once more. Her dream, created by her own being who is Christ in her, was telling her she is neglecting herself. Knowing what to do is not enough. Knowledge must be acted upon. It is so easy to accept the Christian faith and use it only as a substitute for action, and so difficult to live by it; but only as you live by your imagination can you ever know who you really are.  
   
-I had a similar experience as this lady’s, but mine was in another form of the symbol of Christ, which is the pig. One night I found myself in a nursery filled with everything that grows. As I started to leave I looked down to find a little runt of a pig at my feet. Picking him up, I placed him on a table, broke off some branches of a nearby tree to cushion him, and began to search for food to feed him. Then, as happens in [[Dreams]], the scene shifted. I am now in a vegetable market with the pig at my side. He has grown in stature but is very thin. Suddenly I realized that he was mine, so I turned to my little daughter Vicki and said: *"Go get me some food that I may feed my pig."* She replied: *"Daddy, I don’t have any money."* Then I said: *"You don’t need money here, for all of this belongs to us."* Going over to a stand of crackers, piled in the form of a pyramid, Vicki took a box from the base, causing the entire pyramid to come tumbling down.   
+I had a similar experience as this lady’s, but mine was in another form of the symbol of Christ, which is the pig. One night I found myself in a nursery filled with everything that grows. As I started to leave I looked down to find a little runt of a pig at my feet. Picking him up, I placed him on a table, broke off some branches of a nearby tree to cushion him, and began to search for food to feed him. Then, as happens in [Dreams](/Dreams), the scene shifted. I am now in a vegetable market with the pig at my side. He has grown in stature but is very thin. Suddenly I realized that he was mine, so I turned to my little daughter Vicki and said: *"Go get me some food that I may feed my pig."* She replied: *"Daddy, I don’t have any money."* Then I said: *"You don’t need money here, for all of this belongs to us."* Going over to a stand of crackers, piled in the form of a pyramid, Vicki took a box from the base, causing the entire pyramid to come tumbling down.   
   
 Opening the box, I began to feed my pig when my brother Victor came by and, taking what appeared to be white, creamy grease, he spread it on my crackers saying: *"This will give it sustenance."* Suddenly a lit candle appeared within the mixture and I said: *"The candle is lit and it must never go out again."* Then these words from scripture came to me: *"His candle is lit upon my forehead and by this light I walk through darkness, for the spirit of man is the candle of the Lord."*   
   
@@ -109,8 +95,8 @@ Now let us go into the silence.
 - Tune in the voice of your friend who would rejoice in your desire fulfilled.
 - Believe in the reality of your imaginal act and persist in its fulfillment.
 
-###  [[Dreams]] as Symbols and the Power Within
-- [[Dreams]] contain symbolic significance.
+###  [Dreams](/Dreams) as Symbols and the Power Within
+- [Dreams](/Dreams) contain symbolic significance.
 - The fish and pig are symbols of the power of imagination and Christ.
 - Feed and exercise your imagination daily to fully realize your power.
 

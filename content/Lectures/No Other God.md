@@ -1,22 +1,8 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: No Other God
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Testing Yourself, The Name of God, Symbolism of the Pig, The Tree of Life, The Only God, Unveiling Yourself, Scripture and Experience]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 A god sent into the fires of experience is the only God upon whom to rely!
 
-Paul knew this truth and urged the Corinthians to 'Examine yourselves. Test yourselves whether you are holding to the faith. Do you not realize that Jesus Christ is in you? Unless, of course you fail to meet the test.' Speaking of the Lord Jesus Christ as being in you, Paul invites everyone to test him. How would you go about testing yourself? By determining your desire and believing you have received it! In the 12th chapter of Mark, Jesus is made to say: 'Whatever you desire, believe you have received it and you will.' Now, here is a condition placed upon you. You must believe! You must dare to assume you are what you want to be and believe in that [[Assumption]]! Then, if Jesus has not lied to you, your [[Assumption]] will harden into fact!
+Paul knew this truth and urged the Corinthians to 'Examine yourselves. Test yourselves whether you are holding to the faith. Do you not realize that Jesus Christ is in you? Unless, of course you fail to meet the test.' Speaking of the Lord Jesus Christ as being in you, Paul invites everyone to test him. How would you go about testing yourself? By determining your desire and believing you have received it! In the 12th chapter of Mark, Jesus is made to say: 'Whatever you desire, believe you have received it and you will.' Now, here is a condition placed upon you. You must believe! You must dare to assume you are what you want to be and believe in that [Assumption](/Assumption)! Then, if Jesus has not lied to you, your [Assumption](/Assumption) will harden into fact!
 
-Now, when you test Him, you, too must be faithful to the test. You have tested Him by giving Him a new model of yourself (or another) and he can't be changing models every few minutes and produce anything but confusion! So you must assume the feeling of being the man (or woman) you want to be and having assumed it, you must remain faithful to that [[Assumption]] so that he may have one mode from which to work. Then he can objectify it in your world. It is entirely up to you. I urge you to test him and when you find him faithful to his claim, you will have found the only God worthy of your attention!
+Now, when you test Him, you, too must be faithful to the test. You have tested Him by giving Him a new model of yourself (or another) and he can't be changing models every few minutes and produce anything but confusion! So you must assume the feeling of being the man (or woman) you want to be and having assumed it, you must remain faithful to that [Assumption](/Assumption) so that he may have one mode from which to work. Then he can objectify it in your world. It is entirely up to you. I urge you to test him and when you find him faithful to his claim, you will have found the only God worthy of your attention!
 
 Moses was told by God that when he went to the people of Israel and they asked: 'What is his name?' Moses was to say: 'I am.' He was to tell everyone that no other being has sent you, just I am. Then God continued, saying: 'I have made myself known unto Abraham, Isaac, and Jacob by my name 'God Almighty,' but by my name 'the Lord' I did not make myself known unto them.' The name 'Lord' was known but not understood. You have heard it time and again: 'I am the Lord, the Holy One of Israel, your Savior and besides me there is no savior,' but do you understand it? We have all heard the great confession of faith as recorded in the Book of Deuteronomy: 'Hear O Israel, the Lord our God, the Lord is One,' but it is not understood.
 
@@ -86,7 +72,7 @@ Now let us go into the silence.
 
 - Paul urged the Corinthians to examine and test themselves, believing that Jesus Christ is in them.
 - To test oneself, one must determine their desire and believe that they have already received it.
-- By assuming the feeling of being the person one wants to be and remaining faithful to that [[Assumption]], one allows Jesus to objectify it in their world.
+- By assuming the feeling of being the person one wants to be and remaining faithful to that [Assumption](/Assumption), one allows Jesus to objectify it in their world.
 
 ### The Name of God
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Eternity Within
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Mystery of Eternity Within, Vanity of Vanities, The Disputed Verse, The Power of Assumption, The Revelation of God's Son, The Journey to Redemption]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is a mystery to be known only by revelation. It is a secret that has been kept hidden from the beginning of time. Where there is no mystery, where there is no end from the beginning there is no challenge, no place for imagination or any room for faith or hope. But when it pleased God, in the fullness of time, to make it known to his apostles, those whom he called and incorporated into his own Risen body, they are sent to tell the story of the gospel of God.  
   
 The subject I have chosen for tonight is taken from the book of Ecclesiastes. I have so many commentaries on this book at home, so many written interpretations by our Biblical scholars and they are so widely separated in their opinions, yet without this, the most disputed verse in the entire book, that I have chosen tonight, everyone in this world should despair.  
@@ -20,11 +6,11 @@ The book starts with the statement, 'Vanity of vanities! All is vanity. There is
   
 But there is one little verse in the third chapter of Ecclesiastes that is the most disputed of the entire book. Here is the verse. 'He has made everything perfect in its time. He has put eternity into man's mind, yet so that man cannot find out what God has done from the beginning to the end.' The interpretation of this verse is determined by the meaning that the scholar gives to the word 'eternity'. I haven't read one interpretation where they went deep enough. The word is translated 'eternity' in the Revised Standard Version, which I have quoted. It is translated as 'the world' in the King James Version, but if you go back to the root of the word 'olam' you will discover it means 'a lad; a young man, a stripling, a youth.' This makes no sense to the average person and the scholar would ignore it completely.  
   
-You could come to the conclusion that all things are in the human imagination and that the imagination is capable of containing the imagining of space. Your [[Dreams]] reveal that to you, for when you awake where did they happen? I have seen the stars, the moon and the sun in my [[Dreams]]. The modern wise men would tell me it was just a dream and all in my imagination, but I have seen people just as clear as I am seeing you now and we converse all in my imagination, so I will go along with the modern wise men in that respect. But when I awake and things seem to be objective and independent of my imagination, was the other unreal? Not according to the book of Ecclesiastes. It is telling you that everything is in your imagination, that your imagination is forever manifesting itself in the imaginations of men.  
+You could come to the conclusion that all things are in the human imagination and that the imagination is capable of containing the imagining of space. Your [Dreams](/Dreams) reveal that to you, for when you awake where did they happen? I have seen the stars, the moon and the sun in my [Dreams](/Dreams). The modern wise men would tell me it was just a dream and all in my imagination, but I have seen people just as clear as I am seeing you now and we converse all in my imagination, so I will go along with the modern wise men in that respect. But when I awake and things seem to be objective and independent of my imagination, was the other unreal? Not according to the book of Ecclesiastes. It is telling you that everything is in your imagination, that your imagination is forever manifesting itself in the imaginations of men.  
   
-This I do know. By simply assuming I am the man I would like to be and mentally acting in harmony with my [[Assumption]], I have aided the birth of my desires and brought them to pass. I have played the game of [[Assumption]] time and time again and it has never failed me. When someone asks something of me I simply assume they have what they want, then whatever needs to take place in this world will take place and bring it to pass, but where did the desires' fulfillment originate but in my imagination? But if there is no escape from a world of recurrence, what would it matter if you could perform miracles, be worshiped by all and possess the world if, in the end you would say, 'Vanity of vanities, all is vanity'.  
+This I do know. By simply assuming I am the man I would like to be and mentally acting in harmony with my [Assumption](/Assumption), I have aided the birth of my desires and brought them to pass. I have played the game of [Assumption](/Assumption) time and time again and it has never failed me. When someone asks something of me I simply assume they have what they want, then whatever needs to take place in this world will take place and bring it to pass, but where did the desires' fulfillment originate but in my imagination? But if there is no escape from a world of recurrence, what would it matter if you could perform miracles, be worshiped by all and possess the world if, in the end you would say, 'Vanity of vanities, all is vanity'.  
   
-But Koheleth, the preacher, meant something far deeper than that. It is marvelous to know that the whole drama of life is taking place in your imagination. That you have the choice of life and death, good and evil, blessings and cursings; that you can by [[Assumption]] have a rich and wonderful life where everything is a blessing. But, if in the end when you close your eyes for the last time you realize it was all vanity, would you not question what did it matter? That is what Koheleth is summing up. He is telling us that there is something greater and to wait for the fullness of time. When? No one knows, not even the Son, only the Father. But in the fullness of time that which was placed in the mind of man will be revealed.  
+But Koheleth, the preacher, meant something far deeper than that. It is marvelous to know that the whole drama of life is taking place in your imagination. That you have the choice of life and death, good and evil, blessings and cursings; that you can by [Assumption](/Assumption) have a rich and wonderful life where everything is a blessing. But, if in the end when you close your eyes for the last time you realize it was all vanity, would you not question what did it matter? That is what Koheleth is summing up. He is telling us that there is something greater and to wait for the fullness of time. When? No one knows, not even the Son, only the Father. But in the fullness of time that which was placed in the mind of man will be revealed.  
   
 Now let me repeat it. 'He put eternity into man's mind yet so that man cannot find out what God has done from the beginning to the end.' That which God put into the mind of man is a lad, an eternal youth who is his only begotten Son. Now let me unfold it for you, for I speak from experience. I am not theorizing or speculating. I am telling you what I know from experience. And the truth that one knows from experience, he knows more thoroughly than he knows anything else in this world, or that he can know that same truth in any other way. I share with you, this night, the truth that I know from experience. One day you will experience it, but tonight you will hear it through the secondary revelation of the ear, for I will tell you what I have experienced concerning this wonderful eleventh verse of the third chapter of Ecclesiastes.  
   
@@ -78,7 +64,7 @@ The Old Testament ends on this note, 'A son honors his father. If I am a father,
   
 Tonight I have told you who you really are, and although it is all vanity, you can be anything you want to be, generically. You can be a sinner or a saint, for you are passing through a fabulous world of opposites and as Blake said, 'I do not consider the just or the wicked to be in a supreme state, but to be everyone of them in states of the sleep which the soul may fall into in his deadly dream of good and evil when he left paradise following the serpent.'  
   
-So until the end we are asleep, dreaming strange [[Dreams]]. We dream we are in prison and we dream that we are free. We dream we have money and we dream we are poor, and whatever we identify ourselves with, we externalize. So I can't deny the preacher's statement, but that one verse gives the hope, for without that verse what would it matter tonight if there was no hope, no nothing. The intellectual mind cannot understand what God put in the mind of man, but I have told you what it is. You will never know that you are Jesus until his Son explodes within you and calls you Father. Then by implication you know who you are. It's still the same name. The self that is raised and the self that is called Father does not differ from the self that you were before, only now you include a far greater self who is none other than God the Father.  
+So until the end we are asleep, dreaming strange [Dreams](/Dreams). We dream we are in prison and we dream that we are free. We dream we have money and we dream we are poor, and whatever we identify ourselves with, we externalize. So I can't deny the preacher's statement, but that one verse gives the hope, for without that verse what would it matter tonight if there was no hope, no nothing. The intellectual mind cannot understand what God put in the mind of man, but I have told you what it is. You will never know that you are Jesus until his Son explodes within you and calls you Father. Then by implication you know who you are. It's still the same name. The self that is raised and the self that is called Father does not differ from the self that you were before, only now you include a far greater self who is none other than God the Father.  
   
   
 Now let us go into the silence.  
@@ -112,13 +98,13 @@ Good night.
 - The interpretation of this verse depends on the meaning of the word "eternity."
 - Most translations render it as "eternity," but the original Hebrew word, "olam," means "a lad" or "a youth."
 - The average person may find this interpretation confusing, but the truth is that everything exists in the human imagination.
-- [[Dreams]] are proof of the imagination's ability to contain images of space and other people.
+- [Dreams](/Dreams) are proof of the imagination's ability to contain images of space and other people.
 - The book of Ecclesiastes suggests that everything is a manifestation of the imagination in the minds of men.
 - 
-### The Power of [[Assumption]]
+### The Power of [Assumption](/Assumption)
 
-- By assuming the identity of the person we want to be and acting in accordance with that [[Assumption]], we can bring our desires and [[Dreams]] into reality.
-- This technique has consistently proven successful for the speaker, as he has played the game of [[Assumption]] and seen his desires manifest.
+- By assuming the identity of the person we want to be and acting in accordance with that [Assumption](/Assumption), we can bring our desires and [Dreams](/Dreams) into reality.
+- This technique has consistently proven successful for the speaker, as he has played the game of [Assumption](/Assumption) and seen his desires manifest.
 - However, if there is no escape from a world of recurrence, achieving worldly success and possessing everything would be ultimately vain.
 - But the deeper message of Koheleth, the preacher in Ecclesiastes, is that the entire drama of life takes place in our imagination.
 - We have the choice to experience life as a blessing and to wait for the fullness of time when what is hidden in our minds will be revealed.

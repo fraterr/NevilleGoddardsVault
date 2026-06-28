@@ -1,21 +1,3 @@
----
-book:
-chapter: Truth
-keywords: []
-bible_ref:
-tags: lecture
-topics:
-  - Truth and Love
-  - Inner Truth
-  - Uncovering Higher Truth
-  - Mirroring Our Consciousness
-  - Building Our Reality
-  - Liberating Truth
-banner: Handles/img/banner radio lectures.png
-sticker: emoji//1f4e3
-radio_lecture: yes
-dg-publish: true
----
 I wish to ask each one of you listening to me today a question – a question which must be close to the hearts of us all concerning truth. If a man known to you as a murderer broke into your home and asked the whereabouts of your mother, would you tell him where she was? Would you tell him the truth? Would you? I venture not – I hope not. In the most mystical of the Gospels – in the Gospel of St. John we read, *"Ye shall know the truth, and the truth shall make you free."* Therein lies a challenge to us all, *"The truth shall make you free."* If you told the truth concerning your mother, would you set her free? Again, in John we read, *"Sanctify them by the truth."* If you gave your mother up to a murderer, would you *"sanctify her?"* What, then, is the truth of which the Bible so constantly speaks? The truth of the Bible is always coupled with love. The truth of the Bible is that spiritual realization of conscious life in God towards which the human soul evolves through all eternity.
 
 Truth is an ever-increasing illumination. No one who seeks sincerely for truth need fear the outcome for every raising erstwhile truth brings into view some larger truth which it had hidden. The true seeker after truth is not a smug, critical, holier than thou person. Rather, the true seeker after truth knows the words of Zechariah to be true. *"Speak ye every man the truth to his neighbor and let none of you imagine evil in your hearts against his neighbor."* The seeker after truth does not judge from appearances – he sees the good, the truth in all he observes. He knows that a true judgment need not conform to the external reality to which it relates. Never are we so blind to the truth as when we see things as they seem to be. Only pictures that idealize really depict the truth. It is never superior insight but rather, purblindness that reads into the greatness of another some littleness with which it happens to be familiar.

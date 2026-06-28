@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: An Inner Conviction
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Imagination creates reality, The vision has its own appointed hour, The truth of any concept is known by the feeling of certainty, Every desire has its own appointed time, The passage of time and fulfillment of scripture, Prophesying and inner conviction, The doubling of a dream and scripture, The thirtieth year and visions of God, Trust your inner feeling and imagination, The fulfillment of desires and God's law, The concept of time in eternity, The concept of time in eternity]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 I tell you that imagination creates reality and I ask you to imagine a state, any state, which would imply the fulfillment of your desire. It doesn’t really matter what anyone else thinks; it’s what you think that matters to you! If you create a scene which implies the fulfillment of your desire and dwell in it until you have an inner conviction that it is real, what does it matter what another thinks?  
   
 In the Book of Habakkuk (which means *"to embrace"*) the prophet speaks to the Lord as: *"Thou who art of purer eyes than to behold evil."* Then he asks the question: *"Why are you silent when the wicked swallows up the righteous? I will take my stand upon the watchtower, to see and hear what people say to me and what I will answer."* Now the Lord speaks, saying: *"Write the vision plain upon the tablets so that he who runs may read it. For the vision has its own appointed hour; it ripens and it will flower. If it be long, then wait, for it is sure and it will not be late."*  
@@ -32,7 +18,7 @@ In the 12th chapter of Exodus, thirty years has been added to the four hundred, 
   
 My friend, Benny, does not remember the embrace, but I remember it well. It was in 1929. I was fully aware of the embrace, just as I was fully aware of its fulfillment in 1959, so I can tell anyone from my own experience how it happens, but I can’t tell you when if you cannot remember the embrace. Only after impregnation can I prophesy as to what, and when these things will come into being.  
   
-But I do know that God’s law reflects all the way down to this world of Caesar. I do not know how long it takes for each egg to hatch in a nest, but I do know each one will hatch in its own time. And so it is with an [[Assumption]]. If I desire to be wealthy, I may not know how long it will take me to reach the conviction that I possess great wealth, but when I feel wealth is mine I have conceived. Conception is my end. The length of time between my desire and its conception depends entirely upon my inner conviction that it is done. A horse takes twelve months, a cow nine months, a chicken twenty-one days, so there are intervals of time; but it comes down to the simple fact that the truth concerning every concept is known by the feeling of its certainty. When you know it, not a thing can disturb your knowingness!  
+But I do know that God’s law reflects all the way down to this world of Caesar. I do not know how long it takes for each egg to hatch in a nest, but I do know each one will hatch in its own time. And so it is with an [Assumption](/Assumption). If I desire to be wealthy, I may not know how long it will take me to reach the conviction that I possess great wealth, but when I feel wealth is mine I have conceived. Conception is my end. The length of time between my desire and its conception depends entirely upon my inner conviction that it is done. A horse takes twelve months, a cow nine months, a chicken twenty-one days, so there are intervals of time; but it comes down to the simple fact that the truth concerning every concept is known by the feeling of its certainty. When you know it, not a thing can disturb your knowingness!  
   
 In my own case, as I felt the gangplank under my feet and the salt mist on the rail of the ship in Barbados, the phone rang and passage was mine. There have been other times when it has taken longer. Unfortunately we do not keep an account to see how long it takes to come about after we have done it. But a concept is an egg and remains so until occupied. Occupy your desire! Feel its certainty and you can prophesy its fulfillment.  
   
@@ -58,7 +44,7 @@ Now the Book of Ezekiel begins: *"In the thirtieth year the heavens opened and I
   
 God the sender and Man the sent are one. Falling in love with the one he sent, God impregnates him. He plants his seed, which takes thirty years to germinate and [is] his mission to start. This experience comes to Man after he has borne his cross in this wilderness world for thousands of years. In spite of the horrible things that take place in the world, when the individual is called and embraced, what does it matter what he has to go through before he awakens? In a short period of only 30 years he will be born into an entirely different age, for during that time he is taken out of this age and placed in that age, the age of the kingdom of heaven.  
   
-Now, because you know this concept, don’t feel that you are better than someone else, you are creative power. Stand upon your tower and watch to see what God will say and how you will answer. Do this by assuming you are the person you want to be and seeing what you would see if your [[Assumption]] was real. Remain there until you feel its certainty, until you reach the point of satisfaction, until you are convinced of its truth; and although the world may collapse around you, you will become that which you have assumed you are.  
+Now, because you know this concept, don’t feel that you are better than someone else, you are creative power. Stand upon your tower and watch to see what God will say and how you will answer. Do this by assuming you are the person you want to be and seeing what you would see if your [Assumption](/Assumption) was real. Remain there until you feel its certainty, until you reach the point of satisfaction, until you are convinced of its truth; and although the world may collapse around you, you will become that which you have assumed you are.  
   
 In the 21st chapter of the Book of John it is said that if all things were told concerning Jesus Christ, the world itself could not contain the books; so do not think that because I have not had your experience, that it is not true - but do not try to force me into accepting it. Believe what you choose and go your way this night. My pattern has followed scripture completely, from the embrace to the descent of the dove, but I am not saying it is the only way.  
   

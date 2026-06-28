@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Art Of Dying
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [Belief in the Power of Imagination, The Mystical Meaning of the Death of Moses, The Art of Dying, The Awakening and Transformation of Man, The Power of Imagination, The Power of Revision, The Power of Revision]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 If you are with us for the first time, this is what we believe and teach here. We firmly believe that you, the individual, can realize your every dream, and the reason is that God and man are one. We believe that the difference is not in the mentality with which we operate, but only in the degrees of intensity of the operant power itself, and that we call human Imagination.
 
 Keats said: *"You can take any one great and spiritual passage and it will serve as a starting point to lead you to the two-and-thirty palaces."* Take this simple one in Paul's letters to the Corinthians: *"I die daily,"* or Blake's statement in his letter to Crab Robinson: *"Death is the best thing in life. There is nothing in life like death, but people take such a long time in dying. At least, their neighbors never see them rise from the grave."* If you understood Blake you would not think of death as the world thinks of death, but you would see that no one can grow without outgrowing. But man is not willing to outgrow, [and] yet he wants other things than those he has. But if you remain in one state, you will forever have to suffer the consequences of not being in another state. (From the *"Hermetica"*) If I remain in the state of poverty, I must suffer the consequences of not being in the state of wealth. So I must learn the art of dying. Paul says: *"I die daily."* Blake says: *"People take such a long time in dying."* Man does not outgrow his state of ill health or his old job or his environment. We must learn the art of dying, and this week is the great death and we are told that God dies that man may live.
@@ -32,7 +18,7 @@ Blake looks on all states as permanent, as in his great poem regarding the Halls
 
 You take a friend who is not well or cannot set himself free from some state. You represent that friend to yourself as he should be seen by the whole world, and to the degree that you are faithful to that representation, to that degree you will bring him out of the old state. It does not matter if he knows you did it or not; he does not have to know. But remain faithful and you will bring him out of the old state into the new state that you are seeing. All things are burned up when we cease to behold them. Moses could see the promised land but he could not go into it. If I am true to the likeness of what I behold, then I - the *"old"* man - cannot go into the new state. Something called the power goes into it, but [no one] recognizes it, for they cannot recognize the transformed being.
 
-We all feel so secure in recurrence. If we know that a thing is fixed and that next week things will be as they are today, I feel secure in that recurrence. I can have done something that violates the moral codes, I can have come from the wrong side of the tracks, but I can accept that, for I am used to it. But to say that something awakes in me and can become what it will - that is frightening to man. So we are told to awake out of sleep, for recurrence brings security to the whole vast world. One does what he does as if he did it in a nightmare. For God had to *"forget"* he was God to become man, and that whittling down to this level is [the] very limit of contraction, But then comes the awakening from that deep dream into which he threw himself to make me alive. So this lifting-up power goes about setting men free, for God became every man, that every man may in time awaken as God. Eventually the whole [world] will awaken and the poem will be in full bloom and it will be noble beyond our wildest [[Dreams]]. And then it will exist for us and we will be one with the creator of the great poem. That is [the] art of dying.
+We all feel so secure in recurrence. If we know that a thing is fixed and that next week things will be as they are today, I feel secure in that recurrence. I can have done something that violates the moral codes, I can have come from the wrong side of the tracks, but I can accept that, for I am used to it. But to say that something awakes in me and can become what it will - that is frightening to man. So we are told to awake out of sleep, for recurrence brings security to the whole vast world. One does what he does as if he did it in a nightmare. For God had to *"forget"* he was God to become man, and that whittling down to this level is [the] very limit of contraction, But then comes the awakening from that deep dream into which he threw himself to make me alive. So this lifting-up power goes about setting men free, for God became every man, that every man may in time awaken as God. Eventually the whole [world] will awaken and the poem will be in full bloom and it will be noble beyond our wildest [Dreams](/Dreams). And then it will exist for us and we will be one with the creator of the great poem. That is [the] art of dying.
 
 Next Sunday is the great drama. I am riding a beast and I am at the crossroads. *"Bring me a colt on which no man ever sat, that is tied by the road where two ways meet."* Here is state I have never ridden before. It is so unnatural to feel myself to be the man I want to be and to actually get into that state and ride it without being thrown by reason, which tells me I am mad. But if you know the Lord is your Imagination, you can ride it into Jerusalem. We [are] told [we] will find the animal at a crossroads where two roads meet. We are always at a crossroads of what I am and what I want to be. So, can I ride the beast I find at the crossroads and ride it into Jerusalem? Then I am going toward *"heaven,"* but it is not continuous on my line of motion. It is contiguous. It is adjacent to where I am, for heaven is a state of consciousness. I try to catch the feeling that would be mine if [I were] the man I [want] to be, but that involves a death. I must abandon myself to my dream as if it were true, and - living in it - I lift it up and make it real. Everyone must pass through this state, for this is the only true religion in the world. Religion, like charity, begins at home, with one's self. The mother seed of all religious beliefs lies in the mystical experiences of the individual. All ceremonies are but secondary growths superimposed upon it.
 
@@ -55,7 +41,7 @@ Now let us go into the silence.
 ## Summary
 
 ### Belief in the Power of Imagination
-- The belief that individuals can realize their [[Dreams]] because God and man are one.
+- The belief that individuals can realize their [Dreams](/Dreams) because God and man are one.
 - The difference between individuals lies in the intensity of their Imagination.
 - The importance of outgrowing one's current state and learning the art of dying.
 
@@ -79,15 +65,15 @@ Now let us go into the silence.
 - The role of man in creating and bringing desires into reality.
 - The idea that nothing blesses a man unless it takes on flesh through the individual's creative power.
 
-### The Power of [[Revision]]
+### The Power of [Revision](/Revision)
 - The belief that facts can be changed and the ability to revise the past.
-- An example of "unburning" a burned hand through mental [[Revision]].
+- An example of "unburning" a burned hand through mental [Revision](/Revision).
 
 dual's creative power.
 
-### The Power of [[Revision]]
+### The Power of [Revision](/Revision)
 - The belief that facts can be changed and the ability to revise the past.
-- An example of "unburning" a burned hand through mental [[Revision]].
+- An example of "unburning" a burned hand through mental [Revision](/Revision).
 
 sion.
 

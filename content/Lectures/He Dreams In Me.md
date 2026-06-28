@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: He Dreams In Me
-keywords: [Sabbath, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination, Personal Experiences, Awakening and Reality, The Purpose of Life, The Oneness of God and Imagination, The Power of Imagination and Perception, Conclusion, Finding God Within]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Old Testament calls upon God to awake, saying: "Rouse thyself! Why sleepest thou, O Lord? Awake! Do not cast us off forever! Having hurled Himself into time/space, God is dreaming he is man and sees Himself as enslaved and cast off.   
   
 But in the New Testament, God succeeds in awakening in man, and in the Book of Ephesians calls upon man to *"Awake and rise from the dead and Christ will give you life."* Tonight I will take the two and try to show you who this presence really is. Your own wonderful human imagination is God. It is your imagination who is calling upon you to awake, for you are all imagination and God is you and you in Him. Your external body is the imagination, and that is God Himself.   
@@ -42,7 +28,7 @@ Listen to these words: *"Among you stands one whom you do not know."* The word t
   
 We suffer because we are sharing in creation's cruel dream. In the beginning as the gods in scripture, we agreed to do it. As the Elohim we came down into the world of death by entering death's door, the human skull. Laying yourself down in the grave of man, you took upon yourself all of his limitations and weaknesses, and - although you will die from this section of time - there is no final death. You and I are heirs to the universe, destined to join that one being that is called the Lord.   
   
-There is not a thing you can imagine but what already is. Eternity exists. When you imagine, you claim that which already exits by identifying yourself with the state you desire to dream into objective reality. Just as the lady slipped into a section of her past and relived it as though it happened for the first time, you can slip into any section of time and live an event you desire to externalize here. We are dreaming the dream of life until we awake. So I say, advisedly: God - your own wonderful human imagination - [[Dreams]] in you.   
+There is not a thing you can imagine but what already is. Eternity exists. When you imagine, you claim that which already exits by identifying yourself with the state you desire to dream into objective reality. Just as the lady slipped into a section of her past and relived it as though it happened for the first time, you can slip into any section of time and live an event you desire to externalize here. We are dreaming the dream of life until we awake. So I say, advisedly: God - your own wonderful human imagination - [Dreams](/Dreams) in you.   
   
 The 44th Psalm is a Maskil of the Sons of Korah. The word *"Maskil"* means *"a special, very serious instruction."* The word *"Korah"* means *"one who removes the hair on his head."* (Some of our priesthoods do that today to imply that they have divine instruction which others do not possess.) But the special instruction stated in the 44th Psalm is that which one gives to one's self: *"Rouse thyself! Why sleepest thou, O Lord? Awake! Do not cast us off forever!"*  
   
@@ -85,13 +71,13 @@ Everyone has kept the faith. No one can come down into this world and violate th
 'Tis we who lost in stormy visions  
 Keep with phantoms the unprofitable strife."*  
   
-God [[Dreams]] in you and you can test him any time if you are alert, for He steals into your conscious mind least disguised in the form of creative fancy. Sit down and think of a friend and watch this wonderful, moving being create mental images of him. The God of the universe is one with your wonderful human imagination.   
+God [Dreams](/Dreams) in you and you can test him any time if you are alert, for He steals into your conscious mind least disguised in the form of creative fancy. Sit down and think of a friend and watch this wonderful, moving being create mental images of him. The God of the universe is one with your wonderful human imagination.   
   
 He works in your depth, underlying all of your faculties, including perception. Then suddenly you find him moving in a serpentine manner in the form of creative fancy. When you think of someone you can catch Him; and then you will discover who God really is, for He is all within you.   
   
 Tonight take a mere wish and see it in your mind's eye as fulfilled. Contemplate it. Merge and lose yourself completely in it. Allow your wish to take on objectivity, all the various tones of reality, so that it seems now to be the only reality. Then break it and return once more to merge in this section of your dream, and reflect upon that which was so real only a moment before. Do that and no power on earth or in the universe can stop that which you have imagined from objectification.   
   
-Simply rest in confidence that it will be objectified, and keep the [[Sabbath]]. The [[Sabbath]] is simply that moment when you do not make any effort to make it so, because you know it is already so! Do not labor to add to it or take from it. It is going to happen just as you judged it as good and very good.   
+Simply rest in confidence that it will be objectified, and keep the [Sabbath](/Sabbath). The [Sabbath](/Sabbath) is simply that moment when you do not make any effort to make it so, because you know it is already so! Do not labor to add to it or take from it. It is going to happen just as you judged it as good and very good.   
   
 You try it. If all things were made by God, and without Him was not anything made that was made, and you imagined and it came to pass - then you must come to the conclusion that what is done grows from what is finished. In the beginning it was only a wish, but in the end it became a fact. So what is done grows from what is finished.   
   
@@ -99,7 +85,7 @@ The creative power of the universe stems from imagination - the real man - for m
   
 As the Elohim we were brothers, not strangers, but - as the parable tells us - not all left our heavenly home. We ventured forth, agreeing to dream in concert or we wouldn't be here; and failure is inconceivable, for the end is simply to awaken from the eternal dream of life.   
   
-We have suffered because we are sharers in creation's cruel dream. The story is told us in the Book of Job. Everyone plays the part of Job. It's a crude experiment, but the end is so glorious that one forgets the pain, as told us in the 8th chapter of the Book of Romans: *"I consider the sufferings of this present time not worth comparing to the glory to be revealed in me."* We all share in the suffering, because we are dreaming in concert, dreaming the most cruel [[Dreams]]; but it takes all to awaken, and in the awakening we are greater than we were prior to the beginning of the dream.   
+We have suffered because we are sharers in creation's cruel dream. The story is told us in the Book of Job. Everyone plays the part of Job. It's a crude experiment, but the end is so glorious that one forgets the pain, as told us in the 8th chapter of the Book of Romans: *"I consider the sufferings of this present time not worth comparing to the glory to be revealed in me."* We all share in the suffering, because we are dreaming in concert, dreaming the most cruel [Dreams](/Dreams); but it takes all to awaken, and in the awakening we are greater than we were prior to the beginning of the dream.   
   
 I know people see an absolute God but if God could not 
 

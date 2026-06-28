@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Birth Of The Babe
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Bible and its relevance in the atomic age, A personal experience with the birth of the Babe, Being born from above, The power of imagination and personal experiences, The purpose of humanity and the role of each individual, The eternal process of rebirth and God's presence in all, The unfolding of visions and faith, The certainty of the future birth of the son of God, Symbolism and teaching children]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When I left two months ago I asked you to join in testing with me what I have heard and told you, but now I can say as did Job (42:5) 'I have heard of thee by the hearing of the ear, but now mine eyes seeth thee.' Tonight as I stand here I can say what he said centuries ago. When I left I had heard of this principle and I had proved it but I had not seen it; but now I have seen it so I can stand here and tell you something I could not have told you two months ago.
 
 Here we are in 1959 and we wonder about a book written centuries ago ' the Bible. How can it guide us in an atomic age? We think we are now so wise. There comes one scientific book after another, and each wiser than the previous one, and how can a book written, you might say, by shepherds, be a guide today? Is it true? I know tonight it is more true than anyone knows. The book called the Bible is not what any of the priesthoods of the world think it to be. We say that God is all Imagination and that God and man are one; and we exist in Him and He in us. 'The eternal body of man is all Imagination; that is, God Himself.' (Blake) I told you that and I believed it and I heard it and read it and tried to put it into practice, but now I know that you and I are made of the very substance of God and we are one with Him.
@@ -40,7 +26,7 @@ I know I have done what I was told to do. He formed me from the womb to be his s
 
 You are also worthy of this experience because you are made by God. If you live by faith in things not seen you are preparing the way for the appearance of Jesus Christ in you. If your faith is based on things seen you are not preparing the way, for the Child is not born by the passage of time, but by the faith of the one involved. I hope you have not done anything you must feel too sorry about, but no matter, in the eyes of your Father you are pure.
 
-I had no knowledge of what was taking place. It comes like a thief in the night, it has nothing to do with the good and evil people talk about. Blake says, 'I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep which the Soul may fall into in its deadly [[Dreams]] of Good and Evil when it leaves paradise following the Serpent.' (Great Selfhood.)
+I had no knowledge of what was taking place. It comes like a thief in the night, it has nothing to do with the good and evil people talk about. Blake says, 'I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep which the Soul may fall into in its deadly [Dreams](/Dreams) of Good and Evil when it leaves paradise following the Serpent.' (Great Selfhood.)
 
 Now I know. Night after night the whole experience unfolded to me. I would turn back to the Bible the next day and find things I had never seen before. I have taught the Bible for 25 years, yet now the whole thing is greater, yet it does not deny what I told you, that God and man are one, and all Imagination. God is actually seated here as you are seated here. There is only God. Blake said:
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Secret Of Causation
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Imagination as the Secret of Causation, A Lost Bag and the Power of Imagining, Understanding the Power of Imagination, Transforming a Dream to Reality, The Power of Imaginal Activity, The Significance of Imagination in Scripture, The Knowledge of Self-Revelation, Belief in Imagination and Creating Reality, Changing Thoughts to Change External Reality, The Dream of Reality and the True Being, The Dream of Reality and the True Being]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire; for supreme power, supreme wisdom, and supreme delight, lie in the solution of this great mystery."* Imagination is the Jesus Christ of scripture, and when you solve the great mystery of imagining, you will have found the cause of the phenomena of life. Imagination is called *"Jehovah"* in the Old Testament and *"Jesus"* in the New, but they are one and the same being. Divine Imagination, containing all, reproduces itself in the human imagination; therefore, all things exist in the human imagination. When you solve the problem of imagining, you will have found Jesus Christ, the secret of causation. 
 
 Let me share with you two experiences which came to me this past week. The first lady said: "Returning from a wonderful cruise recently, I checked my baggage at La Guardia Airport, bound for Chicago, where I expected to spend a few days with friends. Arriving in Chicago, I discovered that the bag which contained most of my clothes and all of the presents I had bought for my friends and relatives - as well as a locket I had had made from the engagement and wedding band my late husband had given me - was missing. I immediately reported the loss to the airline, but when I arrived in California there was still no trace of it. 
@@ -24,7 +10,7 @@ I can't thank her enough for sharing this experience with me, that I, in turn, m
 
 This lady's first impulse was to curse the person who stupidly lost the bag. Then, remembering what she had heard, she tried to revise the letter. When that didn't seem natural, she asked herself what she would do if the bag was now in her possession. Assuming it was there, she did everything she would do if it was a physical fact - and six weeks later it was. 
 
-That is what I mean by imagining creating reality, for an [[Assumption]] is faith; and without faith it is impossible to please your own wonderful human imagination. Divine Imagination, containing all, reproduces itself in human imagination; therefore, the human imagination contains all. The world is the human imagination pushed out. Not knowing this, man cheats himself, murders himself, declares war against himself, and does all sorts of evil against himself; but do not let yourself be intimidated by the horror of the world. Leave it alone, for it is only the misuse of the power exercised by sleeping mankind. 
+That is what I mean by imagining creating reality, for an [Assumption](/Assumption) is faith; and without faith it is impossible to please your own wonderful human imagination. Divine Imagination, containing all, reproduces itself in human imagination; therefore, the human imagination contains all. The world is the human imagination pushed out. Not knowing this, man cheats himself, murders himself, declares war against himself, and does all sorts of evil against himself; but do not let yourself be intimidated by the horror of the world. Leave it alone, for it is only the misuse of the power exercised by sleeping mankind. 
 
 Now, another lady shared this experience with me: She found herself in a neighbor's kitchen, filled with men and women dressed as Mennonites. (You all know what the Mennonite look like. Originating in Zurich, Switzerland in the year 1525, they moved into Germany, France, Belgium, and Holland, to finally arrive in this country in the 17th century. Now numbering around 150,000 to 200,000, they continue to dress and live in the same fashion they did when they arrived here 300 years ago. Here is a fixed belief which has perpetuated itself year after year.) 
 
@@ -38,7 +24,7 @@ Suddenly a limousine appeared and men dressed in black and carrying machine guns
 
 Turning to the leader she said: *"You don't want to kill her, you love her and she loves you."* Then turning to the woman she said, *"You love him and he loves you."* Allowing them to obey her will, she stood back and watched, as the man put his gun down and - with outstretched arms - moved to embrace the woman. Turning to go into the kitchen and release the animation there, her alarm caused her to awaken to this level of her dream. 
 
-This world is just as much a dream as that one, but man is sound asleep and does not know that he is dreaming. No one will sentence a man for dreaming he killed another; rather they will try to analyze it for him, and most of our so-called experts on [[Dreams]] are past masters of misinterpretation. They do not realize the great mystery surrounding us. I tell you: the whole vast world is the individual dreamer pushed out, and the conflict is within himself, and not on the outside. 
+This world is just as much a dream as that one, but man is sound asleep and does not know that he is dreaming. No one will sentence a man for dreaming he killed another; rather they will try to analyze it for him, and most of our so-called experts on [Dreams](/Dreams) are past masters of misinterpretation. They do not realize the great mystery surrounding us. I tell you: the whole vast world is the individual dreamer pushed out, and the conflict is within himself, and not on the outside. 
 
 This lady's drama began as something taking place on the outside, and seemingly independent of her perception of it. Then she awoke to an activity within her, which was animating and making alive all that she perceived. Arresting it, everyone became frozen, like statues. She changed their intentions, then watched as they were reanimated once more - but now bewildered, because of the radical change in them which took place in her. 
 
@@ -68,7 +54,7 @@ Mennonites are only expressions of fixations. They haven't changed their outer d
 
 But I say to you: your imagination manifests itself in the imaginations of men. The world is playing its part, because you are imagining every moment in time. Who knows who is treading in the winepress tonight, causing the subtle change in the minds of men. Perhaps he feels wrongfully accused, and is now sitting in jail thinking of getting even with society. That's treading in the winepress. When he can lift his thoughts to the point of vision, the act is committed, and it will manifest itself in the world of man, 
 
-Vision is simply awakening in the dream. Asleep, you seem to be the victim of your [[Dreams]]; but awake, as you are here, you can become discriminating. She awoke in her dream, making it vision. Realizing that it started as a dream - therefore, it must still be a dream - she knew the people were only herself made visible, so she could change them. Placing the thought of love in the mind of the man, he became aware of his radical change of thinking, yet was totally unaware of who produced it. 
+Vision is simply awakening in the dream. Asleep, you seem to be the victim of your [Dreams](/Dreams); but awake, as you are here, you can become discriminating. She awoke in her dream, making it vision. Realizing that it started as a dream - therefore, it must still be a dream - she knew the people were only herself made visible, so she could change them. Placing the thought of love in the mind of the man, he became aware of his radical change of thinking, yet was totally unaware of who produced it. 
 
 Who knows who is producing the changes in the minds of men today, producing war or peace. It could be some woman treading in the winepress; or - as Yeats said - it could be in the mind of some shepherd boy, lighting up his eyes for a moment before he ran upon his way. Dreaming of heroism, of noble battles where he was the hero, that little boy can cause the blood to flow. If you know who you are and how imagination operates, you will learn to control your imaginal activities. If you do not, they will be controlled for you by another, and you will become their victim. 
 

@@ -1,34 +1,3 @@
----
-book: Awakened Imagination
-chapter: Highways of the Inner World
-keywords: []
-bible_ref:
-  - Genesis 25:22-23
-  - Matthew 19:30
-  - John 1:27
-  - 1Corinthians 15:47
-  - 1Corinthians 2:14
-  - Joshua 1:3
-  - Zephaniah 3:17
-tags: book
-topics:
-  - Duality of Man's Nature
-  - Two Outlooks on Reality
-  - The Inner Body
-  - Two Kinds of Movement
-  - Construct Inner Dramas
-  - Imagination Fuses Fancy Into Fact
-  - Application for a Blind Woman
-  - Emotional Continuity
-  - Determinative Principle
-  - Achieve Inner Wakefulness
-  - No Outer Cause
-  - Self-Motivation vs Compulsion
-  - Feeling Inner Movement
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* (Genesis 25:22,23)
 
 DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.

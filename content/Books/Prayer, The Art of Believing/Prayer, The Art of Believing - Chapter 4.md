@@ -1,22 +1,3 @@
----
-book: Prayer, The Art of Believing
-chapter: Controlled Reverie
-keywords:
-  - Prayer
-bible_ref:
-  - Ecclesiastes 10:20
-tags: book
-topics:
-  - Subjective Mind in Hypnosis
-  - Suggestion Governs the Unaware
-  - Establish Rapport and Suggest
-  - Mental Conversation
-  - Fixed Ideas Awaken Vibratory Correlates
-  - Subconscious Control is Dominion
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 EVERYONE is amenable to the same psychological laws which govern the ordinary hypnotic subject.
 
 He is amenable to control by suggestion. In hypnosis, the objective senses are partly or totally suspended. However, no matter how profoundly the objective senses are locked in hypnosis, the subjective faculties are alert, and the subject recognizes everything that goes on around him.
@@ -31,7 +12,7 @@ Therefore Curse not the king, no not in thy thought; and curse not the rich in t
 
 What you sincerely believe as true of another you will awaken within him.
 
-No one need be entranced, in the ordinary manner, to be helped. If the subject is consciously unaware of the suggestion, and if the suggestion is given with conviction and confidently accepted by the operator as true, then you have the ideal setting for a successful [[Prayer]].
+No one need be entranced, in the ordinary manner, to be helped. If the subject is consciously unaware of the suggestion, and if the suggestion is given with conviction and confidently accepted by the operator as true, then you have the ideal setting for a successful [Prayer](/Prayer).
 
 Represent the subject to yourself mentally as though he had already done that which you desire him to do. Mentally speak to him and congratulate him on having done what you want him to do. Mentally see him in the state you want him to obtain. Within the circle of its action, every word subjectively spoken awakens objectively, what it affirms. Incredulity on the part of the subject is no hindrance when you are in control of your reverie.
 
@@ -68,7 +49,7 @@ Control of the subconscious is dominion over all. Each state obeys one minds con
 
 - Unaware person is profoundly hypnotized relative to you
 - What you believe of another you will awaken in them
-- Unawareness allows effective [[Prayer]] through suggestion
+- Unawareness allows effective [Prayer](/Prayer) through suggestion
 
 ### Establish Rapport and Suggest
 

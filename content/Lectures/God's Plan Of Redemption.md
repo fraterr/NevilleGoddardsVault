@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God's Plan Of Redemption
-keywords: []
-bible_ref:
-tags: lecture
-topics: [God's Plan of Redemption, The Word Incarnate, The Transformation, Imagination and Faith, The Birth of the Word, The Reality of Imagination, The Unrecognized Creator, The Promise of Redemption, The Prologue and Play, Embrace the Silence, Embrace the Silence]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 God's plan of redemption for us is the most incredible, exciting, and amazing story ever told It is the story of the creator of the universe, who so loved us he became us; and how he is transforming us into himself, so that we are no longer the created, but the creator No longer the made, but the maker. The gospel tells us how this is accomplished In the Book of John, we read: *"In the beginning was the Word and the Word was with God and the Word was God He was in the beginning with God All things were made through him and without him was not anything made that was made In him was life and the life was the light of men,"* Here we see the Word was not only with God but was God and then personified   
   
 Let us continue: *"He was in the world and the world was made by him, yet the world knew him not"* It has been established he is the Word, for: *"The Word was made flesh and dwells within us."* (The Greek word translated *"among"* is the preposition *"in"* or *"within"*) John completes this statement as: *"He dwells within us full of grace and truth"* (John 1:1-18) Suddenly now the name Jesus Christ is introduced into the narrative, and the secret is revealed, for *"Grace and truth came through Jesus Christ"* So the Word, full of grace and truth, is Jesus Christ He who was in the beginning with God and was God, now dwells in us, transforming us into himself that we may become as he is We are told: *"Your Maker is your husband, the Lord of hosts is his name"* If your maker is your husband, are you not his emanation, his wife, until the work that he began in you is brought to completion?   

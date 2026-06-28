@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Four Fold Vision
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Fourfold Vision, Symbolism and Imagination, Dreams and Reality, The Power of Imagination, Four Types of Vision, The Practice of Imagination, The Eternal Home]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 William Blake once wrote these words to his friend, Thomas Butts:   
   
 *"Now I a fourfold vision see,   
@@ -35,7 +21,7 @@ Now a garden does not just happen. Man must be present to transform a plot into 
   
 Blake saw everything in his life as a symbol. To him the sun was not a round disk in the sky, but a host of angels singing: *"Holy, Holy, Holy, Lord God Almighty."* Always thinking in symbols, twofold vision was always his.   
   
-Threefold vision is yours when the images begin to dream, to have love affairs, marry, and beget. Your [[Dreams]] of the day and night are threefold vision, which Blake calls *"soft Beulah's night"*. Your moods are your [[Dreams]] in daylight, forming a threefold vision. Capture a mood which would imply the fulfillment of your desire, then become so intense in that threefold vision that you enter your fulfilled desire, and you will move into fourfold vision.   
+Threefold vision is yours when the images begin to dream, to have love affairs, marry, and beget. Your [Dreams](/Dreams) of the day and night are threefold vision, which Blake calls *"soft Beulah's night"*. Your moods are your [Dreams](/Dreams) in daylight, forming a threefold vision. Capture a mood which would imply the fulfillment of your desire, then become so intense in that threefold vision that you enter your fulfilled desire, and you will move into fourfold vision.   
   
 Having entered this dream of life, man has forgotten where he laid himself down to sleep. Thoreau once said: *"The truest life is to be in a dream, awake."* Once this world was only a dream, but man became so intense, he awoke in his dream and turned to single vision in place of reality.   
   
@@ -79,7 +65,7 @@ We bring all kinds of unpleasant things into our world and live with them until 
   
 This world, although three dimensional, is fourfold, for your dream has caused the world to enter the stream of reality. At this moment I am looking at you singly and in a threefold manner. If I see you as an image, representing other than what you appear to be, I am seeing you twofold. And when I meet you in soft Beulah's night I will understand what you are trying to tell me in my fourfold dream.   
   
-A friend told me that I represent Christ to him. That when he conjures me in his [[Dreams]], he knows that the image of God's power and wisdom is speaking to him through the voice of his friend called Neville. Neville is only a symbol, as he should be. I am a symbol and everyone sees me differently, for I am in every being just as you are, for God is one. Now fragmented, the world is God made visible and God's name forever and ever is I AM!   
+A friend told me that I represent Christ to him. That when he conjures me in his [Dreams](/Dreams), he knows that the image of God's power and wisdom is speaking to him through the voice of his friend called Neville. Neville is only a symbol, as he should be. I am a symbol and everyone sees me differently, for I am in every being just as you are, for God is one. Now fragmented, the world is God made visible and God's name forever and ever is I AM!   
   
 The next time you see a fire in the fireplace think of it as the symbol of life. Achieve a poetic image by never seeing one and not thinking of the other. As you look at the fire and feel its warmth something will begin to stir within you, and from then on twofold vision will be yours.   
   
@@ -91,7 +77,7 @@ Do not expect your desire to be fulfilled overnight, for all things have an inte
   
 Truly, you have never left your eternal home. You are sleeping there, dreaming this world into being. Before falling asleep you were called a prince and told that you were gods, sons of the Most High. You would however die like men and fall as one man.   
   
-Now, in order to be a prince, you father must be a king. Well, your Father is the King of kings, the Lord of lords, and together we form the one Lord, for God is one. We descended in consciousness, and made our [[Dreams]] so real by entering into the stream that they took on the tones of reality.   
+Now, in order to be a prince, you father must be a king. Well, your Father is the King of kings, the Lord of lords, and together we form the one Lord, for God is one. We descended in consciousness, and made our [Dreams](/Dreams) so real by entering into the stream that they took on the tones of reality.   
   
 As our eye opened upon the scene, single vision caused us to become locked in the prison of our senses and reason. Now we have become practical, down-to-earth, hardheaded men who know that life is a battle and we must take advantage of everyone before he takes advantage of us.   
   
@@ -99,7 +85,7 @@ We pile up our millions, and then the Father says it's time to go; so we slip of
   
 The man with single vision thinks the great mother earth is paying the rent and providing for him. The undertaker will allow him to think so until he awakens and comes to his senses.   
   
-Do not postpone your [[Dreams]] and do not think that because you heard what to do, your desires will come to pass. It's so easy to hear the truth and postpone the doing. But I urge you to be like my friend: stop postponing and do what you want to have done, for if you do, it will come to pass.   
+Do not postpone your [Dreams](/Dreams) and do not think that because you heard what to do, your desires will come to pass. It's so easy to hear the truth and postpone the doing. But I urge you to be like my friend: stop postponing and do what you want to have done, for if you do, it will come to pass.   
   
 Now let us go into the silence.
 
@@ -119,9 +105,9 @@ Now let us go into the silence.
 - Symbols can be used to bring desires into reality and achieve fourfold vision.
 - Practicing the art of imagining can lead to the fulfillment of desires.
 
-### [[Dreams]] and Reality
-- [[Dreams]] are a form of threefold vision, representing desires and aspirations.
-- The world is created from [[Dreams]] and is a combination of reality and imagination.
+### [Dreams](/Dreams) and Reality
+- [Dreams](/Dreams) are a form of threefold vision, representing desires and aspirations.
+- The world is created from [Dreams](/Dreams) and is a combination of reality and imagination.
 - Imagining objects and experiences as symbols can lead to their manifestation in reality.
 - Imagination is the creative power that can also un-create or eliminate undesirable experiences.
 
@@ -133,7 +119,7 @@ Now let us go into the silence.
 ### Four Types of Vision
 - Single vision is the ordinary sight that perceives things as they appear in reality.
 - Twofold vision sees things as symbols or images representing something else.
-- Threefold vision is the realm of [[Dreams]] and emotions.
+- Threefold vision is the realm of [Dreams](/Dreams) and emotions.
 - Fourfold vision is the fulfillment of desires through intense imagination.
 
 ### The Practice of Imagination
@@ -143,7 +129,7 @@ Now let us go into the silence.
 
 ### The Eternal Home
 - Humanity is dreaming the world into being while sleeping in its eternal home.
-- By descending in consciousness, humans have made their [[Dreams]] into reality and locked themselves in the prison of their senses.
+- By descending in consciousness, humans have made their [Dreams](/Dreams) into reality and locked themselves in the prison of their senses.
 - Awakening from this dream-like state is the process of coming to one's senses and realizing the true nature of reality.
 
 hemselves in the prison of their senses.

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: At Your Command
-keywords: [Prayer, Meditation]
-bible_ref:
-tags: lecture
-topics: [Man's Creative Power, The Identity of God, Consciousness as the Resurrecting Power, The Power of "I AM", Building a New Consciousness, Fishing in the Depths of Consciousness, Recognizing the Power Within, The Voice of God, The Voice of God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Can man decree a thing and have it come to pass? Most decidedly he can! Man has always decreed that which has appeared in his world and is today decreeing that which is appearing in his world and shall continue to do so as long as man is conscious of being man. Not one thing has ever appeared in man’s world but what man decreed that it should. This you may deny, but try as you will you cannot disprove it, for this decreeing is based upon a changeless principle. You do not command things to appear by your words or loud affirmations. Such vain repetition is more often than not confirmation of the opposite. Decreeing is ever done in consciousness. That is; every man is conscious of being that which he has decreed himself to be. The dumb man without using words is conscious of being dumb. Therefore he is decreeing himself to be dumb.  
   
 When the Bible is read in this light you will find it to be the greatest scientific book ever written. Instead of looking upon the Bible as the historical record of an ancient civilization or the biography of the unusual life of Jesus, see it as a great psychological drama taking place in the consciousness of man.  
@@ -106,7 +92,7 @@ To get into the nature easily, general amnesty is necessary. We are told, *"Forg
   
 Consciousness, being God, if you hold in consciousness anything against man, you are binding that condition in your world. But to release man from all condemnation is to free yourself so that you may rise to any level necessary; there is therefore, no condemnation to those in Christ Jesus.  
   
-Therefore, a very good practice before you enter into your [[Meditation]] is first to free every man in the world from blame. For LAW is never violated and you can rest confidently in the knowledge that every man’s conception of himself is going to be his reward. So you do not have to bother yourself about seeing whether or not man gets what you consider he should get. For life makes no mistakes and always gives man that which man first gives himself.  
+Therefore, a very good practice before you enter into your [Meditation](/Lectures/Radio Lectures/Meditation) is first to free every man in the world from blame. For LAW is never violated and you can rest confidently in the knowledge that every man’s conception of himself is going to be his reward. So you do not have to bother yourself about seeing whether or not man gets what you consider he should get. For life makes no mistakes and always gives man that which man first gives himself.  
   
 This brings us to that much abused statement of the Bible on tithing. Teachers of all kinds have enslaved man with this affair of tithing, for not themselves understanding the nature of tithing and being themselves fearful of lack, they have led their followers to believe that a tenth part of their income should be given to the Lord. Meaning, as they make very clear, that, when one gives a tenth part of his income to their particular organization he is giving his *"tenth part"* to the Lord – (or is tithing). But remember, *"_I AM_"* the Lord.” Your _awareness of being_ is the God that you give to and you ever give in this manner.  
   
@@ -252,7 +238,7 @@ You have become so enmeshed in the belief that you are man that you have forgott
 
 ### The Power of "I AM"
 - By claiming God as one's awareness of being, like Jesus and the prophets did, one can transform their world.
-- [[Prayer]] is recognizing oneself to be what is desired, rather than petitioning an external God.
+- [Prayer](/Prayer) is recognizing oneself to be what is desired, rather than petitioning an external God.
 - Consciousness is the way through which things appear.
 
 ### Building a New Consciousness

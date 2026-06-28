@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Incarnate Revelation
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Incarnation of Revelation]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Recently I read a book called, Vanished Parts of Yesterday, by Lord Frederick Hamilton. In it he tells the story of Catherine the Great - who, when she found the first violet of spring, ordered a sentry to be placed over it to protect it from being plucked. Forgetting to rescind the order, day and night, summer and winter, a sentry stood where 150 years ago, a violet bloomed. The new generation did not know why the sentry was there and he didn't either. It was simply a tradition! 
 
 Make sure no sentry is now standing on your lawn, keeping you from the word of God; for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
@@ -36,11 +22,11 @@ Scripture tells us that God numbered the stars and called each by name. Do you k
 
 Although my friend could not hear the words spoken in her vision, upon awakening she remembered: It is not before Abraham was, I am, but before Abraham, was I am! You will find this statement in the 8th chapter of the Gospel of John. This is a chapter which concerns itself with the identity of the Father. Here he claims: *"My Father is he who you call God, but I know my Father and you know not your God."* In this statement he is trying to get you to go beyond a physical state and think of God (your imagination) as the source of all life! 
 
-You can test God through the act of [[Assumption]]. By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
+You can test God through the act of [Assumption](/Assumption). By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
 
 I can remember buying a new hat and walking down the streets of New York City thinking everyone knew my hat was new. I was very conscious of my hat and a little embarrassed because of its newness. But when I had worn it long enough to throw it in the closet and unconsciously pick it up again, it was an old hat and I could wear it normally. You may deny this, but if you are honest with yourself you will admit that you are very conscious of a new suit or dress, even though those who meet you may not know or care whether your clothes are old or new. Only you are aware of the clothes you are wearing. 
 
-The same thing is true of an [[Assumption]]. At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your [[Assumption]] long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
+The same thing is true of an [Assumption](/Assumption). At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your [Assumption](/Assumption) long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
 
 Remember: the source of all life is I AM! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"I AM"*! And there is no other when you say, I am! 
 
@@ -76,7 +62,7 @@ Dwell on this revelation. It is not before Abraham was, I am, but before Abraham
 
 Although the horrors of the world may deny a divine event, remember the story of the tapestry. Scripture calls the unlovely side *"below,"* while the lovely side is called *"above."* The Risen Christ is made to say: *"You are from below and I am from above. You are of this world and I am not of this world."* In other words, you who have not experienced scripture are from below, while those who have are from above. You are of this world, while they are no longer a part of this world. But, because we are all one, you will be lifted up as the Risen Christ. 
 
-Any desire is yours to fulfill if you will not lose confidence in I am. Attach anything to it and it will grow. If your desire is to be rich, say to yourself: I am rich - and think from that [[Assumption]]. If you want to be known, claim you already are. You can be anything you want to be by the act of [[Assumption]]. Wear your desire as though it were true now, and your [[Assumption]] - though denied by your senses - when persisted in will harden into fact by objectifying itself and becoming a reality. 
+Any desire is yours to fulfill if you will not lose confidence in I am. Attach anything to it and it will grow. If your desire is to be rich, say to yourself: I am rich - and think from that [Assumption](/Assumption). If you want to be known, claim you already are. You can be anything you want to be by the act of [Assumption](/Assumption). Wear your desire as though it were true now, and your [Assumption](/Assumption) - though denied by your senses - when persisted in will harden into fact by objectifying itself and becoming a reality. 
 
 But that is not the purpose of life. There is only one purpose, which is to fulfill scripture. And when God makes himself known in you - an individual - and you tell your experiences, the world will deny them. But I tell you: you cannot turn to another and say I am; and you cannot divide it, for I am is one! 
 
@@ -88,7 +74,7 @@ And when you awaken and you and I are reunited in the one body, we will know wha
 
 When the Risen Christ said: *"I have things to tell you, but you cannot bear them now,"* he was speaking to those who were tightly bound in their concept of a God external to themselves to whom they prayed. That mind could not accept a God within who would make himself known in a vision. 
 
-I knew such a lady in New York City. She ran a book store, where I bought many books. Knowing my passion for books, when she would see my interest in a certain book she would quickly erase the price and mark a higher one in its place. This she did time and time again. I have paid her as high as $100 for three books. One day she said: *"You certainly have vivid [[Dreams]],"* and I replied: *"They are not [[Dreams]], but visions, where I commune with myself, the self that you call God."* 
+I knew such a lady in New York City. She ran a book store, where I bought many books. Knowing my passion for books, when she would see my interest in a certain book she would quickly erase the price and mark a higher one in its place. This she did time and time again. I have paid her as high as $100 for three books. One day she said: *"You certainly have vivid [Dreams](/Dreams),"* and I replied: *"They are not [Dreams](/Dreams), but visions, where I commune with myself, the self that you call God."* 
 
 Two years ago, while in New York I learned that Mary had been killed. Walking down a dark street one night she stepped off the sidewalk and a car struck her. Her husband found her body four days later in the morgue where they kept it waiting for identification. So Mary is gone, taking all of her beliefs with her. 
 
@@ -96,7 +82,7 @@ There is no transforming power in what the world calls death. If you are prejudi
 
 It is said that God spoke to Moses, making it appear as though God spoke from without; but God always whispers from within. Knowing God to be himself, when the revelation came, Moses spoke to him face to face and no longer in dream, as told us in the 12th chapter of Numbers. 
 
-Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your [[Assumption]]. Don't make them see you; let them see the change! 
+Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your [Assumption](/Assumption). Don't make them see you; let them see the change! 
 
 Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that feeling as you now wear your present body of belief. Continue to wear that new state and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
 
@@ -131,7 +117,7 @@ Now let us go into the silence.
 - The history of man is a material for God's artistic work, transforming the horrors of experience into beauty.
 - The lady's revelation shows that the dreamer in her is also the director, and God is the key actor.
 - Each individual is known by God, and each name is recorded in the Book of Life.
-- [[Assumption]] is a powerful tool to manifest desires. By assuming the desired state and persisting in that belief, it will become a reality.
+- [Assumption](/Assumption) is a powerful tool to manifest desires. By assuming the desired state and persisting in that belief, it will become a reality.
 - The purpose of life is to fulfill scripture and realize the truth of our identity as God's sons.
 - All individuals are one in God, and the unity will be fully realized in the kingdom of heaven.
 - The world may reject this revelation because they do not know the Father within them.
@@ -139,7 +125,7 @@ Now let us go into the silence.
 - Each time we say "I am," we speak God's name and affirm our oneness with Him.
 - The world's unpleasantness does not transform after death, and only the awakening to our true identity can change our beliefs and experiences.
 - The revelation of Moses speaking to God face to face shows that God whispers from within, not from without.
-- We can test the power of the human imagination by assuming our desires and persisting in that [[Assumption]].
+- We can test the power of the human imagination by assuming our desires and persisting in that [Assumption](/Assumption).
 - God's presence is protean and can take on different forms and metamorphoses.
 - Vision breaking forth into speech affirms the presence of deity.
 - The placement of punctuation, such as the comma, can change the meaning of statements completely.

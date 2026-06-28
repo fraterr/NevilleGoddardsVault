@@ -1,22 +1,3 @@
----
-book: Prayer, The Art of Believing
-chapter: Imagination and Faith
-keywords:
-  - Prayer
-bible_ref: null
-tags: book
-topics:
-  - Imagination and Faith Create
-  - Establishing Rapport
-  - Belief Wins Over Will
-  - Acceptance Wills the Means
-  - Silent Treatment is Most Effective
-  - Transform By Feeling
-  - Now is the Acceptable Time
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 PRAYERS are not successfully made unless there is a rapport between the conscious and subconscious mind of the operator. This is done through imagination and faith.
 
 By the power of imagination all men, certainly imaginative men, are forever casting forth enchantments, and all men, especially unimaginative men, are continually passing under their power. Can we ever be certain that it was not our mother while darning our socks who began that subtle change in our minds? If I can unintentionally cast an enchantment over persons, there is no reason to doubt that I am able to cast intentionally a far stronger enchantment.
@@ -43,7 +24,7 @@ The subjective mind is completely controlled by suggestion, so, whether the obje
 
 There is nothing unsound in the theory of medicine or in the claims of priesthood for their relics and holy places. The subjective mind of the patient accepts the suggestion of health conditioned on such states, and as soon as these conditions are met proceeds to realize health. *“According to your faith be it done unto you for all things are possible to him that believeth.”* Confident expectation of a state is the most potent means of bringing it about. The confident expectation of a cure does that which no medical treatment can accomplish.
 
-Failure is always due to an antagonistic auto-suggestion by the patient, arising from objective doubt of the power of medicine or relic, or from doubt of the truth of the theory. Many of us, either from too little emotion or too much intellect, both of which are stumbling blocks in the way or [[Prayer]], cannot believe that which our sense deny. To force ourselves to believe will end in greater doubt. To avoid such counter-suggestions the patient should be unaware, objectively, of the suggestions which are made to him. The most effective method of healing or influencing the behavior of others consists in what is known as *“the silent or absent treatment.”* When the subject is unaware, objectively, of the suggestion given him there is no possibility of him setting up an antagonistic belief. It is not necessary that the patient know, objectively, that anything is being done for him. From what is known of the subjective and objective processes of reasoning, it is better that he should not know objectively of that which is being done for him. The more completely the objective mind is kept in ignorance of the suggestion, the better will the subjective mind perform its functions. The subject subconsciously accepts the suggestion and thinks he originates it, proving the truth of Spinoza’s dictum that we know not the causes that determine our actions.
+Failure is always due to an antagonistic auto-suggestion by the patient, arising from objective doubt of the power of medicine or relic, or from doubt of the truth of the theory. Many of us, either from too little emotion or too much intellect, both of which are stumbling blocks in the way or [Prayer](/Prayer), cannot believe that which our sense deny. To force ourselves to believe will end in greater doubt. To avoid such counter-suggestions the patient should be unaware, objectively, of the suggestions which are made to him. The most effective method of healing or influencing the behavior of others consists in what is known as *“the silent or absent treatment.”* When the subject is unaware, objectively, of the suggestion given him there is no possibility of him setting up an antagonistic belief. It is not necessary that the patient know, objectively, that anything is being done for him. From what is known of the subjective and objective processes of reasoning, it is better that he should not know objectively of that which is being done for him. The more completely the objective mind is kept in ignorance of the suggestion, the better will the subjective mind perform its functions. The subject subconsciously accepts the suggestion and thinks he originates it, proving the truth of Spinoza’s dictum that we know not the causes that determine our actions.
 
 The subconscious mind is the universal conductor which the operator modifies with his thoughts and feelings.
 

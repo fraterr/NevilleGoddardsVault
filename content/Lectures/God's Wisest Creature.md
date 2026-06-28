@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God's Wisest Creature
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Fall and the Plan for Expansion, The Pre-Fall State, Vision of Unity and Resurrection, The Drama of Being Human, Resurrection and Ultimate Birth, The Redemption and Return, The Son of God and Resurrection, Background and Personal Story, Imagining Beyond, Imagining Beyond]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 We are told that because of an act of disobedience man fell, thereby separating himself from God. But scripture tells us that God consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
   
 Scholars consider the 82nd Psalm as one of the most difficult of all the psalms to interpret, stating that although the idea may be perennial, its meaning has vanished.  
@@ -34,7 +20,7 @@ You cannot describe the heavenly being you really are; yet you are gods, sons of
   
 The act of resurrection is God's mightiest act, for he must awaken his sons, who deliberately fell into this world of decay and death. Dwell upon your true being, for although you have forgotten it, you are a son of God. You had to forget this truth in order to assume the limitations of this cross called man.  
   
-But before this [[Assumption]], our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
+But before this [Assumption](/Assumption), our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
   
 Without defining exactly what you look like, suppose you are now the being spoken of as the son of God. You certainly are not a man, because you must fall into man and die like men. Knowing that no man takes your life, you lay it down yourself. You have the power to lay it down and the power to lift it up again.  
   
@@ -46,7 +32,7 @@ The moment you contemplate an act, it has been committed. Whether it is pleasant
   
 There is not a thing you -as man - have ever done that God has seen something to be blamed in the act. And in the end, God in his infinite mercy will step beyond and arouse you. Having tasted what it is to be man in a world of death, you - a son of the Most High - will add what you have extracted from being man, to God's glory.  
   
-Before you fell into this world of men, you were infinitely greater than any man who ever walked the face of this earth. You have no ancestor comparable to the being you really are. Although you emptied yourself of your divine power and wisdom, it is still awaiting your return. And you will return expanded beyond the wildest [[Dreams]] of what you were prior to the fall.  
+Before you fell into this world of men, you were infinitely greater than any man who ever walked the face of this earth. You have no ancestor comparable to the being you really are. Although you emptied yourself of your divine power and wisdom, it is still awaiting your return. And you will return expanded beyond the wildest [Dreams](/Dreams) of what you were prior to the fall.  
   
 One Man, containing all men, fell into division, and all men are gathered one by one and redeemed into the unity of the one Man who fell. *"This structure is slowly built as a holy temple of the Lord in whom you also are built in."*  
   

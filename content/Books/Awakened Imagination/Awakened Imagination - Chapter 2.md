@@ -1,40 +1,4 @@
----
-book: Awakened Imagination
-chapter: Sealed instructions
-keywords:
-  - Assumption
-  - Dreams
-  - Abdullah
-bible_ref:
-  - Mark 13:2
-  - Mark 11:24
-  - John 1:10
-  - John 10:17-18
-  - John 14:2-3
-  - John 15:16
-  - Luke 18:41
-  - Luke 15:31
-  - Zechariah 8:17
-  - Colossians 2:9-10
-  - 2Corinthians 12:9
-  - Philippians 3:13-14
-  - Psalms 42:1
-tags: book
-topics:
-  - Abdullah's Teachings
-  - Resisting Literal Beliefs
-  - Imagination as Mediator
-  - Awakening Inner Imagination
-  - Testing Imagination
-  - Implications of Imaginal Power
-  - Thinking FROM Ends
-  - The Hunger of Desire
-  - Control Life via Imagination
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-I WAS FIRST made conscious of the power, nature, and redemptive function of imagination through the teachings of my friend [[Abdullah]]; and through subsequent experiences, I learned that Jesus was a symbol of the coming of imagination to man, that the test of His birth in man was the individual's ability to forgive sin; that is, his ability to identify himself or another with his aim in life.  
+I WAS FIRST made conscious of the power, nature, and redemptive function of imagination through the teachings of my friend [Abdullah](/Abdullah); and through subsequent experiences, I learned that Jesus was a symbol of the coming of imagination to man, that the test of His birth in man was the individual's ability to forgive sin; that is, his ability to identify himself or another with his aim in life.  
 Without the identification of man with his aim, the forgiveness of sin is an impossibility, and only the Son of God can forgive sin.  
 Therefore, man's ability to identify himself with his aim, though reason and his senses deny it, is proof of the birth of Christ in him.  
 To passively surrender to appearances and bow before the evidence of facts is to confess that Christ is not yet born in you.  
@@ -58,12 +22,12 @@ It depends on the acceptance, the state with which we are identified, how things
 Outer reforms are useless if the inner state is not changed.  
 Success is gained not by imitating the outer actions of the successful but by right inner actions and inner talking.  
 If we detach ourselves from a state, and we may at any moment, the conditions and circumstances to which that union gave being vanish.  
-It was in the fall of 1933 in New York City that I approached [[Abdullah]] with a problem. He asked me one simple question, *"What do you want?"*  
+It was in the fall of 1933 in New York City that I approached [Abdullah](/Abdullah) with a problem. He asked me one simple question, *"What do you want?"*  
 I told him that I would like to spend the winter in Barbados, but that I was broke. I literally did not have a nickel.  
 *"If you will imagine yourself to be in Barbados"*, said he, "thinking and viewing the world from that state of consciousness instead of thinking of Barbados, you will spend the winter there.  
 You must not concern yourself with the ways and means of getting there, for the state of consciousness of already being in Barbados, if occupied by your imagination, will devise the means best suited to realize itself."  
 Man lives by committing himself to invisible states, by fusing his imagination with what he knows to be other than himself, and in this union he experiences the results of that fusion. No one can lose what he has, save by detachment from the state where the things experienced have their natural life.  
-*"You must imagine yourself right into the state of your fulfilled desire"*, [[Abdullah]] told me, *"and fall asleep viewing the world from Barbados."*  
+*"You must imagine yourself right into the state of your fulfilled desire"*, [Abdullah](/Abdullah) told me, *"and fall asleep viewing the world from Barbados."*  
 The world which we describe from observation must be as we describe it relative to ourselves.  
 Our imagination connects us with the state desired.  
 But we must use imagination masterfully, not as an onlooker thinking of the end, but as a partaker thinking from the end.  
@@ -72,9 +36,9 @@ If we do this, our subjective experience will be realized objectively.
 *"This is not mere fancy"*, said he, *"but a truth you can prove by experience."*  
 His appeal to enter into the wish fulfilled was the secret of thinking from the end. Every state is already there as *"mere possibility"* as long as you think of it, but is overpoweringly real when you think from it. Thinking from the end is the way of Christ.  
 I began right there and then, fixing my thoughts beyond the limits of sense, beyond that aspect to which my present state gave being, towards the feeling of already being in Barbados and viewing the world from that standpoint.  
-He emphasized the importance of the state from which man views the world as he falls asleep. All prophets claim that the voice of God is chiefly heard by man in [[Dreams]]
+He emphasized the importance of the state from which man views the world as he falls asleep. All prophets claim that the voice of God is chiefly heard by man in [Dreams](/Dreams)
 *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men, and sealeth their instruction."* (Job 33:15,16)  
-That night and for several nights thereafter, I fell asleep in the [[Assumption]] that I was in my father's house in Barbados. Within a month, I received a letter from my brother, saying that he had a strong desire to have the family together at Christmas and asking me to use the enclosed steamship ticket for Barbados. I sailed two days after I received my brother's letter and spent a wonderful winter in Barbados.  
+That night and for several nights thereafter, I fell asleep in the [Assumption](/Assumption) that I was in my father's house in Barbados. Within a month, I received a letter from my brother, saying that he had a strong desire to have the family together at Christmas and asking me to use the enclosed steamship ticket for Barbados. I sailed two days after I received my brother's letter and spent a wonderful winter in Barbados.  
 This experience has convinced me that man can be anything he pleases if he will make the conception habitual and think from the end.  
 It has also shown me that I can no longer excuse myself by placing the blame on the world of external things – that my good and my evil have no dependency except from myself – that it depends on the state from which I view the world how things present themselves.  
 Man, who is free in his choice, acts from conceptions which he freely, though not always wisely, chooses. All conceivable states are awaiting our choice and occupancy, but no amount of rationalizing will of itself yield us the state of consciousness which is the only thing worth having.  
@@ -126,10 +90,10 @@ You can experience what you please once you realize that you are His Son, and th
 ## Summary
 
 
-### [[Abdullah]]'s Teachings
+### [Abdullah](/Abdullah)'s Teachings
 
-  - [[Abdullah]] taught the author about the power, nature, and purpose of imagination.
-  - He learned from [[Abdullah]] that Jesus symbolizes imagination coming to man.
+  - [Abdullah](/Abdullah) taught the author about the power, nature, and purpose of imagination.
+  - He learned from [Abdullah](/Abdullah) that Jesus symbolizes imagination coming to man.
   - Forgiveness of sins is the test of Christ's birth in man through imagination.
 
 ### Resisting Literal Beliefs
@@ -150,7 +114,7 @@ You can experience what you please once you realize that you are His Son, and th
 
 ### Testing Imagination
 
-  - The author tested [[Abdullah]]'s teachings about imagining desired ends.
+  - The author tested [Abdullah](/Abdullah)'s teachings about imagining desired ends.
   - He imagined being in Barbados though he lacked the means.
   - After persistently imagining from the end, he received a ticket and traveled there.
 

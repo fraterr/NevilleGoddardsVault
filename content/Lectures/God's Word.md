@@ -1,17 +1,6 @@
----
-book: 
-chapter: God's Word
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: ["Purpose in Life: Fulfilling God's Word", A Dream of Jerusalem's Gates, Lessons from Max Beck's Dream, "Personal Experience: Redemption of the Monster", Symbolism in Biblical References, Power and Regeneration, Facing the Monster and the Heavenly Being, Building the New Jerusalem, Truth Beyond the Body]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 We are here in this world for one purpose and that is to fulfill God's Word, which is scripture. Oh, you can accomplish miracles while you are here, but God sent you - his Word - into the world, saying: *"My Word shall not return unto me void. It must accomplish that which I purposed and prosper in the thing for which I sent it."* You are that Word, and you are destined to fulfill scripture.  
   
-This past week a lady wrote me, saying: "Recently I have been having difficulty remembering my [[Dreams]], but this one was the most difficult I have ever encountered. I knew I had to surface to tell it to you, but it seemed like an endless depth of utter darkness from which I came. Holding onto the memory image of what I had experienced, I felt as though I were a diver who had plunged too deep and would never make the surface, but I did and this is my experience.  
+This past week a lady wrote me, saying: "Recently I have been having difficulty remembering my [Dreams](/Dreams), but this one was the most difficult I have ever encountered. I knew I had to surface to tell it to you, but it seemed like an endless depth of utter darkness from which I came. Holding onto the memory image of what I had experienced, I felt as though I were a diver who had plunged too deep and would never make the surface, but I did and this is my experience.  
   
 *"I stood before Jerusalem's gates. They were enormous wooden gates with high, high walls. I was so thrilled to be there, but my thrill quickly vanished when I realized that the gates were closed. Then I found myself on a high hill, clothed in a body of light, which radiated from me in all directions. In the distance I could see the whole of earth with its curvature, and felt as though I stood in some space ship and shed my light on all. I knew that if I so desired I could rearrange everything I saw, yet I also knew that everything was ordered and as it should be. Then I began this terrific struggle to return to my earthly body, for I wanted to share what I had experienced."*   
   

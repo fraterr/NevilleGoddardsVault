@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Infinite Power
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Truth Within, The Power of Imagination, Personal Experience and Belief, Dreams and Symbols, The True Christ, The Work of God, The Power Within, Fulfillment and Return]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Robert Browning tells us:  
   
 *"Truth is within ourselves.  
@@ -116,10 +102,10 @@ Now let us go into the silence.
 - Many are called to hear the message of salvation, but few truly believe.
 - Belief in the Son of God, defined as God's power and wisdom, is essential for salvation.
 
-### [[Dreams]] and Symbols
+### [Dreams](/Dreams) and Symbols
 
 - The author recounts a dream of a lady who saw him as the embodiment of power and authority.
-- [[Dreams]] are seen as symbols of truth and contain personal tests and messages.
+- [Dreams](/Dreams) are seen as symbols of truth and contain personal tests and messages.
 - The power of imagination is emphasized, surpassing material resources in achieving desires.
 
 ### The True Christ

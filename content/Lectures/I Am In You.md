@@ -1,14 +1,3 @@
----
-book: 
-chapter: I Am In You
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Mystery of Our Religion, The Nature of God Revealed in You, "Cosmic Principle: God Became Man", Paul's Declaration of Independence, "One Body - One Spirit - One Lord", Find God's Wish Book in Desire, The Story of Christ as an Acted Parable, Modifying Beliefs in the Afterlife, The New Age of Intimate Brotherhood, The New Age of Intimate Brotherhood]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 As Paul said to Timothy: *"Great indeed, we confess, is the mystery of our religion."* Scripture is not secular history, but a mystery which is most important that we understand! 
 
 Speaking to his disciples, Jesus said: *"In that day you will know that I am in the Father, and you in me and I in you."* (John 14) The phrase *"in that day"* is an eschatological term meaning, *"at the end of the journey."* In other words, when this age of Caesar comes to its end, you will experience the truth of scripture, and - understanding - you will say: *"I am in the Father and you are in me and I am in you."* 

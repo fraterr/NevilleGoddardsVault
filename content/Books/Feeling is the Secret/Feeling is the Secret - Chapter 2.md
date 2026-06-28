@@ -1,44 +1,9 @@
----
-book: Feeling is the Secret
-chapter: Sleep
-keywords:
-  - Assumption
-  - Prayer
-bible_ref:
-  - Job 33
-  - Matthew 6:10
-  - Luke 11:2
-  - Psalms 95:2
-  - Psalms 100:4
-  - Psalms 121:4
-  - Psalms 127:2
-  - Song of Solomon 3:1
-  - Song of Solomon 3:4
-  - Song of Solomon 4:7
-  - Romans 4:17
-  - Joshua 24:15
-  - Matthew 8:22
-  - Luke 9:60
-  - John 12:24
-tags: book
-topics:
-  - Introduction
-  - Conscious vs Subconscious
-  - Feeling Impresses the Subconscious
-  - Subconscious Outpictures Your Feeling
-  - Preparing for Sleep
-  - Sleep as Metaphor
-  - Acceptance of the End
-banner: Handles/img/banner feeling is the secret.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 SLEEP, the life that occupies one-third of our stay on earth, is the natural door into the subconscious.
 So it is with sleep that we are now concerned. The conscious two-thirds of our life on earth is measured by the degree of attention we give sleep. Our understanding of and delight in what sleep has to bestow will cause us, night after night, to set out for it as though we were keeping an appointment with a lover.
 
 *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, (Job 33)
 
-It is in sleep and in [[Prayer]], a [[State akin to sleep]], that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
+It is in sleep and in [Prayer](/Prayer), a [State akin to sleep](/State-akin-to-sleep), that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
 The subconscious – unlike the woman of the world who marries her husband to change him – has no desire to change the conscious, waking state, but loves it as it is and faithfully reproduces its likeness in the outer world of form.
 
@@ -90,7 +55,7 @@ Disregard appearances and feel that things are as you wish them to be, for *"He 
 
 Proof that you are will follow the consciousness that you are; it will not precede it.
 
-You are an eternal dreamer dreaming non-eternal [[Dreams]]. Your [[Dreams]] take form as you assume the feeling of their reality.
+You are an eternal dreamer dreaming non-eternal [Dreams](/Dreams). Your [Dreams](/Dreams) take form as you assume the feeling of their reality.
 
 Do not limit yourself to the past.
 

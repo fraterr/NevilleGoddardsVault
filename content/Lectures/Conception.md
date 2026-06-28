@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Conception
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Conception on the Highest Level, The Creative Act, The Vision of Union, God's Penetration, Penetrating States to Realize Objectives, Fulfilling Scripture, Realizing Objectives on This Level]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight’s subject is on conception, both on this level and the highest level. The Bible is vision from beginning to end. Words such as Jesus, Moses, Abraham, and Isaac are used, but their stories are visions. Jesus is the fulfillment of scripture, so when I speak of Jesus, I am speaking of you raised to the level where you can make the same bold statement. Jesus’ declaration that he was the fulfillment of scripture required a spiritual maturity of which most who heard his claim were not capable of understanding, but the purpose of life is to fulfill scripture.  
   
 Tonight I will speak of conception which leads to scripture’s fulfillment, as well as the shadow it casts in this world, for the same technique can be used to realize your objectives here.  
@@ -30,7 +16,7 @@ Now, those who slept on the marble slabs were as Moses on the rock. The world *"
   
 It seems insane on a certain level, but I am telling you what I know from experience, and just as God impregnates the dead on a higher level, you can impregnate a dead state on this level. Think of a state and you are its spectator. And the state will remain dead relative to you until you penetrate it, until you approach it on your fiery chariot of imaginative power. An egg, whether it be human or that of a chicken, is dead and will remain so forever until the sperm penetrates it. The sperm must penetrate and occupy the egg in order to fertilize it, and then in its own given time the shell is broken and out comes that which was the sperm that penetrated it.  
   
-A state is penetrated through the act of [[Assumption]]. Assuming you are now in the state you want to externalize, you think from it and no longer of it. Thinking from, you have penetrated the state. This penetration is still the mystery of all mysteries. Man has discovered how to go to the moon, place cameras in space, yet no matter what he knows concerning the mysteries of the universe, man cannot understand how an egg can be penetrated without a hole either before or after penetration. Well, your imagination is that sperm. You do not have to open doors to get into any room; you simply enter by assuming you are in it. Look at the world from it and feel what you want to feel, and the room has been penetrated. Now remain there until you feel relief. Of all the pleasures of the world, relief is the most keenly felt. So when you enter into (penetrate) a desire, remain there until satisfaction is felt, until you have expelled the sperm right into the state.  
+A state is penetrated through the act of [Assumption](/Assumption). Assuming you are now in the state you want to externalize, you think from it and no longer of it. Thinking from, you have penetrated the state. This penetration is still the mystery of all mysteries. Man has discovered how to go to the moon, place cameras in space, yet no matter what he knows concerning the mysteries of the universe, man cannot understand how an egg can be penetrated without a hole either before or after penetration. Well, your imagination is that sperm. You do not have to open doors to get into any room; you simply enter by assuming you are in it. Look at the world from it and feel what you want to feel, and the room has been penetrated. Now remain there until you feel relief. Of all the pleasures of the world, relief is the most keenly felt. So when you enter into (penetrate) a desire, remain there until satisfaction is felt, until you have expelled the sperm right into the state.  
   
 The Lord told Moses he would cover him with his hand, which is his creative power. To cover is to copulate. Having covered you with his creative power, you are told that he removes it. In other words, you don’t have to remain in that state. You are to go in and fertilize it, then remove your hand by returning your creative awareness to the former state.  
   
@@ -52,7 +38,7 @@ I tell you: we are only here to fulfill scripture. I don’t care what you do in
   
 But may I say to my friend who wrote the letter: you may depart this world in less than thirty years, but you will not falter. Benny is only about thirty years old now, so he has no memory of the conception; but no one can choose the time, for everyone is chosen. *"You did not choose me, I chose you, for no man comes unto me save my Father calls him and I and my Father are one."* No one can tell the secret of God’s elective love, but when you are full of power, you are called. You don’t volunteer, but are drafted, drawn into the state to reach its climax in thirty years!  
   
-To tell this to a vast audience would be the height of insanity, as they would not understand what I am talking about. But I tell you: your [[Dreams]], visions and experiences are symbols which you either accept and interpret or reject as an illusion, for there is nothing but God, who is your own wonderful human Imagination! There is only one Spirit in this wonderful universe. The being that maintains it all is the same being that maintains you! There is no other. *"Man is all Imagination and God is Man and exists in us and we in him. The Eternal Body of Man is the Imagination and that is God Himself."* (William Blake)  
+To tell this to a vast audience would be the height of insanity, as they would not understand what I am talking about. But I tell you: your [Dreams](/Dreams), visions and experiences are symbols which you either accept and interpret or reject as an illusion, for there is nothing but God, who is your own wonderful human Imagination! There is only one Spirit in this wonderful universe. The being that maintains it all is the same being that maintains you! There is no other. *"Man is all Imagination and God is Man and exists in us and we in him. The Eternal Body of Man is the Imagination and that is God Himself."* (William Blake)  
   
 And all things are possible to God! Just as an egg is penetrated, conceives, and is raised from the dead into a living state by bringing forth the express image of its person, if you bring forth the Son of God, you must have been fathered by God! My friend was awake within the dream, so she is aware of her marvelous conception. If she departs this section of time before the thirty years it will make no difference, for unlike the children here, where a miscarriage is possible, she cannot lose the child!  
   
@@ -97,7 +83,7 @@ Now let us go into the silence.
 
 ### God's Penetration
 - God penetrates the dead on a higher level, while on this level, we can penetrate a dead state
-- State is penetrated through [[Assumption]], thinking from it, and feeling relief
+- State is penetrated through [Assumption](/Assumption), thinking from it, and feeling relief
 - Sperm must penetrate and occupy the egg to fertilize it
 
 ### Penetrating States to Realize Objectives
@@ -112,7 +98,7 @@ Now let us go into the silence.
 - Fulfillment unique to the individual
 - Benny experiences the birth of a child, fulfillment of scripture
 - God's elective love calls individuals to fulfillment of scripture
-- [[Dreams]], visions, and experiences are symbols from God
+- [Dreams](/Dreams), visions, and experiences are symbols from God
 
 ### Realizing Objectives on This Level
 - Occupying desired state mentally, seeing the world from it

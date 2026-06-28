@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: He Wakes In Me
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Crucifixion and Resurrection of Jesus, The Transfigured Self, The Resurrection and Birth from Above, The Unity and Expansion of Christ Consciousness, Redemption through Innocent Blood, The Oneness of God and the Mystery of "I Am", The Promise and Fulfillment of God's Plan]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is *"He Wakes in Me"*. I should say *"he wakes in us"*. Who is he? The Lord Jesus Christ who is crucified in us. He was never crucified on anything outside of man, and because he was crucified in us, he must rise in us. Paul said: *"I have been crucified with Christ; it is not I who live, but Christ who lives in me. And if we have been united with him in a death like his we shall certainly be united with him in a resurrection like his."*  
   
 The resurrection, although not described in any portion of scripture, is really the high watermark, the very center of the Christian faith. As Paul said: *"If Christ is not raised then our faith is in vain and we are as men the most to be pitied."*  
@@ -26,7 +12,7 @@ On this level your body is animated and wonderful, but you cannot compare it to 
   
 Then in 1959 the resurrection came, followed by my birth into an entirely new age. The resurrection begins the entire drama of Christianity, although many experiences precede it, as you wear your transfigured self and know yourself to be a being of fire dwelling in a body of air. The resurrection comes so suddenly. There is no warning, for in this transfigured state you are told to tell no one until the Son of man is raised from the dead.  
   
-Man has been taught to believe that a man was crucified on a wooden tree, taken down from it, and put into a grave - and it isn't so at all! Christ, the great Messiah, is buried in you as your creative power and wisdom, which is God's creative power and wisdom lowered to this level. Buried in you, it [[Dreams]] horrible experiences; but in the end this power begins to stir and as it does, it fulfills all that was foretold in scripture regarding itself.  
+Man has been taught to believe that a man was crucified on a wooden tree, taken down from it, and put into a grave - and it isn't so at all! Christ, the great Messiah, is buried in you as your creative power and wisdom, which is God's creative power and wisdom lowered to this level. Buried in you, it [Dreams](/Dreams) horrible experiences; but in the end this power begins to stir and as it does, it fulfills all that was foretold in scripture regarding itself.  
   
 Now listen to the words of Moses (the eternal state of the prophet through which all men pass) as recorded in the Book of Deuteronomy: *"The Lord, your God will raise up for you a prophet like me from among you, from your brethren ' him you shall heed."* Do not read this passage on the surface because translations are strange. Go back to find the Hebrew meaning for every word in the sentence. We will take just the one word, translated in the Revised Standard Version as *"among"* and in the King James Version as *"midst"*. The Hebrew word thus translated means: *"Within yourself; the heart; the bowel; the very core of a person; the inmost thought of man."* So, *"From within you the Lord God will raise up for you a prophet like me."*  
   

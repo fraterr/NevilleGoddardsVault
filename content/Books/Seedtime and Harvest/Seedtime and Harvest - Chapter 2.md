@@ -1,36 +1,3 @@
----
-book: Seedtime and Harvest
-chapter: The Four Mighty Ones
-keywords:
-  - Dreams
-  - Tetragrammaton
-bible_ref:
-  - Daniel 3:25
-  - Ezekiel 10:14
-  - Genesis 2:10
-  - Habakkuk 1:2
-  - John 17:21-23
-  - John 19:23
-  - Philippians 2:5-6
-tags: book
-topics:
-  - The Four Mighty Ones in Man
-  - Producer Suggests the Theme
-  - Author Writes the Final Scene
-  - Director Rehearses the Actor
-  - Actor Performs the Drama Mentally
-  - All Parts Create the Play of Life
-  - Shadows on the Screen of Space
-  - Man is Unconsciously Writing His Play
-  - Conscious Creation Revises the Play
-  - Players Automatically Act Their Parts
-  - We Are All Playing the Four Parts
-  - Conscious Playing Perfects the Drama
-  - The Mystic Vision Flows into Reality
-banner: Handles/img/banner seedtime and harvest.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."*  
 (Genesis 2:10)
 
@@ -48,7 +15,7 @@ The *"Four Mighty Ones"* are four different aspects of his mind, and differ from
 
 The *"Four Mighty Ones"* may be equated with the four Hebrew characters: [Yodh, He, Waw, He, from right to left] which form the four-lettered mystery-name of the Creative Power [*"Yahweh"* or even occasionally as *"Jehovah"*] from and combining within itself the past, present and future forms of the verb *"to be."*
 
-The [[Tetragrammaton]] is revered as the symbol of the Creative Power in man - I AM - the creative four functions in man reaching forth to realize in actual material phenomena qualities latent in Itself.
+The [Tetragrammaton](/Tetragrammaton) is revered as the symbol of the Creative Power in man - I AM - the creative four functions in man reaching forth to realize in actual material phenomena qualities latent in Itself.
 
 We can best understand the *"Four Mighty Ones"* by comparing them to the four most important characters in the production of a play.
 
@@ -128,7 +95,7 @@ In the production of my play - the sailing on a boat that would bring me to New 
 
 This being done, events and people moved swiftly to conform, in the outer world, to the play I had constructed and enacted in my imagination.
 
-*"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own [[Dreams]]."*  
+*"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own [Dreams](/Dreams)."*  
 (George William Russell)
 
 I told this story to an audience of mine in San Francisco, and a lady in the audience told me how she had unconsciously used the same technique, when she was a young girl.
@@ -201,7 +168,7 @@ In the intervening years, she had many opportunities to use her imagination cons
 
 ### The Mystic Vision Flows into Reality
 
-- Inner acts shape outer reality; [[Dreams]] become the worlde world
+- Inner acts shape outer reality; [Dreams](/Dreams) become the worlde world
 
 
 #Dreams #Tetragrammaton

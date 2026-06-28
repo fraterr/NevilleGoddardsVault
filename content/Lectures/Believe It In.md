@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Believe It In
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination, The Role of Imagination in Manifestation, Dreams and Visions, The Power of Memory and Belief, The Nature of God and You, Applying Imagination and Belief, The Law of Imaginal Activity, The Law of Like Begets Like, Fulfilling the Promise]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The objective reality of this world is solely produced by the human imagination, in which all things exist. Tonight I hope to show you how to subjectively appropriate that which already exists in you, and turn it into an objective fact. Your life is nothing more than the out picturing of your imaginal activity, for your imagination fulfills itself in what your life becomes.   
   
 The last year that Robert Frost was with us, he was interviewed by Life Magazine and said: *"Our founding fathers did not believe in the future, they believed it in."* This is true. Having broken with England, our founding fathers could have established their own royalty here by making one of them the king, thereby perpetuating a royal family. They could have chosen a form of dictatorship, but they agreed to imagine a form of government that had not been tried since the days of the Greeks. Democracy is the most difficult form of government in the world, yet our founding fathers agreed to believe it in. They knew it would take place, because they knew the power of belief - the power I hope to show you that you are, tonight.   
@@ -24,7 +10,7 @@ We are told that God speaks to man in a dream and unveils himself in a vision. N
   
 I tell you: everything in your outer world was first subjectively appropriated, I don't care what it is. Desire can be your empty lot where you may stand, remembering when that which you now have, was only a desire. If I now say: *"I remember when I lectured at the Woman's Club in Los Angeles"* I am implying I am no longer there, and am where I want to be. Remembering when you were poor, I have taken you out of poverty and placed you in comfort. I remember when you were sick, by taking you out of sickness and placing you in the state of health. I remember when you were unknown, implies you are now known. By changing my memory image of you, I can now remember when you, with all your fame and fortune, were unknown and broke. That was the secret of grandfather's success.   
   
-This is what I learned in vision. Do not put this thought aside because it came to me in vision. In the 12th chapter of the Book of Numbers it is said that God speaks to man through the medium of [[Dreams]] and makes himself known through vision. If God makes himself known to you through vision, and speaks to you in dream, what is more important than to remember your [[Dreams]] and visions? You can't compare the morning's paper or any book you may read, to your vision of the night, for that is an instruction from the depth of yourself.   
+This is what I learned in vision. Do not put this thought aside because it came to me in vision. In the 12th chapter of the Book of Numbers it is said that God speaks to man through the medium of [Dreams](/Dreams) and makes himself known through vision. If God makes himself known to you through vision, and speaks to you in dream, what is more important than to remember your [Dreams](/Dreams) and visions? You can't compare the morning's paper or any book you may read, to your vision of the night, for that is an instruction from the depth of yourself.   
   
 God in you speaks to you in a dream, as he did to me when he took me on a trip in time to that beautifully staffed mansion at the turn of the century. As spirit, I was invisible to those present; but I heard more distinctly than they, and comprehended the words more graphically then they, because they had their millions; and who is going to tell one who already has millions how to get them. I entered their environment to hear their story, in order to share it with those who will hear and believe my words and then try it.   
   
@@ -57,7 +43,7 @@ The end of your journey is where your journey begins. When you tell me what you 
   
 So I tell you: the greatest thing you can do is to believe a thing into existence, just as our founding fathers did. They had no current example of democracy. It existed in Greece centuries ago, but failed because the Greeks changed their imaginal activity. We could do that too. Don't think for one second we have to continue as a democracy. We could be under dictatorship within twenty-four hours, for everything is possible. If you like democracy, you must be constantly watchful to keep its concepts alive within you. It's the most difficult form of government. A man can voice an opinion and stage a protest here, but in other forms of government he cannot. If you want to enjoy the freedom of a democracy, you must keep it alive by being aware of it.   
   
-Now, if you keep this law, you don't have to broadcast what you want; you simply assume that you have it, for - although your reasonable mind and outer senses deny it - if you persist in your [[Assumption]] your desire will become your reality. There is no limit to your power of belief, and all things are possible to him who believes. Just imagine what an enormous power that is. You don't have to be nice, good, or wise, for anything is possible to you when you believe that what you are imagining is true. That is the way to success.   
+Now, if you keep this law, you don't have to broadcast what you want; you simply assume that you have it, for - although your reasonable mind and outer senses deny it - if you persist in your [Assumption](/Assumption) your desire will become your reality. There is no limit to your power of belief, and all things are possible to him who believes. Just imagine what an enormous power that is. You don't have to be nice, good, or wise, for anything is possible to you when you believe that what you are imagining is true. That is the way to success.   
   
 I believe any man who has been successful in his life's venture has lived as though he were successful. Living in that state, he can name those who aided him in achieving his success; and he may deny that he was always aware of success, but his awareness compelled the aid he received.   
   
@@ -90,10 +76,10 @@ Now let us go into the silence.
 - Your senses may deny it, but if you persist in assuming your desired state, it will manifest in the external world.
 - Your imagination is your eternal body, and everything exists within it.
 
-### [[Dreams]] and Visions
-- God speaks to man in [[Dreams]] and unveils himself in vision.
+### [Dreams](/Dreams) and Visions
+- God speaks to man in [Dreams](/Dreams) and unveils himself in vision.
 - Vision is a waking dream, and a dream occurs when you are not fully awake.
-- [[Dreams]] and visions are instructions from within yourself that should not be ignored.
+- [Dreams](/Dreams) and visions are instructions from within yourself that should not be ignored.
 - The story of Jesus is a mystery that can only be understood through personal experience.
 
 ### The Power of Memory and Belief

@@ -1,32 +1,3 @@
----
-book: The Law and the Promise
-chapter: Through the Looking Glass
-keywords:
-  - Dreams
-bible_ref:
-  - 2 Corinthians 5:7
-  - Galatians 2:20
-  - Ephesians 5:1
-  - John 8:32
-  - Wisdom 11:24
-tags: book
-topics:
-  - We can pass through the senses into imagination
-  - This reveals our power of intervention
-  - Attention is spearhead of imagining
-  - Woman broke blood clot condition
-  - Faith sees the unseen
-  - Choose imagining or reflecting
-  - Self-abandonment is the secret
-  - Woman instantly healed brother from afar
-  - We see what we want to see
-  - Woman visually visited daughter in London from San Francisco
-  - Man is all imagination
-  - Question not the corporeal eye
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"A man that looks on glass,
 On it may stay his eye;
 Or if he pleaseth, through it pass,
@@ -65,13 +36,13 @@ But two mental attitudes to perception are possible, the creative imaginative ef
 
 Man has within him the principle of life and the principle of death.
 
-One is the imagination building its imaginal structures out of the generous [[Dreams]] of fancy. The other is the imagination building its imaginal structures from images reflected by the chill wind of fact.
+One is the imagination building its imaginal structures out of the generous [Dreams](/Dreams) of fancy. The other is the imagination building its imaginal structures from images reflected by the chill wind of fact.
 
 One creates. The other perpetuates.
 
 Man must adopt either the way of faith or the way of sight.
 
-To the extent that man builds from [[Dreams]] of fancy, he is alive; and, therefore, the development of the faculty to pass through the reflective glass of the senses is an increase of life.
+To the extent that man builds from [Dreams](/Dreams) of fancy, he is alive; and, therefore, the development of the faculty to pass through the reflective glass of the senses is an increase of life.
 
 It follows that restricting the imagination by *"staying the eye"* on the reflective glass of the senses is a reduction of life.
 
@@ -115,7 +86,7 @@ This lady *"let go"* with immediate and miraculous results.
 
 *"This took place the night after he had entered the hospital. The following day his wife telephoned me saying, 'It is unbelievable! The doctor can't account for it, Jo, but no operation is necessary. He's so improved that they have agreed to release him tomorrow.' The following Monday, my brother went back to his work and has been perfectly well since that day."* ...J.S.
 
-Not facts — but [[Dreams]] of fancy shape our lives.
+Not facts — but [Dreams](/Dreams) of fancy shape our lives.
 
 She needed no compass to find her brother, nor tools to operate, only the *"Eye of Imagination"*.
 

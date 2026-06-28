@@ -1,18 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Liquid Light
-keywords: []
-bible_ref:
-  - Acts 17:28
-tags: book
-topics:
-  - The world as liquid light
-  - Everything is a crystallization of liquid light
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"In him we live and move, and have our being."* (Acts 17:28)
 
 Psychically, this world appears as an ocean of light containing within itself all things, including man, as pulsating bodies enveloped in liquid light. The Biblical story of the Flood is the state in which man lives. Man is actually inundated in an ocean of liquid light in which countless numbers of light-beings move.

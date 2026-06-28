@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Spiritual Sensation
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Reverend Dr. Trusler's criticism, The Bible as a mystery, The anointed and the son of God, The Son and the Father, Sacred history and the individual, The journey of self-imposed limitation, God as the individual's imagination, Fulfilling scripture, God's Word as imaginal acts, Personal experiences and forgiveness, Personal experiences and forgiveness]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Reverend Dr. Trusler saw the Bible as secular history, and criticized Blake, saying he needed someone to elucidate his ideas. Blake responded by saying: "You ought to know that what is Grand is necessarily obscure to Weak men. That which can be made Explicit to the Idiot is not worth my care. The wisest of the ancients considered what was not too Explicit as fittest for Instruction because it rouses the faculties to act. 
 
 Why is the Bible more Entertaining and Instructive than any other book? Is it not because it is addressed to the Imagination, which is Spiritual Sensation, and only immediately to the Understanding or Reason."
@@ -44,7 +30,7 @@ When your imagination has finished the work he came to do, the sum total of all 
 
 This is the great mystery of the seed. Unless it falls into the earth and dies, it remains alone, but if it dies it bears much fruit. God died by restricting himself to the limit of contraction and opacity of man in order to go through this world of generation and decay. He is now buried in Zion (your skull), which is the stronghold David takes by going up the spiral water-shaft. One night I felt an explosion in my skull, and when everything settled, I, God, observed my son David, my beloved in whom I am well pleased. I found my anointed and fulfilled scripture. I tell you: you are not predestined to be rich or poor, known or unknown. You are here only to fulfill sacred history.
 
-Right now you can use your powerful imagination to assume you are what at the moment your senses and reason deny. Walk in this [[Assumption]], knowing you are all imagination, and all things are possible to you. Dare to believe in the reality of your [[Assumption]] and watch the world play its part relative to its fulfillment. Your [[Assumption]] may appear to be false when first imagined; but if you will persist, it will harden into fact, because God is he who is doing the assuming. All of the objective facts you see here on earth are only shadows, which fade because imagination is their reality.
+Right now you can use your powerful imagination to assume you are what at the moment your senses and reason deny. Walk in this [Assumption](/Assumption), knowing you are all imagination, and all things are possible to you. Dare to believe in the reality of your [Assumption](/Assumption) and watch the world play its part relative to its fulfillment. Your [Assumption](/Assumption) may appear to be false when first imagined; but if you will persist, it will harden into fact, because God is he who is doing the assuming. All of the objective facts you see here on earth are only shadows, which fade because imagination is their reality.
 
 But the real predestination spoken of in scripture is not secular, but sacred. It was proclaimed before that the world was. Then God died in order to assume these garments of flesh, and play all the parts. I know, for I speak from experience. I ask you to take my yoke upon you and learn from me. Believe my experiences, for *"If I be lifted up I draw all men unto me."* I have been lifted up out of this world and out of this earthly body. I ascended in a spiral motion to find myself clothed in a body of fire and air. I needed no sun, moon, or stars, at the time, for I knew myself to be the light of the world. As Spirit, I glided above the earth, where I came upon a scene of human imperfection. The blind, the lame, the halt, and the withered, were waiting for me there; and as I glided by, each was made perfect because I was perfect. Then these words came to my mind: *"Be ye perfect, as your Father in heaven is perfect."* That night, in that experience, who played that part? The Father. And who is the Father? I am! And when each was made perfect, the heavenly chorus sang out the last cry on the only cross God ever wore, saying: *"It is finished."*
 
@@ -120,7 +106,7 @@ Now let us go into the silence.
 
 ### God as the individual's imagination
 - The speaker reiterates that God is the individual's imagination, not a separate being or higher power.
-- The speaker encourages the audience to test their own imagination by imagining what they desire and persisting in that [[Assumption]].
+- The speaker encourages the audience to test their own imagination by imagining what they desire and persisting in that [Assumption](/Assumption).
 - The speaker emphasizes that all things are possible through the individual's imagination, as everything in the world was first imagined.
 
 ### Fulfilling scripture

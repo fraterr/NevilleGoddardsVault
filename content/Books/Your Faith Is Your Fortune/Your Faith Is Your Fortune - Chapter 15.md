@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Interval of Time
-keywords:
-  - Sabbath
-bible_ref:
-  - John 14:1-3
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Let not your heart be troubled; ye believe in God, believe also in me. In my Father’s house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."* (John 14: 1-3)
 
 *“Let not your heart be troubled; ye believe in God, believe also in me. In my Father’s house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also.”* The ME in whom you must believe is your consciousness, the I AM; it is God. It is also the Father’s house containing within itself all conceivable states of consciousness. Every conditioned state of consciousness is called a mansion.
@@ -34,7 +20,7 @@ If today were Wednesday and you decided that it would be quite possible for your
 
 When this is accomplished, feel the joy of having received that which on Wednesday was but a desire. Feel the complete thrill of having received it, and then return to Wednesday, the point in time you left behind you. In doing this you created a vacuum in consciousness by moving from Wednesday to Sunday. Nature, abhorring vacuums, rushes in to fill it, thereby fashioning a mold in the likeness of that which you potentially create, namely, the joy of having realized your defined desire.
 
-As you return to Wednesday you will be filled with a joyful expectancy because you have established the consciousness of that which must take place the following Sunday. As you walk through the interval of Thursday, Friday and Saturday, nothing disturbs you regardless of conditions, because you predetermined that which you would be on the [[Sabbath]] and that remains an unalterable conviction.
+As you return to Wednesday you will be filled with a joyful expectancy because you have established the consciousness of that which must take place the following Sunday. As you walk through the interval of Thursday, Friday and Saturday, nothing disturbs you regardless of conditions, because you predetermined that which you would be on the [Sabbath](/Sabbath) and that remains an unalterable conviction.
 
 Having gone before and prepared the place, you have returned to John and are now taking him with you through the interval of three days into the prepared place that he might share your joy with you, for where I AM there ye may also be.
 

@@ -1,14 +1,3 @@
----
-book: 
-chapter: Truth, The Word Of God
-keywords: []
-bible_ref:
-tags: lecture
-topics: ["Two Baptisms: Water of Repentance and Holy Spirit", Repentance and Baptism with Water, Baptism with the Holy Spirit, Baptism as a Psychological Drama, The Unveiling of the Father, Restoration and Resurrection]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 If truth could ever be told so that it is understood, it will be believed. It is my hope that I can make the truth of scripture so understandable you will believe it. But whether you do or not, one day you will; for scripture will fulfill itself in you and then you will understand it perfectly.
 
 Scripture speaks of two baptisms, baptism with the water of repentance, and baptism with the Holy Spirit. Paul tells us: *"I baptize with the water of repentance, but there will come one after me who is mightier than I. He will baptize with the Holy Spirit."*

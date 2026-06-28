@@ -1,23 +1,12 @@
----
-book: 
-chapter: Eschatology-The Drama Of The End
-keywords: [Revision, Prayer, Dreams]
-bible_ref:
-tags: lecture
-topics: [Disciples are Learners, Jesus Christ as the Pattern Man, Eschatological Dreams, The Culmination of Jesus Christ's Teaching, Unity and Love, The Practicality of Spiritual Truth, Eschatology and Scripture, Final Thoughts]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 The word *"disciple"* means *"learner"*, and anyone who hears God's pattern of salvation from one who has experienced it and believes, hungering to learn more, is a disciple. Tradition tells us Peter, James, and John were disciples. No, you are a disciple if you believe my words!  
   
 Now, when I speak of Jesus, I am speaking of the pattern man, for *"He has made known unto me the purpose of his will which he set forth in Christ as a plan (a pattern) for the fullness of time."* That pattern has unfolded in me and I can tell you from experience: Jesus Christ is the unfoldment of the Father and the Son. If you believe me, you are my disciples.  
   
-Now, I have a few perfectly marvelous eschatological [[Dreams]] to share with you. Here is an experience of one who heard and believes. This is his dream: He said: *"You were on the platform, teaching. Although you smiled at me there was great intensity in your eyes. Taking a golden arrow from your side, you placed it in your bow and shot it directly at me. As it came toward me I could read the word, "*resurrection*" imprinted upon it as it penetrated my forehead. Then you shot a second arrow, which read "*David*" and it penetrated my chest. The third arrow carried the word "*ascension*" and it penetrated my belly, touching my spine. The fourth arrow carried no word, only a white dove, and as it hit me I felt as though every pore of my body had been struck. I have never known such ecstasy of love before. I felt like a spiritual fountain of pure, pure love."*   
+Now, I have a few perfectly marvelous eschatological [Dreams](/Dreams) to share with you. Here is an experience of one who heard and believes. This is his dream: He said: *"You were on the platform, teaching. Although you smiled at me there was great intensity in your eyes. Taking a golden arrow from your side, you placed it in your bow and shot it directly at me. As it came toward me I could read the word, "*resurrection*" imprinted upon it as it penetrated my forehead. Then you shot a second arrow, which read "*David*" and it penetrated my chest. The third arrow carried the word "*ascension*" and it penetrated my belly, touching my spine. The fourth arrow carried no word, only a white dove, and as it hit me I felt as though every pore of my body had been struck. I have never known such ecstasy of love before. I felt like a spiritual fountain of pure, pure love."*   
   
 *"The following night in a dream, a man I have never seen approached me. Radiating love he said: 'I am preparing a great feast and I will come on the seventeenth to take you with me.'"*  
   
-Now this could literally mean the seventeenth, but in symbolism seventeen is a marvelous number. In Hebrew you do not write the number seventeen as *"one-seven,"* but *"seven-ten,"* denoting greater importance. This number first appears in the 37th chapter of Genesis as *"Joseph was seventeen years old."* Then in the 47th chapter of Genesis, Joseph and his father are taught by Jacob [sic] for seventeen years. So seventeen, denoting a combination of seven and ten, is broken down to read: seven - as spiritual perfection, and ten - as order perfection. In this gentleman's preceding vision the order was perfect, beginning with resurrection, then David, the ascension, and finally the dove who smothered him with love. Here is order perfection and spiritual perfection! I can say to him tonight: the arrows have penetrated you and nothing can stop them from reaching their destiny in the world beyond the world of [[Dreams]]. You are a complete being now, as the pattern is buried in you; and in the not-distant future Jesus Christ, the pattern man, will unfold from within.  
+Now this could literally mean the seventeenth, but in symbolism seventeen is a marvelous number. In Hebrew you do not write the number seventeen as *"one-seven,"* but *"seven-ten,"* denoting greater importance. This number first appears in the 37th chapter of Genesis as *"Joseph was seventeen years old."* Then in the 47th chapter of Genesis, Joseph and his father are taught by Jacob [sic] for seventeen years. So seventeen, denoting a combination of seven and ten, is broken down to read: seven - as spiritual perfection, and ten - as order perfection. In this gentleman's preceding vision the order was perfect, beginning with resurrection, then David, the ascension, and finally the dove who smothered him with love. Here is order perfection and spiritual perfection! I can say to him tonight: the arrows have penetrated you and nothing can stop them from reaching their destiny in the world beyond the world of [Dreams](/Dreams). You are a complete being now, as the pattern is buried in you; and in the not-distant future Jesus Christ, the pattern man, will unfold from within.  
   
 Now, the earliest gospel begins with these words: *"The beginning of the gospel of Jesus Christ."* The world *"gospel"* means *"good news"*, not *"good advice."* So the gospel is *"The beginning of the good news of Jesus Christ,"* the good news of how God actually becomes Man that Man may become God. That's the good news I share with all.  
   
@@ -25,7 +14,7 @@ Here is another dream: This lady found herself walking with members of the group
   
 In the earliest gospel you will discover that the turning point is repentance. The very first words spoken by the pattern man are: *"The time is fulfilled and the kingdom of God is at hand. Repent and believe in the gospel."* Believe the good news that you have heard from me. To repent is to radically change your mind. Regardless of what you believe, when God's pattern of salvation is presented, can you accept it? Can you completely turn from the belief in a physical Christ on the outside, to the belief in a man of spirit on the inside? Or are you like the foolish Galatians, before whose eyes Jesus Christ was publicly portrayed as crucified? Do you know what the word *"portray"* means? *"To make a picture of; to describe in words; to play a part like a drama on the stage."* Jesus Christ was portrayed as crucified; so *"Let me ask you only this, did you receive the Spirit by the works of the law, or by hearing with faith? Are you so foolish having received the Spirit, are you now ending with the flesh?"*  
   
-Repentance is turning around from the belief of a fleshly being called Jesus Christ, to the spirit that is Christ, the pattern man who is trying to awaken in you. Turn around by exercising your right to change your mind. Dare to believe the opposite, in spite of the facts that seem to be screaming at you. This is what I call *"[[Revision]]"* and the Bible calls *"repentance"*. To revise is to repeal and if you have repealed a thing you have changed it. You can modify your concept of Christ and not completely change it by holding onto a little bit of the physical nature; but eventually you will drop it and turn around to start moving upward with the spiritual Christ, as the pattern which must unfold in all, unfolds in you.  
+Repentance is turning around from the belief of a fleshly being called Jesus Christ, to the spirit that is Christ, the pattern man who is trying to awaken in you. Turn around by exercising your right to change your mind. Dare to believe the opposite, in spite of the facts that seem to be screaming at you. This is what I call *"[Revision](/Revision)"* and the Bible calls *"repentance"*. To revise is to repeal and if you have repealed a thing you have changed it. You can modify your concept of Christ and not completely change it by holding onto a little bit of the physical nature; but eventually you will drop it and turn around to start moving upward with the spiritual Christ, as the pattern which must unfold in all, unfolds in you.  
   
 Now here is another dream. This lady writes: *"In my dream I am at a neighbor's house which is filled with numerous people. Suddenly realizing it is my responsibility to feed them all, as I extend my hands everyone is fed. Feeling detached and no longer a part of the group, I depart to discover a shovel, a pitchfork, and a rake have been placed in front of my house. Entering the house I find a friend there whose husband has been dead for many years. Smiling at me, she says: 'My husband wants to see you.' Going to the window and looking out I watch my friend's husband, wearing a uniform of either a general or a colonel, bring the most beautiful white horse I have ever seen into my house."* (The only one who rides a white horse in scripture is the Word of God called Jesus Christ. The white horse is hers, for she has the implements used to care for one: a shovel, a pitchfork and a rake.)  
   
@@ -35,7 +24,7 @@ Suddenly a man is standing before her. Bending forward he removed the top of his
   
 Another lady writes, saying: *"I was looking at a deep cavern in the earth watching water running into it as though from a long trough. A child, about eight months old, was sitting on its bank looking at his extended hands. You, Neville were standing high above us, looking down at the child and me. Then I heard the words: 'Can a man bear a child?' and I awoke repeating that question over and over again."* Those are the very words you will find in the 30th chapter of Jeremiah, and when you begin to express scripture you are at the very end of your journey.  
   
-All of the [[Dreams]] I have shared with you tonight are eschatological. Here is another one. This lady finds herself in a huge corral with an awareness of being the center of unlimited expanse. The corral gate is open, and hanging on the top of the gatepost is half of the carcass of a human being. It seemed natural for it to be there and as she looked the feeling of infinite freedom possessed her.  
+All of the [Dreams](/Dreams) I have shared with you tonight are eschatological. Here is another one. This lady finds herself in a huge corral with an awareness of being the center of unlimited expanse. The corral gate is open, and hanging on the top of the gatepost is half of the carcass of a human being. It seemed natural for it to be there and as she looked the feeling of infinite freedom possessed her.  
   
 In the 26th chapter of the Book of Exodus, the 12th verse refers to the half curtain. The significance of the curtain is given in the 10th chapter of Hebrews, the 20th verse: *"He opened a new and living way through the curtain that is his flesh."* The flesh she saw represented the curtain of the temple, which is torn from top to bottom in order to free yourself from the world of sin and death and enter the new and living way of life. And with this experience, freedom is yours.  
   
@@ -57,7 +46,7 @@ Take the passages I have quoted tonight and see how they relate to the visions. 
   
 Now this may seem a deep spiritual night to many of you, but may I tell you it is directly practical, for while you were with me this night you left all of your worries and cares of the day on the conveyer belt which is moving automatically. Your heavenly Father knows your needs and is caring for them while you travel in the spirit world with me. You have left those who are self complacent, content with their own little circle. Those who know they are right are in hell where there is no forgiveness of sin. In hell it's all self-righteousness, all justifying oneself. One of the greatest of all human weaknesses is the necessity of always being right, and that is hell until one becomes loose enough to ask questions. Whether the truth is accepted or not is irrelevant, but when they ask, answer directly: *"When you find God you are going to find yourself. And when you find the truth you will discover that you and God the Father are one."*  
   
-If you haven't read the beautiful 17th chapter of John, I urge you to do so. I think it is the most glorious [[Prayer]] ever written. *"O Father, I have manifested thy name to those thou gavest to me. They were yours and you gave them to me that they may be one even as we are one."* Here he tells you that God and his pattern are one. In the beginning was the Word (the plan, the meaning of it all) and the Word was with God and the Word was God. So the pattern and he who sent it are one. The pattern is what was sent.  
+If you haven't read the beautiful 17th chapter of John, I urge you to do so. I think it is the most glorious [Prayer](/Prayer) ever written. *"O Father, I have manifested thy name to those thou gavest to me. They were yours and you gave them to me that they may be one even as we are one."* Here he tells you that God and his pattern are one. In the beginning was the Word (the plan, the meaning of it all) and the Word was with God and the Word was God. So the pattern and he who sent it are one. The pattern is what was sent.  
   
 Always claiming that he was sent, he tells you that the sender (the Father) and the sent (the pattern) are one; therefore the Father sends himself as the pattern which unfolds. Then the man in whom it unfolds tells it, and he always has a remnant who hears and believes. He won't get the world to believe him, for they are busy moving down on the conveyer belt. Although they hear the call to repent, they will not stop to change their beliefs for one little moment.  
   
@@ -79,9 +68,9 @@ Now let us go into the silence.
 ### Jesus Christ as the Pattern Man
 - Jesus Christ is the pattern man who unfolds the Father and the Son.
 - If someone believes in Jesus Christ as the pattern man, they are a disciple.
-- The speaker shares eschatological [[Dreams]] that illustrate this belief.
+- The speaker shares eschatological [Dreams](/Dreams) that illustrate this belief.
 
-### Eschatological [[Dreams]]
+### Eschatological [Dreams](/Dreams)
 - A dream of a golden arrow symbolizes resurrection, another arrow symbolizes David, and a third arrow symbolizes ascension.
 - The fourth arrow carries a white dove, symbolizing pure love.
 - Another dream indicates a great feast and a promise to be taken on the seventeenth.
@@ -95,7 +84,7 @@ Now let us go into the silence.
 - The dream indicates faith in the pattern man and the promise of a child.
 - Another dream involves looking into a man's skull and seeing a tiny head wearing a crown, symbolizing the birth of Christ within.
 - The dream also involves the symbolism of a deep cavern and a child on the bank of a trough of water.
-- All of these [[Dreams]] indicate the eschatological nature of the unfolding pattern within.
+- All of these [Dreams](/Dreams) indicate the eschatological nature of the unfolding pattern within.
 
 ### The Culmination of Jesus Christ's Teaching
 - The teaching of Jesus Christ culminates in a mystical union between the believer and the Father and the Son.
@@ -115,7 +104,7 @@ Now let us go into the silence.
 - The ultimate goal is to bring the pattern to those who are loved.
 
 ### Eschatology and Scripture
-- All of the [[Dreams]] shared in the text are eschatological, which means they relate to the end of the drama and the turning from sin and death to eternal life.
+- All of the [Dreams](/Dreams) shared in the text are eschatological, which means they relate to the end of the drama and the turning from sin and death to eternal life.
 - The fulfillment of scripture is the purpose of life.
 
 ### Final Thoughts

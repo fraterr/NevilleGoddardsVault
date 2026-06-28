@@ -1,38 +1,3 @@
----
-book: Freedom for All
-chapter: The Oneness of God
-keywords: []
-bible_ref:
-  - John 10:8
-  - John 10:2
-  - John 10:7
-  - John 10:9
-  - John 10:30
-  - John 11:25
-  - Exodus 3:14
-  - Exodus 20:7
-  - Isaiah 42:8
-  - Isaiah 45:5
-  - Psalms 46:10
-  - Philippians 2:6
-  - Revelation 1:8
-  - Revelation 22:13
-tags: book
-topics:
-  - Unconditioned consciousness is God
-  - I AM aware of being before I became someone
-  - I cannot forget I AM
-  - Knowing I AM is the only reality
-  - I AM is the unconditioned reality
-  - The world reflects my conditioned consciousness
-  - I am the cause of my conditions
-  - I AM is God
-  - Knowing I AM makes truths of scripture clear
-  - Define yourself as your highest ideal
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 > [!info] Hear, O Israel 
 HEAR, O Israel: the Lord our God is one Lord.
 Hear, O Israel:

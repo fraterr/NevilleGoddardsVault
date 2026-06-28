@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Moses - Elijah - Jesus
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Introduction, The Book of Genesis and the Seed Plot, The Book of Exodus and Moses, Moses, Elijah, and Jesus, The Name of God, Passage through States of Consciousness, Personal Experience and Revelation, Signs and Wonders, Meeting the Eternal States, Trusting in the Name, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In Biblical language a man's name reveals his character. His name is an expression of this essential nature of the bearer. As I have said in the past, these characters are not persons; they are eternal states, spiritual states, through which the immortal soul passes to awaken as God. To understand tonight's subject let us go back just for a moment. As you know, I have told you the Bible is God's plan, something to be understood only through revelation. It is revealed, it is true, but seems the most impossible thing in the world, but will prove itself true in time. 
 
 The book of Genesis is the seed plot. As you remember it is the beginning: *"In the beginning God"* and the book ended on the note: *"In a coffin in Egypt."* The one in the coffin was called Joseph. Joseph is human imagination - it is of one tissue with divine imagination, but here it is human imagination, placed in a coffin. He extracted a promise from his brothers that they will not leave his body in Egypt; they will take it up to the land that was promised by God to his forefathers, Abraham, Isaac, and Jacob. That is the end of the book, the seed plot of the Bible. Then we start for the unfoldment of the seed that was planted in the book of Genesis.

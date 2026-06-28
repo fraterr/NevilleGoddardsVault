@@ -1,25 +1,3 @@
----
-book: The Power of Awareness
-chapter: Righteousness
-keywords:
-  - Assumption
-bible_ref:
-  - Daniel 4:27
-  - Job 27:6
-  - Genesis 30:33
-  - Matthew 5:20
-  - Matthew 6:33
-tags: book
-topics:
-  - Righteousness is the Consciousness of Being
-  - Righteousness is Emphasized Throughout Bible
-  - Misunderstanding Being Saved from Sin
-  - Exceed Limited Righteousness
-  - Pitfall is Focusing on Things
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 In the preceding chapter righteousness was defined as the consciousness of already being what you want to be. This is the true psychological meaning and obviously does not refer to adherence to moral codes, civil law, or religious precepts. You cannot attach too much importance to being righteous. In fact, the entire Bible is permeated with admonition and exhortations on this subject.
 
 *"Break off thy sins by righteousness."* (Dan. 4:27)
@@ -28,11 +6,11 @@ In the preceding chapter righteousness was defined as the consciousness of alrea
 
 Very often the words sin and righteousness are used in the same quotation. This is a logical contrast of opposites and becomes enormously significant in the light of the psychological meaning of righteousness and the psychological meaning of sin. Sin means to miss the mark. Not to attain your desire, not to be the person you want to be, is sinning. Righteousness is the consciousness of already being what you want to be. It is a changeless educative law that effects must follow causes. Only by righteousness can you be saved from sinning.
 
-There is a widespread misunderstanding as to what it means to be *“saved from sin.”* The following example will suffice to demonstrate this misunderstanding and to establish the truth. A person living in abject poverty may believe that by means of some religious or philosophical activity he can be saved from sin” and his life improved as a result If however, he continues to live in the same state of poverty, it is obvious that what he believed was not the truth, and, in fact, he was not “saved “ On the other hand, he can be saved by righteousness. The successful use of the law of [[Assumption]] would have the inevitable result of an actual change in his life. He would no longer live in poverty. He would no longer miss the mark. He would be saved from sin.
+There is a widespread misunderstanding as to what it means to be *“saved from sin.”* The following example will suffice to demonstrate this misunderstanding and to establish the truth. A person living in abject poverty may believe that by means of some religious or philosophical activity he can be saved from sin” and his life improved as a result If however, he continues to live in the same state of poverty, it is obvious that what he believed was not the truth, and, in fact, he was not “saved “ On the other hand, he can be saved by righteousness. The successful use of the law of [Assumption](/Assumption) would have the inevitable result of an actual change in his life. He would no longer live in poverty. He would no longer miss the mark. He would be saved from sin.
 
 *"Except your righteousness shall exceed the righteousness of the scribes and Pharisees, ye shall in no wise enter into the kingdom of heaven."* (Matt. 5:20). Scribes and Pharisees means those who are influenced and governed by the outer appearances — the rules and customs of the society in which they live, the vain desire to be thought well of by other men. Unless this state of mind is exceeded, your life will be one of limitation — of failure to attain your desires — of missing the mark — of sin. This righteousness is exceeded by true righteousness, which is always the consciousness of already being that which you want to be.
 
-One of the greatest pitfalls in attempting to use the law of [[Assumption]] is focusing your attention on things, on a new home, a better job, a bigger bank balance. This is not the righteousness without which you *“die in your sins.”* Righteousness is not the thing itself; it is the consciousness, the feeling of already being the person you want to be, of already having the thing you desire. *"Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you."* (Matthew 6:33).
+One of the greatest pitfalls in attempting to use the law of [Assumption](/Assumption) is focusing your attention on things, on a new home, a better job, a bigger bank balance. This is not the righteousness without which you *“die in your sins.”* Righteousness is not the thing itself; it is the consciousness, the feeling of already being the person you want to be, of already having the thing you desire. *"Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you."* (Matthew 6:33).
 
 The kingdom (entire creation) of God (your I AM) IS within you. Righteousness is the awareness that you already possess it all.
 

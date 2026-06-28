@@ -1,24 +1,10 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Perception
-keywords: [Assumption, Prayer]
-bible_ref:
-tags: lecture
-topics: [Perception and Imagination, Imagination and Divinity, The Nature of God and Imagination, Jesus Christ and Imagination, The Power of Imagination and Transformation, The Goodness of God and Concealed Truths, Individual Paths and Personal Choices, The Return to Unity and Expansion of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 There is nothing that appears in perception which cannot be duplicated in fancy, and what the world perceives is all imaginative in character. Here is a graphic example: I am sure everyone knows what it is to detect the fragrance of a rose. Now smell is a chemical sense and depends upon contact for perception. But does one really need a rose to detect its fragrance? Cannot its fragrance be reproduced imaginatively? 
 
 Having smelled an Easter lily, can you not discriminate between the smell of a rose and a lily, imaginatively? Then they do not exist independent of you, but live on some level (or levels) of your imagination! Can you call upon your memory of an experience of long ago, bring it back, and duplicate it in fancy? If so, then this world is no different from your imaginal one! 
 
 In 1820, William Blake wrote 'The Presence of the Divine Teacher,' in which he said: *"Man is all Imagination and God is Man and exists in us and us in Him. The Divine Body Jesus, we are his members."* In this statement Blake does not separate the members from the one body, the one spirit, one hope, one Lord, one faith, one God and Father of us all. There is only one Imaginal Body. We are all His members, for we are all Imagination! 
 
-You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. There is no fiction in the true sense of the world, for when a state is imagined, it is created. [[Prayer]] is imagination drenched in feeling. A desire, drenched in the feeling of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
+You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. There is no fiction in the true sense of the world, for when a state is imagined, it is created. [Prayer](/Prayer) is imagination drenched in feeling. A desire, drenched in the feeling of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
 
 Everything here was once only imagined. The clothes you wear, the chair in which you are now seated, the building which houses you - all were first only imagined. Everything begins and ends in the human imagination. The source of all phenomena is Divine Imagining, which is God Himself! 
 
@@ -32,7 +18,7 @@ The elohim is not something distinct and separate from the many, for unity has a
 
 It is not *"I, and another called 'the Lord'. Everyone is the Lord, as told us in the Sh'ma, the great Hebrew confession of faith: "*Hear, 0 Israel, the Lord our God, the Lord is one." 
 
-God has risen and is rising in all. He deliberately took upon himself man's nature. By that act of [[Assumption]], Jesus Christ became the pattern upon which the nature of man is molded. He didn't take a person called Neville upon himself, but my nature. And in so doing Jesus Christ became the type upon which I have been molded, raising this animal energy - called man, to divinity - called God. 
+God has risen and is rising in all. He deliberately took upon himself man's nature. By that act of [Assumption](/Assumption), Jesus Christ became the pattern upon which the nature of man is molded. He didn't take a person called Neville upon himself, but my nature. And in so doing Jesus Christ became the type upon which I have been molded, raising this animal energy - called man, to divinity - called God. 
 
 Having fallen, God must now rescue himself. This he will do, for he has prepared a way for his return. You see, no man or group of men killed Jesus. It is he who said: *"No man takes my life, I lay it down myself. I have the power to lay it down and the power to lift it up again."* Experiencing death by taking upon himself the animal nature of man, Imagination takes that energy and transforms it into his own likeness. 
 
@@ -85,7 +71,7 @@ Now let us go into the silence.
 - The fallen state of humanity is seen as temporary, as God will ultimately bring all individuals back together to form the collective presence of unity.
 
 ### Jesus Christ and Imagination
-- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of [[Assumption]].
+- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of [Assumption](/Assumption).
 - He did not embody a specific individual like Neville, but rather the nature of every human being.
 - By doing so, Jesus became the type upon which each individual is molded, raising human existence to divine levels.
 

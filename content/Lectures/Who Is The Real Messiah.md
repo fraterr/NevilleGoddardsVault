@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Who Is The Real Messiah
-keywords: [Prayer]
-bible_ref:
-tags: lecture
-topics: [The Identity of Jesus Christ, The Unveiling of Memory, The Return to Godhood, The Importance of Love, The Divine Truth, Practical Implications]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 It is in us as persons that God is revealed. *"He who began a good work in you will bring it to completion at the day of Jesus Christ,"* [Philippians 1:6]. To say *"Jesus Christ"* is the same as saying *"Jehovah’s Messiah."* Christ is Messiah.
 
 This will not shock you because you have been coming – maybe all of you – for quite a while. It certainly would be a shock to the outer world to learn who Messiah is. But I am telling you from my own personal experience Who-He-Is. We are told in Scripture, *"He is the Son of God,"* [Acts 9:20]. I am telling you tonight who the Son of God really is; and you will never in Eternity find another Son – not in Eternity!

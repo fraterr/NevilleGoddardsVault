@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God's Almighty Power
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [God's almighty power and wisdom, The Father and the Son, Trusting in one's own imagination, Doubt and trust in God, The power of imagination and the Lord, Trusting God in practical situations, The example of the speaker's father, Trusting only one's own wonderful human imagination, Trusting only one's own wonderful human imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 God's almighty power and wisdom expresses itself most characteristically in the acceptance of what the world calls weakness or foolishness.   
   
 Matthew tells the story of one who - Knowing himself to be the personification of God's creative power and wisdom - questions himself, saying: *"If you are the Son of God, turn this stone into bread."* (Matthew 4) Then he quoted the 8th chapter of Deuteronomy, saying: *"It is written, 'Man shall not live by bread alone, but by every word that proceeds out of the mouth of God.' “Here we discover that his hunger is no longer for bread made with flour, but for the hearing of the word of God, with understanding. The conflict recorded in this chapter is taking place in the mind of the individual, although it appears to be happening on the outside. Standing on the pinnacle, his adversary quoted the 91st Psalm, saying: "*If you are the Son of God cast yourself down from here, for it is written, 'He will give his angels power to lift you up lest you dash your foot against a stone.'*" Then, quoting the 6th chapter of Deuteronomy, he replied: "*It is written, 'You shall not tempt the Lord your God.' "   
@@ -24,7 +10,7 @@ When I was drafted, and we as a country were at war, in the eyes of the world I 
   
 Trusting God, I slept as though I were honorably discharged and out of the army. I did everything in my mind's eye that I would do were it a physical fact, and fell asleep in that knowledge. Then, in vision, I saw my discharge paper with the word *"Disapproved"* crossed out and the hand of God write *"Approved"* above it in bold script. And when I heard the words: *"That which I have done, I have done. Do nothing!"* I did nothing. Nine days later I was honorably discharged and back in my home in New York City.   
   
-Remembering what I had done to get out of the army, when I was confronted with a similar problem a few years later, I applied the same principle to get out of the island of Barbados. Like Paul, I knew whom I have believed; so when I was told I could not leave the island for months, I assumed once more that I am where I would like to be. I slept in the [[Assumption]] it was true, and within hours the confirmation was mine. So you see, I know, from experimental faith, the one in whom I believe. You must believe in your human imagination and make him the rock upon which you stand. He is the Lord your God, and the only one whom you serve. If you are going to serve another, then you do not know God. If your boss tells you to do what he says and eventually you will get a raise, and your trust is in your boss, then you don't trust the Lord your God. Put your faith in anyone outside of your own wonderful human imagination and you don't trust God, for there is no other creative power!   
+Remembering what I had done to get out of the army, when I was confronted with a similar problem a few years later, I applied the same principle to get out of the island of Barbados. Like Paul, I knew whom I have believed; so when I was told I could not leave the island for months, I assumed once more that I am where I would like to be. I slept in the [Assumption](/Assumption) it was true, and within hours the confirmation was mine. So you see, I know, from experimental faith, the one in whom I believe. You must believe in your human imagination and make him the rock upon which you stand. He is the Lord your God, and the only one whom you serve. If you are going to serve another, then you do not know God. If your boss tells you to do what he says and eventually you will get a raise, and your trust is in your boss, then you don't trust the Lord your God. Put your faith in anyone outside of your own wonderful human imagination and you don't trust God, for there is no other creative power!   
   
 If you put your trust in knowing the right people, having stocks and bonds, or money in the bank, you are trusting false gods. In 1925 I was in London, dancing for one hundred pounds a week. That was $480 U.S. dollars. We had an offer to go to Paris and on to Germany if we would accept payment in marks or francs, but we declined, for they were of no value. Their money was printed so fast, the paper was more valuable than that which was printed on it. I had traveled to London with a German family who were American by adoption. They had enormous securities in marks, and thought themselves very rich; but when we returned, they were poorer than church mice, as every cent they had was gone. Putting their trust in German marks was trusting a false god. Your boss is a false god. I don't care what it is - everything outside of self is false.   
   

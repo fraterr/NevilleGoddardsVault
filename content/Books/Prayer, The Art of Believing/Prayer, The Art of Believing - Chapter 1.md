@@ -1,35 +1,18 @@
----
-book: Prayer, The Art of Believing
-chapter: Law of Reversibility
-keywords:
-  - Prayer
-  - Dreams
-bible_ref: null
-tags: book
-topics:
-  - The Essence of Prayer is Faith
-  - The Universal Law of Reversibility
-  - Pray Feeling the Desire Fulfilled
-  - The Psychophysical Cause-Effect Law.
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-*"Pray for my soul, more things are wrought by [[Prayer]] than this world [[Dreams]] of"* (Tennyson).
+*"Pray for my soul, more things are wrought by [Prayer](/Prayer) than this world [Dreams](/Dreams) of"* (Tennyson).
 
-[[Prayer]] is an art and requires practice. The first requirement is a controlled imagination. Parade and vain repetitions are foreign to [[Prayer]]. Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for [[Prayer]] is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
+[Prayer](/Prayer) is an art and requires practice. The first requirement is a controlled imagination. Parade and vain repetitions are foreign to [Prayer](/Prayer). Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for [Prayer](/Prayer) is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
 
-The ceremonies that are customarily used in [[Prayer]] are mere superstitions and have been invented to give [[Prayer]] an air of solemnity. Those who do practice the art of [[Prayer]] are often ignorant of the laws that control it.
+The ceremonies that are customarily used in [Prayer](/Prayer) are mere superstitions and have been invented to give [Prayer](/Prayer) an air of solemnity. Those who do practice the art of [Prayer](/Prayer) are often ignorant of the laws that control it.
 
 They attribute the results obtained to the ceremonies and mistake the letter for the spirit.
 
-The essence of [[Prayer]] is faith; but faith must be permeated with understanding to be given that active quality which it does not possess when standing alone.
+The essence of [Prayer](/Prayer) is faith; but faith must be permeated with understanding to be given that active quality which it does not possess when standing alone.
 
 *"Therefore, get wisdom; and with all thy getting get understanding."*
 
 This book is an attempt to reduce the unknown to the known, by pointing out conditions on which prayers are answered, and without which they cannot be answered.
 
-It defines the conditions governing [[Prayer]] in laws that are simply a generalization of our observations
+It defines the conditions governing [Prayer](/Prayer) in laws that are simply a generalization of our observations
 
 The universal law of reversibility is the foundation on which its claims are based.
 
@@ -45,7 +28,7 @@ If you knew how you would feel were you to realize your objective, then, inverse
 
 The injunction, to pray believing that you already possess what you pray for, is based upon a knowledge of the law of inverse transformation.
 
-If your realized [[Prayer]] produces in you a definite feeling or state of consciousness, then, inversely, that particular feeling or state of consciousness must produce your realized [[Prayer]].
+If your realized [Prayer](/Prayer) produces in you a definite feeling or state of consciousness, then, inversely, that particular feeling or state of consciousness must produce your realized [Prayer](/Prayer).
 
 Because all transformations of force are reversible, you should always assume the feeling of your fulfilled wish.
 
@@ -64,15 +47,15 @@ If a physical fact can produce a psychological state, a psychological state can 
 
 ## Summary
 
-### The Essence of [[Prayer]] is Faith
+### The Essence of [Prayer](/Prayer) is Faith
 
-- [[Prayer]] is an art requiring practice and controlled imagination, not empty formulas
-- Faith is the essence of [[Prayer]], but must be permeated with understanding to be active
+- [Prayer](/Prayer) is an art requiring practice and controlled imagination, not empty formulas
+- Faith is the essence of [Prayer](/Prayer), but must be permeated with understanding to be active
 - One must obtain wisdom and understanding
 
 ### The Universal Law of Reversibility
 
-- The book is based on the universal law of reversibility to explain how [[Prayer]] works
+- The book is based on the universal law of reversibility to explain how [Prayer](/Prayer) works
 - Every force transformation is reversible: heat can produce mechanical motion and vice versa
 - If you know the state resulting from realizing a goal, by reversibility you can realize that goal by assuming that state
 

@@ -1,48 +1,13 @@
----
-book: Awakened Imagination
-chapter: The Pruning Shears of Division
-keywords:
-  - Revision
-bible_ref:
-  - Romans 15:47
-  - 1Corinthians 15:47
-  - Luke 15:11-32
-  - Luke 6:37
-  - Proverbs 3:17
-  - Matthew 5:39
-  - Matthew 7:12
-  - Matthew 10:36
-  - Colossians 1:27
-  - James 4:17
-tags: book
-topics:
-  - Revision as the First Act of Cure
-  - Daily Revision Exercise
-  - The Purpose of Revision
-  - Forgiveness Through Revision
-  - Make Revision a Continuous Process
-  - Revising for Transformation
-  - Pleasure and Attention in Revision
-  - Battle Within Our Imagination
-  - Radical Change Through Revision
-  - Artist Friend's Experience
-  - Force vs. Revision
-  - Guidance by Love
-  - Inner Creates Outer
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"The second Man is the Lord from Heaven."* (1Corinthians 15:47)
 
 
 THE VERY first act of correction or cure is always *"revise"*. One must start with oneself. It is one's attitude that must be changed.  
 What we are, that only can we see. Emerson  
 It is a most healthy and productive exercise to daily relive the day as you wish you had lived it, revising the scenes to make them conform to your ideals.  
-For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in imagination, read the revised letter over and over again. This is the essence of [[Revision]], and [[Revision]] results in repeal.  
+For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in imagination, read the revised letter over and over again. This is the essence of [Revision](/Revision), and [Revision](/Revision) results in repeal.  
 The one requisite is to arouse your attention in a way and to such intensity that you become wholly absorbed in the revised action. You will experience an expansion and refinement of the senses by this imaginative exercise and eventually achieve vision.  
 But always remember that the ultimate purpose of this exercise is to create in you *"the Spirit of Jesus"*, which is continual forgiveness of sin.  
-[[Revision]] is of greatest importance when the motive is to change oneself, when there is a sincere desire to be something different, when the longing is to awaken the ideal active spirit of forgiveness.  
+[Revision](/Revision) is of greatest importance when the motive is to change oneself, when there is a sincere desire to be something different, when the longing is to awaken the ideal active spirit of forgiveness.  
 Without imagination, man remains a being of sin.  
 Man either goes forward to imagination or remains imprisoned in his senses. To go forward to imagination is to forgive. Forgiveness is the life of the imagination. The art of living is the art of forgiving  
 Forgiveness is, in fact, experiencing in imagination the revised version of the day, experiencing in imagination what you wish you had experienced in the flesh.  
@@ -54,11 +19,11 @@ Not to forgive is to be at war with ourselves, for we are freed according to our
 *"Forgive, and you shall be forgiven."* (Luke 6:37)  
 Forgive, not merely from a sense of duty or service; forgive because you want to.  
 *"Thy ways are ways of pleasantness and all thy paths are peace."* (Proverbs 3:17)
-You must take pleasure in [[Revision]]. You can forgive others effectively only when you have a sincere desire to identify them with their ideal. Duty has no momentum.  
-Forgiveness is a matter of deliberately withdrawing attention from the unrevised day and giving it full strength, and joyously, to the revised day. If a man begins to revise even a little of the vexations and troubles of the day, then he begins to work practically on himself. Every [[Revision]] is a victory over himself and therefore a victory over his enemy.  
+You must take pleasure in [Revision](/Revision). You can forgive others effectively only when you have a sincere desire to identify them with their ideal. Duty has no momentum.  
+Forgiveness is a matter of deliberately withdrawing attention from the unrevised day and giving it full strength, and joyously, to the revised day. If a man begins to revise even a little of the vexations and troubles of the day, then he begins to work practically on himself. Every [Revision](/Revision) is a victory over himself and therefore a victory over his enemy.  
 *"A man's foes are those of his own household,"* (Matthew 10:36),
 and his household is his state of mind. He changes his future as he revises his day.  
-When a man practices the art of forgiveness, of [[Revision]], however factual the scene on which sight then rests, he revises it with his imagination and gazes on one never before witnessed. The magnitude of the change which any act of [[Revision]] involves makes such change appear wholly improbable to the realist – the unimaginative man; but the radical changes in the fortunes of the Prodigal (Luke 15:11-32) were all produced by a *"change of heart"*.  
+When a man practices the art of forgiveness, of [Revision](/Revision), however factual the scene on which sight then rests, he revises it with his imagination and gazes on one never before witnessed. The magnitude of the change which any act of [Revision](/Revision) involves makes such change appear wholly improbable to the realist – the unimaginative man; but the radical changes in the fortunes of the Prodigal (Luke 15:11-32) were all produced by a *"change of heart"*.  
 The battle man fights is fought out in his own imagination. The man who does not revise the day has lost the vision of that life, into the likeness of which it is the true labour of the *"Spirit of Jesus"* to transform this life.  
 *"All things whatsoever ye would that men should do to you, even so do ye to them: for this is the law."* (Matthew 7:12)  
 Here is the way an artist friend forgave herself and was set free from pain, annoyance and unfriendliness. Knowing that nothing but forgetfulness and forgiveness will bring us to new values, she cast herself upon her imagination and escaped from the prison of her senses. She writes  
@@ -83,27 +48,27 @@ I had been melting and wrapping up a wonderful present of courage and success fo
 'What a vivid dream that was!' I thought and dressed. While waiting for my coffee, I wandered over to my drafting table and saw that all my brushes were lying helter-skelter and unwashed. 'Whatever possessed you to leave your brushes like that?  
 'Don't you remember? It was because of your foot.'  
 So it hadn't been a dream after all, but a beautiful healing."  
-She had won by the art of [[Revision]] what she would never have won by force.  
+She had won by the art of [Revision](/Revision) what she would never have won by force.  
 In Heaven, the only Art of Living Is Forgetting & Forgiving. Especially to the Female. – Blake  
 We should take our life, not as it appears to be, but from the vision of this artist, from the vision of the world made perfect that is buried under all minds – buried and waiting for us to revise the day.  
 We are led to believe a lie when we see with, not through the eye. Blake  
-A [[Revision]] of the day, and what she held to be so stubbornly real was no longer so to her and, like a dream, had quietly faded away.  
+A [Revision](/Revision) of the day, and what she held to be so stubbornly real was no longer so to her and, like a dream, had quietly faded away.  
 You can revise the day to please yourself and by experiencing in imagination the revised speech and actions not only modify the trend of your life story but turn all its discords into harmonies.  
-The one who discovers the secret of [[Revision]] cannot do otherwise than let himself be guided by love.  
-Your effectiveness will increase with practice. [[Revision]] is the way by which right can find its appropriate might.  
+The one who discovers the secret of [Revision](/Revision) cannot do otherwise than let himself be guided by love.  
+Your effectiveness will increase with practice. [Revision](/Revision) is the way by which right can find its appropriate might.  
 *"Resist not evil"* (Matthew 5:39), for all passionate conflicts result in an interchange of characteristics.  
 *"To him that knoweth to do good, and doeth it not, to him it is sin."* (James 4:17)  
 To know the truth, you must live the truth, and to live the truth, your inner actions must match the actions of your fulfilled desire.  
 Expectancy and desire must become one.  
 Your outer world is only actualized inner movement.  
-Through ignorance of the law of [[Revision]], those who take to warfare are perpetually defeated.  
+Through ignorance of the law of [Revision](/Revision), those who take to warfare are perpetually defeated.  
 Only concepts that idealize depict the truth.  
 Your ideal of man is his truest self. It is because I firmly believe that whatever is most profoundly imaginative is, in reality, most directly practical that I ask you to live imaginatively and to think into, and to personally appropriate the transcendent saying  
 *"Christ in you, the hope of glory."* (Colossians 1:27)  
 Don't blame; only resolve.  
-It is not man and the earth at their loveliest, but you practicing the art of [[Revision]] make paradise.  
+It is not man and the earth at their loveliest, but you practicing the art of [Revision](/Revision) make paradise.  
 The evidence of this truth can lie only in your own experience of it.  
-Try revising the day. It is to the pruning shears of [[Revision]] that we owe our prime fruit.
+Try revising the day. It is to the pruning shears of [Revision](/Revision) that we owe our prime fruit.
 
 
 
@@ -111,39 +76,39 @@ Try revising the day. It is to the pruning shears of [[Revision]] that we owe ou
 ## Summary
 
 
-### [[Revision]] as the First Act of Cure
+### [Revision](/Revision) as the First Act of Cure
 
   - We must start corrective acts with revising ourselves and our attitudes.
   - What we are determines what we are able to see.
 
-### Daily [[Revision]] Exercise
+### Daily [Revision](/Revision) Exercise
 
   - Relive each day as you wish it had happened by revising scenes.
   - Mentally rewrite disappointing letters and news to what you wished for.
 
-### The Purpose of [[Revision]]
+### The Purpose of [Revision](/Revision)
 
   - The goal is to create the spirit of continuous forgiveness of sin within.
   - Without imagination, man remains imprisoned in sin.
 
-### Forgiveness Through [[Revision]]
+### Forgiveness Through [Revision](/Revision)
 
   - Forgiveness means revising scenes in imagination to what should have happened.
-  - Each act of [[Revision]] allows us to be spiritually reborn.
+  - Each act of [Revision](/Revision) allows us to be spiritually reborn.
 
-### Make [[Revision]] a Continuous Process
+### Make [Revision](/Revision) a Continuous Process
 
   - We should forgive and revise daily, not just once a year.
   - This daily rebirth allows us to rise transformed.
 
 ### Revising for Transformation
 
-  - True [[Revision]] sincerely aims to change ourselves and awaken our ideals.
+  - True [Revision](/Revision) sincerely aims to change ourselves and awaken our ideals.
   - We must want to identify others with their highest selves.
 
-### Pleasure and Attention in [[Revision]]
+### Pleasure and Attention in [Revision](/Revision)
 
-  - [[Revision]] must be pleasurable, not mere duty.
+  - [Revision](/Revision) must be pleasurable, not mere duty.
   - We must be wholly absorbed in revising for it to be effective.
 
 ### Battle Within Our Imagination
@@ -151,9 +116,9 @@ Try revising the day. It is to the pruning shears of [[Revision]] that we owe ou
   - The day is won or lost solely in our imagination.
   - To revise is the victory of ourselves over our state of mind.
 
-### Radical Change Through [[Revision]]
+### Radical Change Through [Revision](/Revision)
 
-  - [[Revision]] brings improbable radical change in fortune.
+  - [Revision](/Revision) brings improbable radical change in fortune.
   - The prodigal son had all change produced by a change of heart.
 
 ### Artist Friend's Experience
@@ -161,10 +126,10 @@ Try revising the day. It is to the pruning shears of [[Revision]] that we owe ou
   - An artist revised her day after injury and miraculously healed her foot.
   - She had criticized another, then took responsibility and re-imagined the scene.
 
-### Force vs. [[Revision]]
+### Force vs. [Revision](/Revision)
 
   - Battles fought outwardly end in defeat. Victories are within.
-  - She won her battle through the art of [[Revision]], not force.
+  - She won her battle through the art of [Revision](/Revision), not force.
 
 ### Guidance by Love
 

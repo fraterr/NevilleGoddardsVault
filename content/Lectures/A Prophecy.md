@@ -1,20 +1,6 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: A Prophecy
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [God Enters His Image, Assume Your Desired State, God Becomes You, Follow the Pattern, God Loves His Image, Christmas is Within, Enter Feeling, Exit Reason, Persist in Troubles, Predestined Symbolism, Predestined Symbolism]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In his poem called *"Europe,"* which is a prophecy about you, William Blake said: *"Then Enitharmon woke, nor knew that she had slept, and eighteen hundred years were fled as if they had not been."* 
 
-Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los [[Dreams]] it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
+Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los [Dreams](/Dreams) it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
 
 In my case, 1,959 years had fled as though they had not been. And I had no idea I had entered into an image called Neville and made it real. But I, all imagination, so loved the shadow I had cast, I entered into it and made it alive. 
 
@@ -63,9 +49,9 @@ In the Old Testament, the question is asked: *"Rouse thyself, O Lord, awake. Why
 
 When God incarnated himself in the image he so fell in love with, time was divided between BC and AD. Blake tells us that for him, it took 1800 years for God to move from BC to AD. In my case it was 1,959 years. Each case is different, as we are told: *"Each in his own order."* I do not know whether this order was predetermined or not, for the Book of Ephesians tells us that he destined us in love to be his sons through Jesus Christ according to the purpose of his will. 
 
-The God that dreamed in me is the same God that [[Dreams]] in you. Was it really an order that I could not have awakened before 1959? I do not know. I only know that was the year in which God awoke in me, yet I did not know I had fallen asleep in that skull. But when I emerged, the symbolism recorded as revealing the birth of God surrounded me. That was the moment God awoke and was born into a higher region of his being. Having identified himself with the one he loved, that one was raised and born as God.
+The God that dreamed in me is the same God that [Dreams](/Dreams) in you. Was it really an order that I could not have awakened before 1959? I do not know. I only know that was the year in which God awoke in me, yet I did not know I had fallen asleep in that skull. But when I emerged, the symbolism recorded as revealing the birth of God surrounded me. That was the moment God awoke and was born into a higher region of his being. Having identified himself with the one he loved, that one was raised and born as God.
 
-God is in love with his image, his shadow, which - like a reflection on oil or water - is dead. Having no life in itself, God so loves his shadow he enters it and [[Dreams]] he is it. Being a life-giving spirit, God first animates the shadow and it becomes solid and real in his world. He walks and talks, knows sorrow and joy, sickness and health, until the dream is complete. Then God awakens a pattern by which he will know he has arrived at the end.
+God is in love with his image, his shadow, which - like a reflection on oil or water - is dead. Having no life in itself, God so loves his shadow he enters it and [Dreams](/Dreams) he is it. Being a life-giving spirit, God first animates the shadow and it becomes solid and real in his world. He walks and talks, knows sorrow and joy, sickness and health, until the dream is complete. Then God awakens a pattern by which he will know he has arrived at the end.
 
 This pattern was predetermined. The first segment is to awaken and rise from his sleep of death, to be designated Son of God in power. Then he discovers his fatherhood when his son calls him father. A short interval later he cuts himself in two. This is his sacrifice for this wonderful accomplishment. Fusing with his blood, which he finds at the base of his spine, God ascends as a fiery serpent. Then the final sanctification comes in the form of a dove, which descends and smothers him with love, for God has now accomplished what he set out to do. 
 
@@ -116,7 +102,7 @@ Now let us go into the silence.
 
 ### God Enters His Image
 
-- God falls in love with his image, enters it and [[Dreams]] it into reality
+- God falls in love with his image, enters it and [Dreams](/Dreams) it into reality
 - When God awakes, lifetimes have passed, yet it's as if they were not
 
 ### Assume Your Desired State
@@ -137,7 +123,7 @@ Now let us go into the silence.
 ### God Loves His Image
 
 - Out of love, God entered and gave life to his dead image, your shadow
-- He [[Dreams]] this world into being until He awakens as you, now made alive
+- He [Dreams](/Dreams) this world into being until He awakens as you, now made alive
 
 ### Christmas is Within
 

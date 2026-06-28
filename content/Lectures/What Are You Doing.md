@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: What Are You Doing
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Imagining Creates Reality:, Influencing Others through Imaginal Acts:, Awareness of Current Imagining:, Dreams and Interpretation:, Repentance and Test:, Inner and Outer Reality:, Common Fatherhood and Individuality:, Clarity of Form and Influence:, Transience of Earthly Desires and Persistence in Imagination:, Test Your Imagination:, Test Your Imagination:]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Many times I have heard someone say: *"I believe that imagining creates reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For God's name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human imagination and there is no other God. 
 
 When you imagine you may include others, but do not think in terms of influence. Rather, think only in terms of clarity of form. 
@@ -22,7 +8,7 @@ The law, to be effective, needs feeling with form. Build a structure that would 
 
 Knowing what you want, place your attention on its clarity of form, and then watch what you are imagining. Are you remembering when you imagined something greater than what you have? If so, you are confessing you are not now imagining your desire fulfilled. If imagining creates reality, you must change your memory and become aware of what you are imagining right now. 
 
-Let me now tell you of a series of [[Dreams]] I received from a friend. The series began one night when she found herself with a group of children, trying to find something that was lost. Seeing a brown paper bag tied with string, she opened it and removed a watch, as one of the children said: 'That is a treasure,' and the dream ended. 
+Let me now tell you of a series of [Dreams](/Dreams) I received from a friend. The series began one night when she found herself with a group of children, trying to find something that was lost. Seeing a brown paper bag tied with string, she opened it and removed a watch, as one of the children said: 'That is a treasure,' and the dream ended. 
 
 The next night she found herself moving as if on wheels, with everything she sees moving with her. Then she said to herself: 'This is not what I want. Everything is moving, while I still have the sense of longing,' and she awoke. 
 
@@ -91,8 +77,8 @@ Now let us go into the silence.
 ### Awareness of Current Imagining:
 - Be aware of what you are imagining right now and change your memory if it does not align with your desire.
 
-### [[Dreams]] and Interpretation:
-- A series of [[Dreams]] was received by a friend, including the presence of children, moving with a sense of longing, attending lectures with memory loss, and meeting the God of love.
+### [Dreams](/Dreams) and Interpretation:
+- A series of [Dreams](/Dreams) was received by a friend, including the presence of children, moving with a sense of longing, attending lectures with memory loss, and meeting the God of love.
 - The dream symbols reveal the incorporation of the God of love and the importance of unity and individuality.
 
 ### Repentance and Test:

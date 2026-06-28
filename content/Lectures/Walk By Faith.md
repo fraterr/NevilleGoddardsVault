@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Walk By Faith
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination, Faith and the Rearrangement of Imagination, Faith is the Assurance of Things Not Seen, The Importance of Living by Faith, The Journey of Faith and Imagination, The Eternal Nature of Life, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Blake asked the question: *"Why is it that the Bible is more entertaining and instructive than any other book? Is it not because it is addressed to the Imagination, which is spiritual sensation, and only immediately to the understanding, or reason?"* 
 
 The one book, called the Bible, is composed of sixty-six books. Take this challenge. Read each book as though the depth of your soul is speaking to your surface mind. As though the ineffable Imagination is speaking to the human Imagination, and not to your immediate understanding or reasoning mind. 
@@ -30,7 +16,7 @@ Someone once asked Blake what he saw when he looked at the sun, and he replied, 
 
 Paul tells us that no matter what he has done or did not do, he puts it behind him and stretches forward towards what lies ahead. Paul's ideal was to be called to the highest point of God. I hope this is your ideal, too, but perhaps it is not. Maybe other things are pressing upon you, such as the need for money. If so, make that your objective, but use the same technique. 
 
-Put the past behind you. Do not look back and become like Lot's wife who turned into a pillar of salt - which is a preservative. You always put what you want to preserve in brine. If you turn back and dwell upon the state you want to leave behind, you have placed it in brine and will become it once more. But if you will turn your back upon the past regardless of what you have or have not done, and stretch forward to what you want to be or do and remain faithful to your desire - nothing can stop you from achieving it. You will become the man you assume you are, if you persist in the [[Assumption]] that you are already there! 
+Put the past behind you. Do not look back and become like Lot's wife who turned into a pillar of salt - which is a preservative. You always put what you want to preserve in brine. If you turn back and dwell upon the state you want to leave behind, you have placed it in brine and will become it once more. But if you will turn your back upon the past regardless of what you have or have not done, and stretch forward to what you want to be or do and remain faithful to your desire - nothing can stop you from achieving it. You will become the man you assume you are, if you persist in the [Assumption](/Assumption) that you are already there! 
 
 Like Blake, I have found the Bible most entertaining, challenging, and instructive. It is not an easy book to read, however. If it were, it would not be worth my care, for as the ancients discovered, that which is not too explicit is fittest for instruction, as it rouses the faculties to act. 
 

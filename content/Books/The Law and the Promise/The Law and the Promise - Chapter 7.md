@@ -1,32 +1,3 @@
----
-book: The Law and the Promise
-chapter: Moods
-keywords:
-  - Assumption
-  - Dreams
-bible_ref:
-  - Matthew 9:1-8
-  - Mark 2:1-13
-  - Luke 5:18-25
-  - John 5:1-17
-tags: book
-topics:
-  - Moods are causes - not just effects
-  - Moods are imaginal activities necessary for creation
-  - Moods cause life conditions
-  - Feel the wish fulfilled
-  - Persist in the mood
-  - Act on the wish fulfilled
-  - Imagined mood brought wealth
-  - Miracles use this secret
-  - Joyous imaginal act magnetized money
-  - Mood guides all to its affirmation
-  - Playful mood removed warts
-  - Man taking a mood takes its results
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"This is an age in which the mood decides the fortunes of people rather than the fortunes decide the mood."* (Sir Winston Churchill)
 
 Men regard their moods far too much as effects and not sufficiently as causes.
@@ -43,7 +14,7 @@ The lady in the following story so successfully felt the feeling of her wish ful
 
 "Most of us read and love fairy stories, but we all know that stories of improbable riches and good fortune are for the delight of the very young. But are they? I want to tell you of something unbelievably wonderful that happened to me through the power of my imagination — and I am not 'young' in years.
 
-We live in an age which believes in neither fable nor magic, and yet everything I could possibly want in my wildest day-[[Dreams]] was given to me by the simple use of what you teach — that 'imagining creates reality' and that 'feeling' is the secret of imagining.
+We live in an age which believes in neither fable nor magic, and yet everything I could possibly want in my wildest day-[Dreams](/Dreams) was given to me by the simple use of what you teach — that 'imagining creates reality' and that 'feeling' is the secret of imagining.
 
 "At the time this wonderful thing happened to me I was out of a job and had no family to fall back upon for support. I needed just about everything. To find a decent job I needed a car to look for it, and though I had a car, it was so worn out it was ready to fall apart. I was behind in my rent; I had no proper clothes to seek a job; and today it's no fun for a woman of fifty-five to apply for a job of any kind. My bank account was almost depleted and there was no friend to whom I could turn.
 
@@ -61,7 +32,7 @@ I would say over and over to myself as I fell asleep, 'Isn't it wonderful! Somet
 
 *"If the fool would persist in his folly He would become wise."* — William Blake
 
-Sir Winston calls on us to act on the [[Assumption]] that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
+Sir Winston calls on us to act on the [Assumption](/Assumption) that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
 
 Is this not the secret of *"miracles"*?
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Light Of The World
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Revelation of Jesus Christ from Within, The Universal Being of Jesus Christ, The Order of Events, Birth Through the Resurrection of Jesus Christ, The Awakening of Christ Within, The Trumpet Vibration, The Four Acts of Redemption, The Return of All Beings, The Mystery of Jesus Christ, The Collective Sayings of the Wise, The Destiny of Every Individual, Accepting Jesus Christ on Faith, The Unveiling of the Light Within, The Unveiling of the Light Within]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In all the revelations which await you, there is none so fundamental as the revelation of Jesus Christ. He cannot be known outwardly, but must unveil himself from within. This experience will be yours when your immortal eyes are opened inward, into eternity, the world of thought. 
 
 He who awakens in you is the Lord Jesus Christ, but he is unseen by the mortal eye. As an individual the world knows you by your records. They know your date of birth, your parents, your brothers and sisters. Your friends know your weaknesses and limitations, but no one can know the being who awakens within you until the revelation is theirs.

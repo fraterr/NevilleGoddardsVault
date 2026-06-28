@@ -1,20 +1,6 @@
----
-dg-publish: true
----
+In Paul's 1st letter to the Corinthians he said: *"No other foundation can anyone lay then that which is laid, which is Jesus Christ."* And in his 2nd letter he asked: *"Do you not realize that Jesus Christ is in you?"* Now I ask you: who is this Jesus Christ who is in you? He is your own wonderful human imagination - the foundation stone of your world! Your [Dreams](/Dreams) create your world, and the dreamer dreaming those [Dreams](/Dreams), is your human imagination scripture calls Jesus Christ.
 
----
-book: 
-chapter: No Other Foundation 10-10-1969
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Foundation of Your World, The Greatest Story Ever Told, Awakening as the Dreamer, Your Role in the Dream, The Splitting of Self, The Final Act, Dreaming the Dream, Sharing the Awareness, The Purpose of Expansion, The Promise of Christ, The Dreamer and the Dream, The Unfolding of a Purpose, The Only Foundation, The Only Foundation]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
-In Paul's 1st letter to the Corinthians he said: *"No other foundation can anyone lay then that which is laid, which is Jesus Christ."* And in his 2nd letter he asked: *"Do you not realize that Jesus Christ is in you?"* Now I ask you: who is this Jesus Christ who is in you? He is your own wonderful human imagination - the foundation stone of your world! Your [[Dreams]] create your world, and the dreamer dreaming those [[Dreams]], is your human imagination scripture calls Jesus Christ.
-
-You may think of Jesus as someone other than yourself, someone separate and apart from you, but I tell you, Jesus Christ is in you as your wonderful human imagination. He is the dreamer, the foundation of your day as well as your night [[Dreams]]. You may not be able to write a letter, paint a picture, or carry a tune, but you can dream because Jesus Christ is in you.
+You may think of Jesus as someone other than yourself, someone separate and apart from you, but I tell you, Jesus Christ is in you as your wonderful human imagination. He is the dreamer, the foundation of your day as well as your night [Dreams](/Dreams). You may not be able to write a letter, paint a picture, or carry a tune, but you can dream because Jesus Christ is in you.
 
 Now let me take you into the greatest story ever told man. It is the story of the Lord Jehovah, the being you really are. The Bible is your autobiography. You dictated it, recorded it, then came into the world to fulfill it - and you will!
 
@@ -48,7 +34,7 @@ You will go from there into another section of scripture, for you are the Spirit
 
 This second grand event comes when suddenly the David of Biblical fame stands before you. At that moment there will be no uncertainty as to who he is and who you are. You will know the relationship of father/son and he will know it too. David is the result of all of your experiences of humanity. He is the same David as is described in the 16th chapter of the Book of 1 Samuel. If you date David chronologically, you would discover that he lived 3000 years ago; but the Bible does not record secular, but salvation history, as the events do not take place here.
 
-This is the hell into which God descended and [[Dreams]] his dream of life. God - your human imagination, your awareness - came out from being aware of being the Father and entered the world by becoming aware of it. The day will come when the world will lose its hold and you, human imagination, will return to the Father as the Father. You entered this wonderful world of adventure for the purpose of expansion, for if the limit of expansion was already reached, it would be hell. 
+This is the hell into which God descended and [Dreams](/Dreams) his dream of life. God - your human imagination, your awareness - came out from being aware of being the Father and entered the world by becoming aware of it. The day will come when the world will lose its hold and you, human imagination, will return to the Father as the Father. You entered this wonderful world of adventure for the purpose of expansion, for if the limit of expansion was already reached, it would be hell. 
 
 Just imagine if you could never go beyond what you are. That would truly be hell would it not? Omnipotence has no part of scripture. God must ever be expanding his wisdom and his power. Having limited yourself to the contraction and opacity called 'man', you will break the shell and know an expansion far beyond what you were, prior to your descent from your 
 exalted state into this limited one.
@@ -74,9 +60,9 @@ But I am telling you what I know from experience and what is known from experien
 
 If this waking world is as much a dream as your sleeping world, you should be able to control it. In the dream of last night you might have been frightened and believed for a moment that the event was real, outside of yourself, and beyond your control. 
 
-Only when you awoke did you discover that it was a dream. Had you known at the time that it was a dream, you could have controlled it and made the event conform to your desire. Now awake in this world, you think it is real and outside of yourself, but I tell you: this world is a dream, too. It is every bit as much a dream as the dream of the night, only it is more difficult to control because it appears so real and independent of your perception. But it can be controlled by a simple act of [[Assumption]].
+Only when you awoke did you discover that it was a dream. Had you known at the time that it was a dream, you could have controlled it and made the event conform to your desire. Now awake in this world, you think it is real and outside of yourself, but I tell you: this world is a dream, too. It is every bit as much a dream as the dream of the night, only it is more difficult to control because it appears so real and independent of your perception. But it can be controlled by a simple act of [Assumption](/Assumption).
 
-Let us assume that this is a dream and everything is perfect. You are happy and content and all is right in your world. Then persuade yourself of the reality of your [[Assumption]]. Don't do anything to make it so; just trust the dreamer in you to bring it to pass, for the power who assumed your desire is the Lord Jesus Christ, and all things are possible to him. Your [[Assumption]], though false in the sense that it is denied by your senses and reason, if persisted in will harden into fact in such a normal, natural way that you will think it would have happened anyway. That is the dream. When imagination fulfills itself so naturally, it is easy to question that your [[Assumption]] had anything to do with it; but I tell you it could not have happened without your [[Assumption]], for your awareness is the one and only cause of the phenomena of your life.
+Let us assume that this is a dream and everything is perfect. You are happy and content and all is right in your world. Then persuade yourself of the reality of your [Assumption](/Assumption). Don't do anything to make it so; just trust the dreamer in you to bring it to pass, for the power who assumed your desire is the Lord Jesus Christ, and all things are possible to him. Your [Assumption](/Assumption), though false in the sense that it is denied by your senses and reason, if persisted in will harden into fact in such a normal, natural way that you will think it would have happened anyway. That is the dream. When imagination fulfills itself so naturally, it is easy to question that your [Assumption](/Assumption) had anything to do with it; but I tell you it could not have happened without your [Assumption](/Assumption), for your awareness is the one and only cause of the phenomena of your life.
 
 Use your imagination consciously, and after a while you will stop fighting shadows. The conflict within you will cease and your world will be at peace. Let those who are still asleep dream their violence into the world. It's perfectly all right, for in its midst you will walk knowing you are protected, for you are awake. This is your dream, too, and no dreamer can be destroyed by his dream. 
 
@@ -86,11 +72,11 @@ This man is mad, for he claims he came down from heaven, yet we know his father 
 
 He doesn't believe in reincarnation, but in two births: - a physical one that never comes to an end until the second birth takes place. And only one death, which took place at the beginning of time, when he became embodied in a body of flesh and blood and became its slave. He claims he was reborn through the act of awakening from the dream he imposed upon himself in order to expand his power and his wisdom beyond what it was when he made the decision to make man in his image.
 
-Right now you are living in a fabulous world you created, filled with those who agreed to dream with you in concert. Everyone is dreaming his own dream. One [[Dreams]] he wants to change the world. They call him Hitler or Stalin and millions of people appear to be killed, but they do not die. Rather, they simply depart this section of time and move into another, not even knowing they departed. Others will come and dream their desire of change and create a world in their own image; yet I tell you the whole thing was done before the world began. You are seeing simply the unfoldment of a purposed end which, as God, we agreed upon before we began the adventure.
+Right now you are living in a fabulous world you created, filled with those who agreed to dream with you in concert. Everyone is dreaming his own dream. One [Dreams](/Dreams) he wants to change the world. They call him Hitler or Stalin and millions of people appear to be killed, but they do not die. Rather, they simply depart this section of time and move into another, not even knowing they departed. Others will come and dream their desire of change and create a world in their own image; yet I tell you the whole thing was done before the world began. You are seeing simply the unfoldment of a purposed end which, as God, we agreed upon before we began the adventure.
 
 There is no other foundation. Our scientists will continue to find new hypothesis to experiment with, relative to life and its cause. That's all right, for they are dreaming, too. This world began as a grand orgasm of God, with only this tiny little spot called earth capable of cradling life for the great experiment to take place.
 
-Then the dream you and I are dreaming began. If you don't think it is a dream, take some section of your life that seems beyond redemption and rearrange it in your mind's eye. Make it as you would like it to be. Persuade yourself of its truth and wait, because its fulfillment has its own appointed hour. It ripens, it will flower. If it be long, then wait, for it is sure and it will not be late. It will come into your objective world to bear witness to the reality of your [[Assumption]]. Then you, too, will know that the world is a dream and you are its dreamer, the Jesus Christ of the New Testament and the Jehovah of the Old.
+Then the dream you and I are dreaming began. If you don't think it is a dream, take some section of your life that seems beyond redemption and rearrange it in your mind's eye. Make it as you would like it to be. Persuade yourself of its truth and wait, because its fulfillment has its own appointed hour. It ripens, it will flower. If it be long, then wait, for it is sure and it will not be late. It will come into your objective world to bear witness to the reality of your [Assumption](/Assumption). Then you, too, will know that the world is a dream and you are its dreamer, the Jesus Christ of the New Testament and the Jehovah of the Old.
 
 The Old Testament is an adumbration - a foreshadowing in a not altogether conclusive or immediately evident way. The New is its interpretation and fulfillment. If you hear the word, *"Jesus"* and think of a man other than yourself, you do not know him. The priests, rabbis, and ministers are looking for his coming, but they will look in vain. Jesus has already come or they couldn't breathe. He is their life, but they do not know it. One day, however, he will awaken in them as the being in whom he awakens.
 
@@ -104,8 +90,8 @@ Now let us go into the silence.
 ## Summary
 
 ### The Foundation of Your World
-- Your [[Dreams]] create your world, and the dreamer is your human imagination, which is Jesus Christ.
-- Jesus Christ is within you, as your own imagination, the foundation of your [[Dreams]].
+- Your [Dreams](/Dreams) create your world, and the dreamer is your human imagination, which is Jesus Christ.
+- Jesus Christ is within you, as your own imagination, the foundation of your [Dreams](/Dreams).
 
 ### The Greatest Story Ever Told
 - The Bible is your autobiography, which you dictated and recorded before coming into the world.
@@ -154,7 +140,7 @@ Now let us go into the silence.
 
 ### The Dreamer and the Dream
 - This world is a dream, just like the dream of the night.
-- Control the dream by assuming the desired reality and persisting in that [[Assumption]].
+- Control the dream by assuming the desired reality and persisting in that [Assumption](/Assumption).
 - Everything in your world is imagined by your awareness, the dreamer.
 
 ### The Unfolding of a Purpose

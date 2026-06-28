@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Great Possession
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The E manuscript in the book of Genesis, Possessions in this world vs. great possessions, Remembering and awakening, Father and Son relationship, Fulfilling scripture and ultimate redemption]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The book of Genesis is made up of three records, called the J, P, and E manuscripts. Tonight I will refer to the E manuscript, which begins with the 15th chapter of Genesis: "As the sun was going down, Abram fell into a deep sleep and great darkness fell upon him. Then the Lord said to Abram, 'Know for a surety that your descendants will be sojourners in a land that is not theirs. They will be slaves there and they will be oppressed for four hundred years. After that they will come out with great possessions.'
 
 *"Abraham believed and it was accounted unto him for righteousness."* 
@@ -117,7 +103,7 @@ Now let us go into the silence.
 ### Father and Son relationship
 - The father/son relationship between God and individuals is a central theme in scripture.
 - When the father and son recognize each other, the journey into the world of death will be completed.
-- [[Dreams]] often provide symbolic representation of this relationship.
+- [Dreams](/Dreams) often provide symbolic representation of this relationship.
 
 ### Fulfilling scripture and ultimate redemption
 - Everyone will be redeemed, as they are all aware of their existence and, therefore, the "I am" nature of God.

@@ -1,24 +1,10 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Whom Do You Seek
-keywords: [Assumption, Prayer]
-bible_ref:
-tags: lecture
-topics: [Jesus of Nazareth, the I AM, Story of Sam, Recognizing the True Jesus, Practical Application, The Drama of Creation and Awakening, Awakening to the True Jesus, Applying the Principle]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Bible, from beginning to end, is the vision of the Lord God Jehovah, yet the message given there can be applied in a most practical manner.
 
 In two weeks the Western world will be told the story of Good Friday. They will hear of a man who was in a garden with those who believe him, when a band of soldiers came looking for a certain person. Then it is said: *"Knowing what was to befall him, Jesus came forward and said, 'Whom do you seek?' and they answered, 'Jesus of Nazareth.' Then he said to them, 'I am.' (The pronoun "*he*" is not in the original manuscript.) When they heard that, they drew back and fell to the ground. Again he asked, 'Whom do you seek?' and again they replied, 'Jesus of Nazareth,' and he said, 'I told you that I am; so if you seek me, let these men go.'"*
 
 That is the story and when man first hears that the one who is speaking is his own wonderful I AMness, he falls to the ground in shocked disbelief. You see the word *"Jesus"* means, *"I am."* Recorded in the Old Testament as *"Jehovah the Lord"*, when the name is revealed, it is *"I am."* This is true all through scripture. When those who are seeking a savior on the outside hear that their own wonderful human imagination is Jesus, they draw back in shock, for they simply can't believe it.
 
-Now let me tell you a story I recorded in one of my books. The year was 1950 and the man is my brother-in-law. Having graduated from Harvard, he entered the banking business, where he remained for many years. Now, in the banking profession a promotion occurs only when someone dies, is fired, or resigns. Qualified to hold the finest job, he wanted the best for himself, his wife, and their two children. He was a pillar of the Episcopal Church in New York City, sitting on the planning committee, advising them as to the care of their money, yet he knew nothing of the art of [[Prayer]] or the secret of Christ. 
+Now let me tell you a story I recorded in one of my books. The year was 1950 and the man is my brother-in-law. Having graduated from Harvard, he entered the banking business, where he remained for many years. Now, in the banking profession a promotion occurs only when someone dies, is fired, or resigns. Qualified to hold the finest job, he wanted the best for himself, his wife, and their two children. He was a pillar of the Episcopal Church in New York City, sitting on the planning committee, advising them as to the care of their money, yet he knew nothing of the art of [Prayer](/Prayer) or the secret of Christ. 
 
 One day he came to the house, and telling me of his financial desires, he asked what he should do. When I asked him if he would like to be in the investment business, he replied: *"I want it more than anything in the world."* Then I said: *"Go to bed tonight knowing you are now investing large sums of money. Do that night after night and the position you desire will be yours."*
 
@@ -50,7 +36,7 @@ Now let us go back to the three manuscripts which make up what is called the Law
 
 Now, in the New Testament it is said: *"The Lord spoke to Joseph in a dream,"* and there is no record, either in the Old or the New, of their awakening! May I tell you: Abraham - he who believes, and Joseph - the dreamer, awaken when God in Man rises. Then Man, who has been searching for salvation on the outside, awakens to discover that he is the Lord who imposed all of the horrors upon himself. So you see: the *"E"* manuscript records events from Abraham on; events that take place in vision, for the drama of creation takes place in all!
 
-Now, what I have told you this night about my brother-in-law can be applied to transcend any limitation desired, I don't care what it is. I knew by nature Sam would do what he said he would. He had promised that even though it was not rational (and Sam is a rational man), he would sleep in the [[Assumption]] his desire was fulfilled until I returned from Barbados. Then he would tell me it didn't work! Knowing Sam would not falter in the doing, I knew by that time it would be done, and of course it was. So I urge everyone to take my words seriously and try it. When you go to bed tonight, catch the feeling that would be yours if your desire were now realized. Then fall asleep in that feeling. If you do it, you will not fail. How it is going to happen I do not know; I only know that if you do it, it will happen. And when it does, don't forget the lesson you have learned.
+Now, what I have told you this night about my brother-in-law can be applied to transcend any limitation desired, I don't care what it is. I knew by nature Sam would do what he said he would. He had promised that even though it was not rational (and Sam is a rational man), he would sleep in the [Assumption](/Assumption) his desire was fulfilled until I returned from Barbados. Then he would tell me it didn't work! Knowing Sam would not falter in the doing, I knew by that time it would be done, and of course it was. So I urge everyone to take my words seriously and try it. When you go to bed tonight, catch the feeling that would be yours if your desire were now realized. Then fall asleep in that feeling. If you do it, you will not fail. How it is going to happen I do not know; I only know that if you do it, it will happen. And when it does, don't forget the lesson you have learned.
 
 Sam has money now and continues to invest it in the world of Caesar, but has forgotten the principle behind it all and is looking for a physical Jesus on the outside. May I tell you: he has a great surprise in store for him, for when he dies, there will be no Jesus there to welcome him. Instead he will be restored to life in a body the same as before. His body will be young and unbelievably new, as he finds himself in an environment best suited for the work yet to be done in him. This he will continue to do until he finds and believes in Jesus.
 
@@ -75,7 +61,7 @@ Now let us go into the silence.
 - People find it difficult to believe that they themselves are Jesus, their own wonderful human imagination.
 
 ### Story of Sam
-- Sam, a pillar of the church, sought financial success but was unaware of the power of [[Prayer]].
+- Sam, a pillar of the church, sought financial success but was unaware of the power of [Prayer](/Prayer).
 - Through the author's guidance, Sam started imagining himself in an investment career.
 - His desired position manifested through an unexpected job offer, leading him to work with the Rockefeller brothers.
 - Despite finding success, Sam was not able to associate it with the concept of Jesus within himself.

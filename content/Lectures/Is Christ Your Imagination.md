@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Is Christ Your Imagination
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Imagination and Christ, The Bible's Definition of Christ, Testing Yourself, The Sacrifice of God, Man's Creative Power, The Gospel of John, Jesus as Son of God, The Resurrection and Resurrection Experiences, Believing in Christ, Revealing God, Destiny of Every Individual]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is in the form of a question: *"Is Christ your Imagination?"* When we ask the question we expect the answer in terms of our current background of thought, and quite often that is not adequate to frame the answer. Now, I am asking the question, and in order to answer myself I should really clarify the terms, *"imagination"* and *"Christ"* I think there will be no problem tonight if I define - say - *"imagination."* I think you will agree with me when I define *"Christ."* If I say to that, that imagination is the power of performing mental images, you wouldn't quarrel with that. Sitting here tonight, you can think of anything and see it mentally. You may not see it as graphically as you see it in its present form in the room at the moment, but you could see it vividly in the mind's eye and discriminate. Think of a tree, a horse, and you know the difference between one and the other, and they are two separate objects in your mind's eye. Well, that is the power of imagination.
 
 When it comes to Christ - and there are hundreds of millions in the world that call themselves Christians - the very use of the word instantly conjures in the mind's eye a person. They think of Christ as a person, and no two have the same mental picture of this person. I know, many, many years ago in New York City this French artist went to the library on 42nd street and brought up 46 different pictures of Christ and screened them with his little lantern. No two were alike, and each artist claimed that this was an inspired picture as it was presented to him, and he painted the picture. There were blond and blue-eyed pictures, dark swarthy skin; there were those with a very black skin - all 46 pictures were projected as so-called originals. So, man has been conditioned to believe that Christ is a person. So I ask the question: *"Is Christ your imagination?"* Can I personify the imagination? I will.

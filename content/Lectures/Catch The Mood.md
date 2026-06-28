@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Catch The Mood
-keywords: [Bridge of incidents, Prayer, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Birth of the Twins, The Appeasement of Hunger, Belief in God, Prayer and Imagination, Catching the Mood, The Hunger for the Word of God, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 You will find tonight's message a very practical one. I don't think it will disturb anyone, but there are adjustments to be made concerning what man believes God to be, and what God really is. We are told in Scripture, in the birth of the twins, which begins the great drama as told in Scripture, *"In your limbs..."* and I am speaking now, not of anyone, but of you individually:  
   
 *"In your limbs lie nations twain, rival races from their birth; one the mastery will gain, the younger o'er the elder reign."* (Genesis 25:23, Moffatt translation)  
@@ -38,13 +24,13 @@ I take a look at my world, and I am very restricted. Everything about me is some
   
 In my imagination, I go and prepare the state. I actually go into the state and fill that state with my own being, and view the world from that state. I don't think of it; I think from it. When I think from it, I'm actually preparing that state.  
   
-Then I return to where I left this - *"the outer man,"* and once more fuse with it, and we become one, once again. Now I take him across a [[Bridge of incidents]] - some series of events - that takes me towards the thing that I've prepared, and I take him with me and enter into the very state itself. He feeds now, literally, upon that state. This is what I call [[Prayer]]. I don't vote for it; I don't petition, I ask no being in the world - no one, including what the world would say is God. For, when you find God by being still, and know that *"I Am"* is God, then to whom can you turn for anything in this world, if you really believe Scripture, *"Be still and know that I am God"*? (Psalm 46:10) If you are not familiar with Scripture, read it in the 46th chapter of the Psalms of David, the 10th verse *"Be still, and know that I am God,"* - then, to whom could you turn? It's an inner communion with Self. But man talks to an outside god and pleads with an outside god, and begs an outside god.  
+Then I return to where I left this - *"the outer man,"* and once more fuse with it, and we become one, once again. Now I take him across a [Bridge of incidents](/Bridge-of-incidents) - some series of events - that takes me towards the thing that I've prepared, and I take him with me and enter into the very state itself. He feeds now, literally, upon that state. This is what I call [Prayer](/Prayer). I don't vote for it; I don't petition, I ask no being in the world - no one, including what the world would say is God. For, when you find God by being still, and know that *"I Am"* is God, then to whom can you turn for anything in this world, if you really believe Scripture, *"Be still and know that I am God"*? (Psalm 46:10) If you are not familiar with Scripture, read it in the 46th chapter of the Psalms of David, the 10th verse *"Be still, and know that I am God,"* - then, to whom could you turn? It's an inner communion with Self. But man talks to an outside god and pleads with an outside god, and begs an outside god.  
   
 This reminds me of a dinner party that William Lyons Phelps gave. If you do not know who he is - in fact, who he was, he was one of the truly great educators in our country in this twentieth century: William Lyons Phelps. He and Mrs. Phelps entertained Edna Ferber, the writer. As they sat down to dinner, Mrs. Phelps said to him, *"William, will you please say grace."* He closed his eyes, bent his head, and after maybe ten or fifteen seconds he said, *"Amen."* And she said to him, *"Why, William, I did not hear one word that you said"*; and he said to her, *"I was not talking to you, my Dear..."*.  
   
-People sit down to say grace as: *"Bless the hands that prepared this food,"* all these words meaning nothing. You go within, and you don't petition: you appropriate. [[Prayer]] is nothing more than the subjective appropriation of the objective hope. I hope for so-and-so; I want it as an objective fact. Now, I must go within and appropriate it subjectively..  
+People sit down to say grace as: *"Bless the hands that prepared this food,"* all these words meaning nothing. You go within, and you don't petition: you appropriate. [Prayer](/Prayer) is nothing more than the subjective appropriation of the objective hope. I hope for so-and-so; I want it as an objective fact. Now, I must go within and appropriate it subjectively..  
   
-So, [[Prayer]] is the subjective appropriation of the objective hope. That is what I call *"faith in God,"* which is nothing more than faith in my Self, for the Self of man - the true identity of man - is God! That is the *"Jesus Christ"* of Scripture..  
+So, [Prayer](/Prayer) is the subjective appropriation of the objective hope. That is what I call *"faith in God,"* which is nothing more than faith in my Self, for the Self of man - the true identity of man - is God! That is the *"Jesus Christ"* of Scripture..  
   
 *"Do you not realize that Jesus Christ is in you? Test yourselves and see."* That is what we are told to do in Paul's second letter to the Corinthians. Read it in the 13th chapter, the 5th verse, of II Corinthians. *"Examine yourselves, to see whether you are holding to the faith. Test yourselves. Do you not realize that Jesus Christ is in you?"* (II Corinthians 13:5, Revised Standard Version).  
   
@@ -72,7 +58,7 @@ Now, the state of consciousness to which you most constantly return is the place
   
 All right, what state would that be if it were true? I conceive a state that, if it were true, that would make all my wishes come true. I go into that state. Now, the first time I enter the state and view the world from it, it is wonderful, but I may never re-enter that state. Therefore, it is not my home. I want to make that state my perpetual home, so I automatically dwell in that state, and if I dwell in it so that automatically I am in that state, it becomes my dwelling place. So, *"I will go and prepare a place for you."* I am not talking to you; I am talking to myself: *"I will take you, Neville, born behind the 8-ball - born unknown, unwanted, poor - everything that is simply behind the 8-ball, and I am going to take you, Neville - now that you have found me, the Second Man, the Lord from Heaven, your own wonderful human imagination - now that you rouse me, I will go."*.  
   
-And I will dwell in the state and feel myself to be Neville - that *"outer man"* I just left on the chair or left on the bed, and I will see the world as Neville would see it if he were with me now. I view the world from that state. And, then, when it seems natural to me, I return to the physical *"outer man"* that I left on a chair - that I left on the bed and as I return, we fuse and become one person, not two. Then I move across a [[Bridge of incidents]] that I don't really, rationally build - it simply appears, and I move across a series of events that I do not reasonably determine - they simply happen. I will move across this bridge of events up to the state where I entered and now dwell. But when I get there, it seems so natural!.  
+And I will dwell in the state and feel myself to be Neville - that *"outer man"* I just left on the chair or left on the bed, and I will see the world as Neville would see it if he were with me now. I view the world from that state. And, then, when it seems natural to me, I return to the physical *"outer man"* that I left on a chair - that I left on the bed and as I return, we fuse and become one person, not two. Then I move across a [Bridge of incidents](/Bridge-of-incidents) that I don't really, rationally build - it simply appears, and I move across a series of events that I do not reasonably determine - they simply happen. I will move across this bridge of events up to the state where I entered and now dwell. But when I get there, it seems so natural!.  
   
 The man that thought, because of his past limitations, he could never enter that state - now he finds himself in that state. No matter whom he meets, he meets them from that state, and it is perfectly natural to him. This is the story that Scripture teaches to you, to me, and to every one in the world. But until you find God, which is your own Self, you aren't going to do it. *"Be still, and know that 'I Am' Is God."* There is no other God!.  
   
@@ -86,7 +72,7 @@ If He is with me always, where is He? He said, *"I am with you always, to the ve
   
 The conversation now - I am quoting from the 8th chapter of the book of John. It is taking place in you. No one else is hearing it. I am only now quoting from a passage from the 8th [chapter] of John, *"You are from below, I am from above; you are of this world, I am not of this world. I say you will die in your sins, for you will die in your sins unless you believe that I am He."* (John 8:23, 24) I am only quoting from the 8th chapter of the Gospel of John..  
   
-In Scripture, above and within are the same; below and without are the same. So, when you read, *"I am from above,"* he's telling you, *"I am from within"*, for he tells you, *"the kingdom of heaven is within you."* (Luke 17:21) So, I am from above, therefore I am from within. You, the 'outer man' - you are from without, therefore you are from below. You are of this world. I don't have to remain anchored to what my senses dictate and tell me that I am. I need not be here. You, looking at me from the outside, as the *"outer man,"* will say, *"Neville is on the platform."* Knowing my complete outer world, you would know my restrictions, my limitations. You do not know my ambitions, my [[Dreams]], my wishes. I, and I alone, know my ambitions and my wishes. The *"Inner Man"* knows them, and He knows how to enter these states and prepare a state for the *"outer man"* to fulfill it. The *"outer man"* can't do it. The *"outer man"* is completely anchored by his senses and confirmed by his reason..  
+In Scripture, above and within are the same; below and without are the same. So, when you read, *"I am from above,"* he's telling you, *"I am from within"*, for he tells you, *"the kingdom of heaven is within you."* (Luke 17:21) So, I am from above, therefore I am from within. You, the 'outer man' - you are from without, therefore you are from below. You are of this world. I don't have to remain anchored to what my senses dictate and tell me that I am. I need not be here. You, looking at me from the outside, as the *"outer man,"* will say, *"Neville is on the platform."* Knowing my complete outer world, you would know my restrictions, my limitations. You do not know my ambitions, my [Dreams](/Dreams), my wishes. I, and I alone, know my ambitions and my wishes. The *"Inner Man"* knows them, and He knows how to enter these states and prepare a state for the *"outer man"* to fulfill it. The *"outer man"* can't do it. The *"outer man"* is completely anchored by his senses and confirmed by his reason..  
   
 Now, let me share with you a simple story. At the time that it happened, it seemed an impossible thing. Right after the war was over, I took the first trip out with my wife and little girl to the Island of Barbados in the West Indies. I made no preparation for return. I sailed from New York. I thought I would go and stay a few months in the island with my family, who were all in Barbados, making no preparation for my return..  
   
@@ -169,8 +155,8 @@ Now let us go into the Silence.
 - "Be still and know that 'I Am' is God" - Scripture encourages belief in one's own self as God.
 - All things are possible to God, and this belief allows for the manifestation of desires.
 
-### [[Prayer]] and Imagination
-- [[Prayer]] is the subjective appropriation of objective hopes.
+### [Prayer](/Prayer) and Imagination
+- [Prayer](/Prayer) is the subjective appropriation of objective hopes.
 - It is about mentally entering a desired state and thinking from it, rather than thinking of it.
 - The true identity of man, Jesus Christ, can be found within oneself.
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Great Secret
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Judas's Betrayal, The Great "I am", Jesus Within You, The Fatherhood of God and the Brotherhood of Man, The Pattern of Salvation, God Became His Sons, Christ Within You, The Journey to Discover Jesus, Return to God the Father, The Composer of the Incredible Story, The Composer of the Incredible Story]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Judas is called the betrayer, but what was it that he betrayed? Judas betrayed the great secret of the messiah and where Jesus might be found. His is the most important role in the great mystery of God. 
 
 *"I have found in David, the son of Jesse, a man after my heart who will do all my will. Of this man's posterity God has brought to Israel a Savior, Jesus, as he promised. Then in the 43rd chapter of Isaiah, the Lord reveals the Savior saying; "*I, I am the Lord, and besides me there is no savior.*" If God brought a savior to humanity, he had to bring himself - as Jesus, which simply means "*I am.*" This he revealed in the great "*I am*" statements: I am the vine; I am the door; I am the shepherd; I am the bread. In those statements Jesus is declaring that unless you believe that your "*I am*" is Lord, you die in your sins; for your "*I am" is Jesus - your Savior - the man who will rule as God, as he promised. 

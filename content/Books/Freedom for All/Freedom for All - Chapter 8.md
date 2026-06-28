@@ -1,37 +1,3 @@
----
-book: Freedom for All
-chapter: Faith
-keywords: []
-bible_ref:
-  - Matthew 17:20
-  - Matthew 28:2
-  - 1 Corinthians 1:23
-  - Hebrews 11:1
-  - Hebrews 11:3
-  - Mark 16:3
-  - Luke 24:2
-  - John 20:1
-  - Isaiah 40:17
-  - Isaiah 45:5
-  - Daniel 4:32
-  - John 1:14
-  - Psalms 107:20
-  - 1 Samuel 3:9-10
-tags: book
-topics:
-  - Faith is absolute
-  - like the mustard seed
-  - Have faith by being the desired state
-  - Wear the feeling to be sealed in the new state
-  - No one can stop the embodied inner state
-  - Send words by defining
-  - listening
-  - feeling
-  - Faith impregnates; it is God speaking through you
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"And Jesus said unto them, Because of your unbelief; for verily I say unto you, if ye have faith as a grain of mustard seed, ye shall say unto this mountain, remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you."* (Matthew 17:20)
 
 This faith of a grain of mustard seed has proved a stumbling block to man (1Corinthians 1:23). He has been taught to believe that a grain of mustard seed signifies a small degree of faith. So he naturally wonders why he, a mature man, should lack this insignificant measure of faith when so small an amount assures success.

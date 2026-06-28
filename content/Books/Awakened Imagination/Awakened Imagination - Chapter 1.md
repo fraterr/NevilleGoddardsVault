@@ -1,33 +1,3 @@
----
-book: Awakened Imagination
-chapter: Who is your imagination?
-keywords:
-  - Assumption
-bible_ref:
-  - John 1:3
-  - John 4:35
-  - John 10:10
-  - John 15:16
-  - Isaiah 53:3
-  - Galatians 1:15-16
-  - Joel 3:10
-  - Mark 11:24
-  - Hebrews 11:27
-  - Ephesians 5:14
-tags: book
-topics:
-  - Imagination
-  - Christ as Imagination
-  - Forgiveness and Imagination
-  - Awakening Inner Imagination
-  - Imagination vs Reason
-  - Imagination and Faith
-  - Inner World of Imagination
-  - Applying Imagination
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 CERTAIN WORDS in the course of long use gather so many strange connotations that they almost cease to mean anything at all. Such a word is imagination. This word is made to serve all manner of ideas, some of them directly opposed to one another. Fancy, thought, hallucination, suspicion: indeed, so wide is its use and so varied its meanings, the word imagination has no status nor fixed significance.  
 For example, we ask a man to *"use his imagination"*, meaning that his present outlook is too restricted and therefore not equal to the task. In the next breath, we tell him that his ideas are *"pure imagination"*, thereby implying that his ideas are unsound. We speak of a jealous or suspicious person as a *"victim of his own imagination"*, meaning that his thoughts are untrue. A minute later we pay a man the highest tribute by describing him as a *"man of imagination"*.  
 Thus the word imagination has no definite meaning. Even the dictionary gives us no help. It defines imagination as:
@@ -76,10 +46,10 @@ Reasonably, this is impossible. Only awakened imagination can enter into and par
 This conception of Christ Jesus as human imagination raises these fundamental questions: Is imagination a power sufficient, not merely to enable me to assume that I am strong, but is it also of itself capable of executing the idea?  
 Suppose that I desire to be in some other place or situation. Could I, by imagining myself into such a state and place, bring about their physical realization? Suppose I could not afford the journey and suppose my present social and financial status oppose the idea that I want to realize. Would imagination be sufficient of itself to incarnate these desires? Does imagination comprehend reason? By reason, I mean deductions from the observations of the senses.  
 Does it recognize the external world of facts? In the practical way of everyday life is imagination a complete guide to behaviour?  
-Suppose I am capable of acting with continuous imagination, that is, suppose I am capable of sustaining the feeling of my wish fulfilled, will my [[Assumption]] harden into fact?  
+Suppose I am capable of acting with continuous imagination, that is, suppose I am capable of sustaining the feeling of my wish fulfilled, will my [Assumption](/Assumption) harden into fact?  
 And, if it does harden into fact, shall I on reflection find that my actions through the period of incubation have been reasonable? Is my imagination a power sufficient, not merely to assume the feeling of the wish fulfilled, but is it also of itself capable of incarnating the idea?  
-After assuming that I am already what I want to be, must I continually guide myself by reasonable ideas and actions in order to bring about the fulfillment of my [[Assumption]]?  
-Experience has convinced me that an [[Assumption]], though false, if persisted in, will harden into fact, that continuous imagination is sufficient for all things, and all my reasonable plans and actions will never make up for my lack of continuous imagination.  
+After assuming that I am already what I want to be, must I continually guide myself by reasonable ideas and actions in order to bring about the fulfillment of my [Assumption](/Assumption)?  
+Experience has convinced me that an [Assumption](/Assumption), though false, if persisted in, will harden into fact, that continuous imagination is sufficient for all things, and all my reasonable plans and actions will never make up for my lack of continuous imagination.  
 Is it not true that the teachings of the Gospels can only be received in terms of faith and that the Son of God is constantly looking for signs of faith in people – that is, faith in their own imagination?  
 Is not the promise  *"Believe that ye receive and ye shall receive"* (Mark 11:24), the same as *"Imagine that you are and you shall be"*? Was it not an imaginary state in which Moses *"Endured, as seeing Him who is invisible"* (Hebrews 11:27)?  
 Was it not by the power of his own imagination that he endured?  

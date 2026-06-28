@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Believe In Him
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Belief in Him, The Pattern of Salvation, The Splitting of God's Temple, The Birth of God, Believing in Two Stories, True Belief]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When asked: *"What must we do to be doing the work of God?"* he answered: *"Believe in him whom he has sent."* That’s all you have to do. Salvation is yours when you believe in him. There is no aristocracy of privilege, and to believe that Jesus exists means nothing. The question is: can you believe in his story?
 
 He tells us he was sent, and everyone who is sent is Jesus, the sender. Those who are called from the world of death do not volunteer or choose the task. They are selected, called, incorporated into the body of the Risen Lord and sent as the sender, and can say: *"He who sees me sees him who sent me."* After incorporation into his being, the individual is sent - not to tell that he has a large family, a lovely home, or lots of money, but that he has fulfilled scripture.
@@ -94,11 +80,11 @@ A lady recently called, who had heard me many years ago in Detroit and Minneapol
 
 Her only brother was a very thrifty businessman, who lived frugally. He died, and three weeks later his wife died, leaving everything to this lady. Now she has the money to live in luxury, just as she had imagined. This lady assumed wealth without knowing where it would come from, and now she has it.
 
-The law will not fail you here or in the world of God, for you must believe both stories. I tell you: an [[Assumption]], though false, if persisted in will prove itself in the world of Caesar, as it did in her case. I also tell you an incredible story: that you will awaken in your skull and experience a spiritual birth as described in scripture; for you are the one spoken of there.
+The law will not fail you here or in the world of God, for you must believe both stories. I tell you: an [Assumption](/Assumption), though false, if persisted in will prove itself in the world of Caesar, as it did in her case. I also tell you an incredible story: that you will awaken in your skull and experience a spiritual birth as described in scripture; for you are the one spoken of there.
 
 Can you believe both stories? If you believe one enough to test it, and it proves itself in performance, try to believe the other; for unless you believe both, you cannot prove them. If you believe the one in the world of Caesar, you can have money as this lady has. But you must believe the other in order to live where you do not need money, for there you know that the earth is yours and all within it. When you are incorporated into the body of God, you know you are God and everything is yours. Then you will tell your story, depart this world, and return to the Father - who is yourself!
 
-But while you are here, where you do not know the world is all yours, apply the law of [[Assumption]]. Assume the feeling of the wish fulfilled and let God’s law work for you. Learn to believe the story on this level through application, and one day you will believe the incredible story on the higher level.
+But while you are here, where you do not know the world is all yours, apply the law of [Assumption](/Assumption). Assume the feeling of the wish fulfilled and let God’s law work for you. Learn to believe the story on this level through application, and one day you will believe the incredible story on the higher level.
 
 What must we do to be doing the work of God? Believe in him whom he has sent. Though born of flesh and blood, with four brothers and sisters, and a carpenter by trade, after the second birth he was no longer the man one knew, but an entirely different being. After telling you what happened in him, he asks you to believe it. If you do, you believe in the way you are saved. If you do not, you believe in and will remain in the world of death with its many blows.
 
@@ -140,7 +126,7 @@ Now let us go into the silence.
 
 - Belief in both the world of Caesar (material reality) and the world of God (spiritual reality) is necessary.
 - Assuming the feeling of the wish fulfilled on the material level can lead to its manifestation.
-- Applying the law of [[Assumption]] and believing in the incredible story of spiritual birth will lead to salvation.
+- Applying the law of [Assumption](/Assumption) and believing in the incredible story of spiritual birth will lead to salvation.
 
 ### True Belief
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Faith In God
-keywords: [Bridge of incidents]
-bible_ref:
-tags: lecture
-topics: [Faith as described in Book of Hebrews, Paul as a father figure, Countless guides to success, Testing oneself, Jesus Christ as the creative power of the universe, Have faith in your own imagination, Christ being formed in you, Testing God's creative power, God's creative power in the depth of our souls, Belief in Jesus Christ, The power of imagination, The power of "Amen", Testing your creative power, The power of "Amen", Testing your creative power]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In the 11th chapter of the Book of Hebrews, faith is described as: "The assurance of things hoped for, the evidence of things not seen.” By faith we understand that the world was created by the word of God, so things seen are made out of that which does not appear.   
   
 In the Hebraic world, the rabbi is the father of his congregation. Paul called his followers his little children, saying: *"Although you have countless guides in Christ, you do not have many fathers. I became your father in Jesus Christ through the gospel. I urge you then to be imitators of me"*   
@@ -101,7 +87,7 @@ Now let us go into the silence.
 
 ### Testing God's creative power
 - Test God by using your imagination to claim what you desire.
-- Let your imagination create the [[Bridge of incidents]] needed to fulfill your desires.
+- Let your imagination create the [Bridge of incidents](/Bridge-of-incidents) needed to fulfill your desires.
 
 ### God's creative power in the depth of our souls
 - God works in the depths of our souls through our imagination.

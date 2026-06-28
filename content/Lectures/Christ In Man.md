@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christ In Man
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [Christ In Man as the Reality, Dream Revelation of God, Creation and Transformation Through Imagining, Repentance and Revision, The Power of Persistence and Faith, The Process of Redemption, Repentance as Transformation, The Fulfillment of Scripture, The Power of Faith and Imagining, The Power of Faith and Imagining]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Christ is the reality, the God that is in Man. It is he who breaks down the dividing wall between himself and Man and makes of the two, one new Man. Is this all done on the other side of the veil, or is there something that we can do on this side of that dividing wall? Let me share with you a story of a very dear friend of mine, one who has had most of my experiences. Listen to me carefully, for God speaks to man through the medium of dream and unveils himself through revelation. This is his letter.  
   
 'I awoke at 6:00 o'clock in the morning. It was too early to get up, so I decided to lie in bed and do some purposeful imagining. Then this thunderous voice came from within me declaring, 'I AM GOD! I AM SELF-CONTAINED! I AM SELF SUFFICIENT!' It kept repeating these words over and over and over until finally I said to it, 'I know, and I'm trying to do something about it, but you are speaking so loudly I cannot imagine.' But the voice continued 'I AM GOD! I AM SELF-CONTAINED! I AM SELF SUFFICIENT!' over and over again. It seemed to me like rape, if you can't prevent it, relax and enjoy it, so I did, and fell asleep enjoying this declaration.  
@@ -38,17 +24,17 @@ It was so easy for my friend to create out of nothing. When he threw the ball in
   
 In the earliest gospel, the book of Mark, we are told that after John (reasoning consciousness) was arrested, Jesus came into Galilee preaching the gospel of God saying, 'The time is fulfilled and the kingdom of God is at hand. Repent and believe in the gospel.' What he is saying is, 'Believe my testimony, for all that I tell you is but the fulfillment of scripture.' Standing before you tonight I can say, unschooled, unlettered, unknown, uneducated by human standards, yet scripture, the only reality in the world, has been fulfilled in me. Everything in this world will pass away, but God's Word is forever and his Word is being fulfilled in everyone.  
   
-God is not condemning any man, for they are only states, and we must learn to distinguish between the occupant of the state and the state he occupies. God does not reject man, but the state, and puts man into another state. I know that since this man heard my message years ago he has been daily practicing [[Revision]]. [[Revision]] is repentance and [[Revision]] results in repeal. When you revise a memory that is fixed you have repealed it. He repealed the dilapidated home and streetcar. Here is the new man fulfilling the 22nd chapter of Isaiah. Although the word 'golf ball' is not there, the word 'ball', that which turns upon itself and repeats a memory image, is. But, holding the ball in his hand (the symbol of God's power and wisdom) he persisted and exercised his power.  
+God is not condemning any man, for they are only states, and we must learn to distinguish between the occupant of the state and the state he occupies. God does not reject man, but the state, and puts man into another state. I know that since this man heard my message years ago he has been daily practicing [Revision](/Revision). [Revision](/Revision) is repentance and [Revision](/Revision) results in repeal. When you revise a memory that is fixed you have repealed it. He repealed the dilapidated home and streetcar. Here is the new man fulfilling the 22nd chapter of Isaiah. Although the word 'golf ball' is not there, the word 'ball', that which turns upon itself and repeats a memory image, is. But, holding the ball in his hand (the symbol of God's power and wisdom) he persisted and exercised his power.  
   
 You have that power. Test it by bringing a seemingly hopeless case before your mind's eye and revise it. Persist in revising it until you can let go of that ball by feeling the breath of relief because it is done. If tomorrow does not bring the confirmation, or next week, wait, for it is done. And in a way that no one on earth could devise, it will come into your world and you will see the results of what you did.  
   
-So I ask everyone to practice [[Revision]]. Revise the past. I don't care what it is, revise it and the past will conform to your dream of what it ought to have been and appear before you. Then the new man will rise within you and it will no longer be you and Christ, but only Christ. We are told in the 9th chapter of Ezekiel to follow the man who is clothed in linen. He will go through the city and leave a mark on the foreheads of men, women and children. 'Follow after him, and everyone who does not bear the mark, whether he be an old man, an old woman, a maiden, a young boy or a child, slaughter them and your eye must have no pity.' Then, in the 22nd chapter of Revelation he turns and those who have the mark come before him. They see his face and his name is on their foreheads.  
+So I ask everyone to practice [Revision](/Revision). Revise the past. I don't care what it is, revise it and the past will conform to your dream of what it ought to have been and appear before you. Then the new man will rise within you and it will no longer be you and Christ, but only Christ. We are told in the 9th chapter of Ezekiel to follow the man who is clothed in linen. He will go through the city and leave a mark on the foreheads of men, women and children. 'Follow after him, and everyone who does not bear the mark, whether he be an old man, an old woman, a maiden, a young boy or a child, slaughter them and your eye must have no pity.' Then, in the 22nd chapter of Revelation he turns and those who have the mark come before him. They see his face and his name is on their foreheads.  
   
 That name is Jesus and Jesus means Jehovah. He only redeems himself. Don't think because of this strange imagery that there are those who are lost. Everyone, at a certain moment in time, is slaughtered because of the state he is in, but the play goes on and he plays other parts and still, more parts, until finally he plays the part of the selected one. And in that final part the mark is on his forehead and the name Jesus is his own. So in the end there is Jesus only. Everyone will be redeemed. Infinite mercy steps beyond and redeems man in the body of Jesus. There is only one body, only one God, only one being, so when you are redeemed you are He.  
   
 So tonight, begin to practice the art of repentance, for everything can be redeemed. Now, repentance is not to feel remorseful or regretful. I don't care what you have done; you don't have to feel remorseful about it. You had to do it because of the state you were in at the time. Repentance is practicing the art of moving into the opposite state. You don't feel sorry for yourself and wallow on some weeping wall when you repent. Your sins may be as scarlet, but through repentance they shall be white as snow.  
   
-It does not matter what a man has ever done, he is only expressing a state. When in the state of murder he must murder, or in the state of the robber he has to steal. We condemn the occupant as though he did it, but he is in a state, which he entered wittingly or unwittingly. So Blake said, 'I do not consider either the just or the wicked to be in a supreme state, but to be every one of them in the state of sleep which the soul may fall into in its deadly [[Dreams]] of good and evil when it left paradise following the serpent.'  
+It does not matter what a man has ever done, he is only expressing a state. When in the state of murder he must murder, or in the state of the robber he has to steal. We condemn the occupant as though he did it, but he is in a state, which he entered wittingly or unwittingly. So Blake said, 'I do not consider either the just or the wicked to be in a supreme state, but to be every one of them in the state of sleep which the soul may fall into in its deadly [Dreams](/Dreams) of good and evil when it left paradise following the serpent.'  
   
 Scripture tells us there are two things, which God finds impossible to forgive. The first is our failure to believe that I am He and the second is the eating of the tree of good and evil. Man's unwillingness to believe that I am He is the fundamental sin; for God, whose name is I am, became man that man might become God. My unwillingness to believe that I am he who causes me to breathe, to think and to move, as well as going through life condemning good and evil as I see it is unforgivable to God. But then comes this wonderful revelation, 'I know from the Lord Jesus Christ that there is nothing unclean in itself, but any man who sees anything to be unclean, to him it is unclean.' And as he lives with it, his state allows it to be seen as unclean. That's life.  
   
@@ -92,7 +78,7 @@ Good night.
 - He creates another scene of young boys and girls in messy pants and bikinis, and transforms them into elegantly dressed ladies and gentlemen by throwing a ball.
 - The friend realizes the power of creation and transformation through imagination.
 
-### Repentance and [[Revision]]
+### Repentance and [Revision](/Revision)
 - The friend is unable to change the past until he persists and eventually succeeds.
 - Jesus preaches repentance and belief in the gospel to break down the wall between Man and God.
 - Repenting and revising the past allows for a new and desirable present and future.
@@ -100,11 +86,11 @@ Good night.
 ### The Power of Persistence and Faith
 - Persistence in revising a seemingly hopeless situation can bring forth desired results.
 - The story of the woman and the constable and the man at midnight exemplify the power of persistence.
-- No matter how fixed a turmoil may seem, persisting in [[Revision]] will cause it to change.
+- No matter how fixed a turmoil may seem, persisting in [Revision](/Revision) will cause it to change.
 
 ### The Process of Redemption
 - The process of redemption involves breaking down the dividing wall between two states.
-- By practicing repentance and [[Revision]] on this side of the veil, the wall becomes thinner until Christ is born.
+- By practicing repentance and [Revision](/Revision) on this side of the veil, the wall becomes thinner until Christ is born.
 - Jesus is the one who redeems, and when the shell is broken, there is only Jesus.
 
 ### Repentance as Transformation

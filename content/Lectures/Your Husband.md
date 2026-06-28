@@ -1,24 +1,10 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Your Husband
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Misunderstood Bible verse in Genesis 3:16, Falling in love with ideas, Ideas cannot be destroyed, Dream unions, The search for the true husband, Biblical references, Awakening and self-realization, Dreams and unions, Multiplying pain and bearing ideas, life and children, True self-realization and divine formula, True self-realization and divine formula]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Probably one of the most misunderstood verses in the Bible is recorded in the 3rd chapter of Genesis, the 16th verse: *"The Lord said to the woman, I will greatly multiply your sorrow and in pain you shall bring forth children, yet your desire shall be for your husband and he shall rule over you."*
 
 In this fabulous world of ours, many accept this statement literally and believe that the children spoken of here come from the womb of woman and the male is the husband and ruler; however in the 54th chapter of Isaiah, you are told: *"Your Maker is your husband, the Lord of hosts is his name."*
 
 Humanity (male and female) is God's emanation, yet his wife, 'til the sleep of death is past'. Regardless of your sex you are the woman the Lord spoke to in this 3rd chapter of Genesis. Your children are not those brought forth from the womb of woman, but from your imagination! Your husband (the Lord of hosts) will sire every idea you fall in love with, no matter how horrible it may be. And being protean, God has the power to play every part and assume every shape in the world. 
 
-Let us take a vivid example. When Hitler and his Third Reich came into power, unnumbered happily married women who loved their husbands and children fell in love with the concept of a superior race - a Germanic race who would enslave humanity. And as the idea caught fire in their minds, these women had an affair with Hitler in their [[Dreams]]. It was not the person, Hitler, that they had union with, but the state he personified - just as you, if you are completely honest with yourself, have fallen in love with an idea (a state) and met its personification in soft Beulah's night and had an affair. Then in the morning you have looked at your husband and experienced pain, for not understanding the mystery of Christ, you thought you had an affair with a person. But the man involved could have been playing cards, getting drunk, or sound asleep in his own bed and be completely oblivious to you as a person. He was merely the personification of a state which you accepted and yielded to in soft Beulah's night, but by that act you multiplied and replenished the earth with the same idea, the same state!
+Let us take a vivid example. When Hitler and his Third Reich came into power, unnumbered happily married women who loved their husbands and children fell in love with the concept of a superior race - a Germanic race who would enslave humanity. And as the idea caught fire in their minds, these women had an affair with Hitler in their [Dreams](/Dreams). It was not the person, Hitler, that they had union with, but the state he personified - just as you, if you are completely honest with yourself, have fallen in love with an idea (a state) and met its personification in soft Beulah's night and had an affair. Then in the morning you have looked at your husband and experienced pain, for not understanding the mystery of Christ, you thought you had an affair with a person. But the man involved could have been playing cards, getting drunk, or sound asleep in his own bed and be completely oblivious to you as a person. He was merely the personification of a state which you accepted and yielded to in soft Beulah's night, but by that act you multiplied and replenished the earth with the same idea, the same state!
 
 It is impossible to kill an idea, for the moment an idea is accepted, it is conceived and the earth replenished. You cannot kill a state by cutting off the occupant's head, shooting [him], or putting the man in prison. The occupant may depart, but the state remains for anyone to fall in love with. These are false gods, which will multiply your pain and cause you to go through literal hell as you bring forth these ideas as your children.
 
@@ -36,13 +22,13 @@ Now, if you are Catholic you may be shocked, but don't think the Pope or the Pri
 
 In the 2nd chapter of Paul's 1st Letter to Timothy, the statement is made: *"Woman is saved by the birth of children."* This is false. The footnote in the Revised Standard Version gives you the Greek, and the true translation as: *"by the birth of the child."* It's not by bearing children (all these ideas) that one is saved, but by bearing the child! When you give yourself completely over to the gospel story you are ready, and God will assume the mask of the one who is expressing it at the moment. Then you will have union with that being and bear the child!
 
-So when you have these [[Dreams]], don't feel strange and condemn yourself. Everyone has had similar experiences. If you resist the union in dream it is because the idea represented there is foreign to you; but when your desire is something you really want to make alive and it is expressed - be it good, bad, or indifferent - you will have union with it and feel no shame, in spite of the whole vast world looking on, for this is the world in which we live.
+So when you have these [Dreams](/Dreams), don't feel strange and condemn yourself. Everyone has had similar experiences. If you resist the union in dream it is because the idea represented there is foreign to you; but when your desire is something you really want to make alive and it is expressed - be it good, bad, or indifferent - you will have union with it and feel no shame, in spite of the whole vast world looking on, for this is the world in which we live.
 
 In the 9th chapter of Luke, Jesus asked his disciples: *"Who do people say that I am?"* And they answered: *"John the Baptist, or Elijah, or one of the risen prophets."* Then he turned to them and asked: *"But who do you say that I am?"* Peter then became the spokesman for the group and said: *"You are the Christ of God."* Commanding them to tell no one, he said: *"The Son of man must suffer and be rejected by the elders, the chief priests, and the scribes. He must be killed, but on the third day he will rise again."*
 
 Jesus did not deny Peter's confession, but declined to make it public until he had reinterpreted the popular messianic concept in terms of his own experience. From time to time, one who has experienced the true story of salvation comes into the world and tells it. Then all the elders, scribes, and priests, who carry on the traditions of men, will deny it. This is eternally so; that is why he declined to make it public. The scribes, teaching the traditions of men, claim Christ is coming from without - but I tell you he comes from within! I tell you that God became your very *"self"* that you may become God.
 
-Playing all the parts, God lets you go anywhere and meet anyone. And when you fall in love with a state, he will play the part of the state expressed, and in soft Beulah's night you will have an affair. He will play the part of a Stalin or a Hitler, a Pope or a prince, if you are in love with the state of consciousness. And you will give yourself willingly to him, thereby multiplying and perpetuating that state in the world. In the morning you may be ashamed of your act when you face the one who bears your name (or whose name you now bear), but at the time you had no choice in the matter, for God in you - who is your husband and Maker - played the part. Being protean, if you meet a dog or cat, see a bird or fish in your [[Dreams]], it is because God is playing their parts. No matter what the animal, remember: God is playing its part in order for you to become one, for in the end he will leave all others and cleave to you, his wife, until you become one being, one body, one Spirit, one hope, one God and Father of all.
+Playing all the parts, God lets you go anywhere and meet anyone. And when you fall in love with a state, he will play the part of the state expressed, and in soft Beulah's night you will have an affair. He will play the part of a Stalin or a Hitler, a Pope or a prince, if you are in love with the state of consciousness. And you will give yourself willingly to him, thereby multiplying and perpetuating that state in the world. In the morning you may be ashamed of your act when you face the one who bears your name (or whose name you now bear), but at the time you had no choice in the matter, for God in you - who is your husband and Maker - played the part. Being protean, if you meet a dog or cat, see a bird or fish in your [Dreams](/Dreams), it is because God is playing their parts. No matter what the animal, remember: God is playing its part in order for you to become one, for in the end he will leave all others and cleave to you, his wife, until you become one being, one body, one Spirit, one hope, one God and Father of all.
 
 Now let me share a letter I have been waiting to receive since the 15th of December. This lady's home is in a small, rustic canyon. One day she spent the afternoon in Los Angeles with a casual acquaintance, and had just returned home, when she heard the phone ringing. She was being called by the casual friend, who appeared to be quite distressed. Inviting the lady to join her for dinner, she returned to Los Angeles, where the lady asked her to spend the night. It seemed strange to her to agree, but after spending several hours reading aloud to the lady, they retired and she fell asleep. Then she said: *"At 3:30 in the morning a peculiar, cold wind caused me to awake. The room contained an eerie light, when out of nowhere my two brothers - whom I haven't seen in over forty years - appeared, along with my landlord, who is like a brother to me. The three take their positions, two at my feet and one at my head. Picking up an infant wrapped in swaddling clothes, my older brother said: "*She is too old to have a baby.*" Then he placed it in my arms, and as I looked at the child I began to smile. The child then responded and extended its arms toward me, when I awoke on the bed."* 
 
@@ -63,7 +49,7 @@ he comforts and heals and calls them friend."
 
 Although you go astray, following false gods, false beliefs, God will always bring you back; but you will suffer, for you must experience the messianic pains of childbearing. Then one day you will find the one husband and fall in love with his promise. And you will meet someone who personifies salvation's story and have union with him. But he will be totally unaware of the fact that you so fell in love with the idea that he sponsors, and will never know of your experience unless you tell him.
 
-Having been sent from on high to tell you who *"I AM"*, you may believe me or resent my message; but I, a person called Neville, am totally unaware, totally innocent of anything that happens to you in your [[Dreams]]. Leading you now toward what you believe in, your husband will assume my mask and play the role I personify in your dream. Change your beliefs and he will assume another mask and play that part, as you multiply and replenish the earth with ideas of which you are in love!
+Having been sent from on high to tell you who *"I AM"*, you may believe me or resent my message; but I, a person called Neville, am totally unaware, totally innocent of anything that happens to you in your [Dreams](/Dreams). Leading you now toward what you believe in, your husband will assume my mask and play the role I personify in your dream. Change your beliefs and he will assume another mask and play that part, as you multiply and replenish the earth with ideas of which you are in love!
 
 Don't think that communism or democracy can be destroyed. If I believe in democracy as a form of government, it is an idea. You can kill me, but you can never kill the ideas I entertain. This morning's paper tells of those who have been stealing from the government. Why should we be taken aback when we see dishonesty among officials? From the very beginning they are encouraged by example to make what gain they can from their positions. Seeing what their superiors did and got away with, they have union with the idea and awaken to that state of consciousness. Then they suffer, for this is bearing the children of a false god. 
 
@@ -89,8 +75,8 @@ Now let us go into the silence.
 - The children mentioned in Genesis are not physical offspring, but ideas conceived in the imagination.
 
 ### Falling in love with ideas
-- People fall in love with ideas and their personifications in [[Dreams]].
-- Example of women in Hitler's Germany falling in love with the idea of a superior race and having affairs in their [[Dreams]] with Hitler.
+- People fall in love with ideas and their personifications in [Dreams](/Dreams).
+- Example of women in Hitler's Germany falling in love with the idea of a superior race and having affairs in their [Dreams](/Dreams) with Hitler.
 - The person involved is only the personification of the state or idea.
 
 ### Ideas cannot be destroyed
@@ -99,7 +85,7 @@ Now let us go into the silence.
 - These false gods cause pain and suffering when brought forth as children.
 
 ### Dream unions
-- Personal experience of having unions in [[Dreams]] with someone other than one's mate.
+- Personal experience of having unions in [Dreams](/Dreams) with someone other than one's mate.
 - The person is only the mask worn by the husband (God) who plays the part of the state or idea.
 
 ### The search for the true husband
@@ -117,8 +103,8 @@ Now let us go into the silence.
 - The baby is the key to the kingdom.
 - Regardless of worldly possessions, the true husband is sought.
 
-### [[Dreams]] and unions
-- [[Dreams]] represent strange lands and unions with false states personified by individuals.
+### [Dreams](/Dreams) and unions
+- [Dreams](/Dreams) represent strange lands and unions with false states personified by individuals.
 - The person does not know they are fulfilling a role in the dreamer's unconscious.
 - All characters in scripture are played by God.
 - The promise of a child is given to everyone, regardless of age or circumstances.

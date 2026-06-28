@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Come O Blessed
-keywords: [Prayer, Dreams]
-bible_ref:
-tags: lecture
-topics: [Scripture and Parables, Christ within, Examples of Treating Others as Christ, Realizing the Oneness with Christ, The Power of Imagination and Prayer, The Importance of Using Talents, Seeing Christ in Everyone, Journey towards Awakening, The Righteous and the Unrighteous, Treating Others as Christ, Transforming the World through Love, The Power of Prayer and Imagination, The Ultimate Awakening, Embracing the Truth]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 At times I discover that I take too much for granted. Just because I read scripture all day, I’m inclined to believe most people do - and they don’t. Yesterday a doctor who has been coming here for quite a while came to see me, and I realized that I had not made myself clear; so tonight I shall try to make this a very practical lecture, yet you will find it profoundly spiritual.  
   
 In the 25th chapter of the Book of Matthew, you will read the words: *"Come O blessed of my Father and inherit the kingdom prepared for you from the foundation of the world."* Now, this entire chapter is made up of one parable after the other. It begins with the ten wise and foolish virgins. Then the story is told of the talents and their use or misuse, followed by this statement: *"I was hungry and you gave me food, thirsty and you gave me drink. I was naked and you clothed me, a stranger and you received me. I was in prison and sick and you visited me."* Surprised that they are invited to inherit the kingdom prepared for them before the foundation of the world, they said to him: *"When did we find you hungry and give you food, thirsty and give you drink? When did we see you as a stranger and welcome you, or naked and clothed you? And when did we see you sick and imprisoned and visited you?"* And he replied: *"As you did it to the least of one of these, you did it unto me."*  
@@ -36,11 +22,11 @@ So here, let me give you the side benefits of praying for another. While my frie
   
 If I could only get you to realize that you dwell in everyone. That you are always looking at yourself pushed out! Unable to behold another, every being in the world is yourself made visible, so if you don’t see the Christ in another and you are only feeding the Christ, then you do not know who *"I am."*  
   
-*"God, Himself enters death’s door with everyone who enters and lies down in the grave with him and shares his visions of eternity, until he awakes and sees Jesus and the linen clothes that the females have woven for him at the gate of the Father’s house."* (Wm. Blake) God himself, whose name is *"I am"* entered death’s door in order for you to breathe. Being aware is saying *"I am"* and that’s God. You will never find him in any cemetery on the outside, for God, your own wonderful human imagination, laid himself down in your skull to share your [[Dreams]] of eternity until you awake. And when you do you will see the linen clothes and realize who *"I am."* You do not see Jesus as another, but you will know him as yourself when God’s only begotten Son calls you *"Father."*  
+*"God, Himself enters death’s door with everyone who enters and lies down in the grave with him and shares his visions of eternity, until he awakes and sees Jesus and the linen clothes that the females have woven for him at the gate of the Father’s house."* (Wm. Blake) God himself, whose name is *"I am"* entered death’s door in order for you to breathe. Being aware is saying *"I am"* and that’s God. You will never find him in any cemetery on the outside, for God, your own wonderful human imagination, laid himself down in your skull to share your [Dreams](/Dreams) of eternity until you awake. And when you do you will see the linen clothes and realize who *"I am."* You do not see Jesus as another, but you will know him as yourself when God’s only begotten Son calls you *"Father."*  
   
 *"I will tell you before it takes place, that when it does take place you may know that I am in my Father and you are in me and I am in you."* Read this in the 14th chapter of the Book of John. Well, if I am in my Father and you are in me, then are you not in my Father? Now he tells us in the 10th chapter of John that *"I and my Father are one."* There is only one Father, only one body, and only one Son. There’s not a bunch of little David’s running around, or a bunch of little Fathers, but only the Father. So if David calls me Father and there is only one Father, and he calls you Father, are we not the one Father? So I tell you this before it takes place, so that when it does take place you may believe that *"I am"* the Father. And because you dwell in me, when it takes place in you, you will say *"I am he!"* In time the whole vast world will awaken to this wonderful plan and then we will have extended our creative power beyond what it was when we conceived the plan and entered death’s door, this limit of contraction.  
   
-Now, I can’t tell you my thrill when, in this small audience, you so believe what I tell you that you take it into the depths of your [[Dreams]] as this lady did. Meeting her boyfriend’s mother in dream, she was asked: *"What do you think of God?"* and she replied: *"Christ is not external, he is within you."* When you carry this truth into dream, where attention is the servant of vision and not its master, and you answer and bring it back to your surface mind, your conviction is in the very depth of your being.  
+Now, I can’t tell you my thrill when, in this small audience, you so believe what I tell you that you take it into the depths of your [Dreams](/Dreams) as this lady did. Meeting her boyfriend’s mother in dream, she was asked: *"What do you think of God?"* and she replied: *"Christ is not external, he is within you."* When you carry this truth into dream, where attention is the servant of vision and not its master, and you answer and bring it back to your surface mind, your conviction is in the very depth of your being.  
   
 Now, a chap who has been coming only recently tells me that in his dream he is trying to find someone who is very important to him. Seeing a crowd of people discussing something he sees the group separate and a young man, standing alone points toward him and says, *"You are Father."* Now, that’s a foreshadowing. It’s not the event, but a prefiguring of it. The mere fact that he saw the foreshadowing indicates that it is not far away. So I can’t tell you my thrill as I look out at this audience, for you are all awakening.  
   
@@ -83,7 +69,7 @@ Now let us go into the silence.
 - Recognizing that all individuals are connected to God and carrying the essence of Christ within themselves is crucial.
 - Jesus' interactions with others in biblical stories demonstrate the unity and interconnectedness of all beings.
 
-### The Power of Imagination and [[Prayer]]
+### The Power of Imagination and [Prayer](/Prayer)
 - Using imagination to envision others in a positive light can bring about positive transformations in their lives.
 - Praying for others can also have unexpected benefits, as seen in the story of Job.
 
@@ -96,7 +82,7 @@ Now let us go into the silence.
 - Believing in the inherent worth and divinity of each individual is crucial.
 
 ### Journey towards Awakening
-- Personal experiences, [[Dreams]], and visions reveal the awakening of the inner self and the recognition of one's true nature.
+- Personal experiences, [Dreams](/Dreams), and visions reveal the awakening of the inner self and the recognition of one's true nature.
 - The outer world is not as important as the spiritual growth and understanding that take place within oneself.
 
 ### The Righteous and the Unrighteous
@@ -112,7 +98,7 @@ Now let us go into the silence.
 - Recognizing that God is in everything and everyone allows individuals to transform their world through love and understanding.
 - Changing one's perception of others and seeing their divine nature can lead to positive changes in their lives.
 
-### The Power of [[Prayer]] and Imagination
+### The Power of [Prayer](/Prayer) and Imagination
 - Praying for others and using imagination to envision their success can bring about unexpected positive outcomes.
 - Believing in the interconnectedness of all beings and treating them as Christ deepens one's spiritual connection and awareness.
 

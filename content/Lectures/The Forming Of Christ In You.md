@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Forming Of Christ In You
-keywords: [Assumption, Prayer]
-bible_ref:
-tags: lecture
-topics: [The Story of the Twins, The Inner Man and Israel, The Practicality of the Story, The Union of Jacob and Esau, The Union of God and Man, Marriage to God and Redemption, The Journey to God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 That which is profoundly spiritual is in reality most directly practical. Tonight I will tell you a story from scripture which is profoundly spiritual. It is misunderstood in the world, but I know its inner meaning and will show you how altogether practical it is.
 
 In all the revelations which await you, there is none so fundamental as the forming of Christ in you. How is it formed? By whom and where is the sphere of the forming? In order to answer these questions we will turn to scripture.
@@ -50,7 +36,7 @@ He will give you a home if that is your desire. Today I don't want the responsib
 
 You may think you are secure because you own property or have money in the bank; but your only security is in your Maker, who is your husband. He is the Lord of the universe and loves his emanation, your human imagination (who is clothed in outer flesh) called Esau. He hates Esau and loves his Jacob, his Israel, who will one day rule as God. 
 
-So carefully define what you want, then trust your lover - who is the Lord of the universe - by accepting his gift of it as a completed fact. Walk in the [[Assumption]] you have what you want, and let your husband give it to you. 
+So carefully define what you want, then trust your lover - who is the Lord of the universe - by accepting his gift of it as a completed fact. Walk in the [Assumption](/Assumption) you have what you want, and let your husband give it to you. 
 
 Now, you will discover that Christ is not only formed in you, but by you, for - being united with the Lord - you are one with him. If the Lord forms his son in his bride by cleaving to you until you become one being, and he is forming Christ, are you not forming Christ, too? He is formed in you and by you in that one body, the human imagination. In all the revelations that await you, none is so fundamental as the revelation of Christ in you. His beauty is indescribable, and you will know that he is your eternal son who now honors his Father.
 
@@ -76,7 +62,7 @@ Now, God does not become this body of flesh. It is Esau - the hairy outer form -
 
 Start now to use your talent, which is your imagination. Use it consciously every day, for any time you use your imagination you are pleasing God; and when you do not use it God is displeased. You don't have to sit down and burst a blood vessel pounding out the details of your desire. You can imagine as you walk down the street. 
 
-A simple [[Assumption]] is easy and can be lots of fun. A friend called today to thank me for aiding her in the selling of her home. It was an enormous house in Highland Park, which had been empty for sometime. She had hired a lady to go to the house and do some cleaning there, when a man came to the door and asked to buy it. Two weeks later the house was sold. What did I do? I imagined hearing her tell me the house was sold. That's all I did. There was nothing else I needed to do; for all things are possible to God, and he so loves me he abides by any request I make of him. 
+A simple [Assumption](/Assumption) is easy and can be lots of fun. A friend called today to thank me for aiding her in the selling of her home. It was an enormous house in Highland Park, which had been empty for sometime. She had hired a lady to go to the house and do some cleaning there, when a man came to the door and asked to buy it. Two weeks later the house was sold. What did I do? I imagined hearing her tell me the house was sold. That's all I did. There was nothing else I needed to do; for all things are possible to God, and he so loves me he abides by any request I make of him. 
 
 Try it. You will never disprove God's law; and the more you consciously use your imagination, the more you please your husband, for you are wedded to the God of the universe - He who is omnificent to achieve any purpose, be it the sale of a house or the health of a rabbit. Certainly it matters little to me if the rabbit lived or died, but the child wanted me to pray for it. I know there are many rabbits and she could have had another had this one died; but she wanted this one, so I didn't modify her request. Do not modify the request of another if it is within your ethical code, and certainly her request came within my ethical code. 
 

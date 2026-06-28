@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Mystery Of Inspiration
-keywords: [Assumption, Meditation, Dreams]
-bible_ref:
-tags: lecture
-topics: [Inspiration is a divine action, Prophets' visions, Apostles' mission, God within oneself, Paul's confirmation, Awakening to God within, Dream projection, Awakening to identity, Scripture as revelation, Forgetting one's true nature, Personal inspiration, Scripture fulfillment in oneself, Christ within as the central figure, Inspiration and traditions, Fulfillment of scripture, Awakening and scripture fulfillment, Knowing one's true power, Embarking on the adventure of life, Inspiration as a gift, Embarking on the adventure of life, Inspiration as a gift]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Inspiration is a divine action which qualifies the individual to receive and communicate sacred revelation. The prophets, apostles, and incurrent eyewitnesses are those who receive such inspiration. 
 
 The prophets' visions are foreshortened. They see as present what is really future. Prophesying of the grace that is to be yours, they searched and inquired what person or what time was indicated by the spirit of Christ in them, when they predicted the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving not themselves, but you! 
@@ -26,13 +12,13 @@ Paul tells us that Christ is in you, although your body is dead. This I know to 
 
 But how do I convince you that the Lord God Jehovah is actually in you? That Jehovah is dreaming he is you, and in the end will awaken as you? How do I convince you that you will witness the images the prophets used? They tell us that Christ is the Rock. That you have forgotten the God who gave you birth. 
 
-The prophets equate the Rock with the Lord God Jehovah. This I know to be true. One day I sat in the silence, when quartz appeared before my vision. As I watched, the rock fragmented into numberless pieces and instantly molded itself into the human form, seated in the lotus posture in profound [[Meditation]]. As I realized I was looking at myself, the form began to glow. It increased in intensity until it reached the limit of translucency. Then it exploded and my vision came to its end. Now I know I am the Rock that begot me. 
+The prophets equate the Rock with the Lord God Jehovah. This I know to be true. One day I sat in the silence, when quartz appeared before my vision. As I watched, the rock fragmented into numberless pieces and instantly molded itself into the human form, seated in the lotus posture in profound [Meditation](/Lectures/Radio Lectures/Meditation). As I realized I was looking at myself, the form began to glow. It increased in intensity until it reached the limit of translucency. Then it exploded and my vision came to its end. Now I know I am the Rock that begot me. 
 
 Out of that solid state of death comes life, for you put this limit of contraction and opacity called Man upon yourself. At the present time three and a half billion of us walk the earth, individualized, because the being which gives us life is asleep. 
 
-Believing the world is taking place independent of our perception, we do not realize that our [[Dreams]] are projecting themselves on this screen of space, and that we are in conflict with our [[Dreams]]. But one day God will awaken within your dead body; and when he does, all of the imagery of scripture will surround you, identifying you as the central figure of the Bible -- the Lord God Jesus Christ. 
+Believing the world is taking place independent of our perception, we do not realize that our [Dreams](/Dreams) are projecting themselves on this screen of space, and that we are in conflict with our [Dreams](/Dreams). But one day God will awaken within your dead body; and when he does, all of the imagery of scripture will surround you, identifying you as the central figure of the Bible -- the Lord God Jesus Christ. 
 
-Scripture is all about God, as there is no one else. God and his name are one! That name is I AM! Falling asleep, God breathed upon your body and it became animated, as He [[Dreams]] your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest [[Dreams]], for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
+Scripture is all about God, as there is no one else. God and his name are one! That name is I AM! Falling asleep, God breathed upon your body and it became animated, as He [Dreams](/Dreams) your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest [Dreams](/Dreams), for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
 
 Who would have thought that the imagery recorded in the 32nd chapter of Deuteronomy was true: *"Of the Rock that begot you, you are unmindful and have forgotten the God who gave you life."* In this verse God is equated with the Rock that fragmented itself and is defused in all. 
 
@@ -72,7 +58,7 @@ When you tell your experiences to all who will listen, few will believe you, for
 
 It is the Christ within man who is his hope of glory. That is the Christ who fulfills scripture. Having had scripture fulfill itself in me, I have interpreted to you in all the scriptures the things concerning - not a man called Neville, but God's power, in me, called Christ. 
 
-Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your [[Assumption]]. 
+Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your [Assumption](/Assumption). 
 
 Scripture is all about Christ, the Jehovah you are. The spirit and the flesh are one; therefore, when David appears, in vision, you are revealing your true identity to yourself. This I know, for I have found David. He called me Lord. I know I am the Rock that begot him, for I have played all of the fragmented parts and put them together to form David. 
 
@@ -99,7 +85,7 @@ You came into a world of death. The body you now wear will return to dust from w
 
 Then you will take off your garment of death and return to the glory that was yours before that the world was. We knew each other intimately before we descended, and we will know each other just as intimately when we take off all of these masks and ascend. 
 
-In this world, we wear separate, individual bodies; but in eternity we form the one body. We are many, yet one. *"Hear O Israel, the Lord our God, the Lord is one."* In that state there will be only one Lord, one God and Father of all, and all form that one. No matter what type of [[Dreams]] an individual has, in the end they will be but [[Dreams]]; for when he awakes and returns, we will love him as dearly as we did before the descent. 
+In this world, we wear separate, individual bodies; but in eternity we form the one body. We are many, yet one. *"Hear O Israel, the Lord our God, the Lord is one."* In that state there will be only one Lord, one God and Father of all, and all form that one. No matter what type of [Dreams](/Dreams) an individual has, in the end they will be but [Dreams](/Dreams); for when he awakes and returns, we will love him as dearly as we did before the descent. 
 
 Inspiration is a gift of God, which cannot be acquired. Because God is in you, scripture is inspired from within. At the present time, Christ - God's power and wisdom - is personified as you. Although the body you wear is dead, He who raised Christ from the dead will raise you also. Christ in you is the one who rises. His spirit is your breath. Breathing his inspiration, you hear and feel the wind. Then you who radiate the glory of that God breath will awaken as God Himself. 
 
@@ -137,7 +123,7 @@ Now let us go into the silence.
 - The author refers to personal experiences where they become aware of being the Rock and realizing their identity.
 
 ### Dream projection
-- The author states that individuals project their [[Dreams]] onto the outer world.
+- The author states that individuals project their [Dreams](/Dreams) onto the outer world.
 - They emphasize that everything is contained within one's imagination.
 
 ### Awakening to identity
@@ -146,7 +132,7 @@ Now let us go into the silence.
 
 ### Scripture as revelation
 - Scripture reveals that God is the only existence.
-- God breathes life into individuals and [[Dreams]] their world into being.
+- God breathes life into individuals and [Dreams](/Dreams) their world into being.
 - One day God will awaken, and confusion will end.
 - Individuals will return to their true being and experience limitless expansion and translucency.
 

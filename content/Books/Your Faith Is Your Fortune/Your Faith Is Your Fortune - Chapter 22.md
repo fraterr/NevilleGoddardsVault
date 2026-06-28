@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Fishing
-keywords: []
-bible_ref:
-  - John 21:3
-  - John 21:6
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"They went forth, and entered into a ship, and that night they caught nothing."* (John 21:3)
 
 *"And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes."* (John 21:6)

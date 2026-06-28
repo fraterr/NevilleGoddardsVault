@@ -1,9 +1,7 @@
 import React from 'react';
 import ReactMarkdown from 'react-markdown';
 import remarkGfm from 'remark-gfm';
-import remarkWikiLink from 'remark-wiki-link';
 import Link from 'next/link';
-import { resolveWikilink } from '@/lib/markdown';
 import styles from './MarkdownRenderer.module.css';
 
 interface MarkdownRendererProps {
@@ -14,17 +12,7 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
   return (
     <div className={styles.markdownBody}>
       <ReactMarkdown
-        remarkPlugins={[
-          remarkGfm,
-          [
-            remarkWikiLink,
-            {
-              pageResolver: (name: string) => [name],
-              hrefTemplate: (permalink: string) => resolveWikilink(permalink),
-              aliasDivider: '|',
-            }
-          ]
-        ]}
+        remarkPlugins={[remarkGfm]}
         components={{
           // Overwrite link component to use Next.js Link for internal links
           a: ({ node, href, children, ...props }) => {

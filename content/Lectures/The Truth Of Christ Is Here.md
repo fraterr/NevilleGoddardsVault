@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Truth Of Christ Is Here
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Truth of Christ, The Purpose of Transformation, The Dream of Life, The Light and Truth Within, The Son of Man, Purification and States of Consciousness, Revealed Truth and Faith]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 There is something in this changing, changing world that never changes, and Scripture refers to that which never changes as Truth, So, Paul said, 'The Truth of Christ is here.'
 
 Now he defines Christ as 'the power of God and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
@@ -32,7 +18,7 @@ As the Psalmist said, 'Rouse thyself. Why sleepest Thou, O Lord? Awake! Do not c
 
 I tell you, you are God dreaming this Dream of Life. You may not know you are; I am telling you that you are. You can put it to the test, and no power in the world can stop it because there is no other power. 'Christ is the power of God and the wisdom of God.' That Power is buried in you! When you say, 'I am,' that's God!
 
-Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your [[Assumption]]? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
+Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your [Assumption](/Assumption)? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
 
 Let me share with you some of my own discoveries. We go back, now, to the Psalmist, and the Psalmist asks the question concerning this life: he said, 'Send Thy light and Thy truth to me. Let them bring me to Thy holy hill and to Thy dwelling.' (Psalm 43:3)
 
@@ -108,7 +94,7 @@ So here, if I am ever to ascend, well then, I must be the One who descended, and
 
 Well, where is heaven? 'The kingdom of heaven is within you,' we are told in the 17th [chapter] of Luke. So, if I would go into heaven, where would I go? I'd return within myself, into this immortal skull, and it reverberates when I re-enter that state. So, I return 'like the fiery serpent.'
 
-Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he [[Dreams]] the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! Catch the mood. What would the feeling be like if it were true?
+Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he [Dreams](/Dreams) the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! Catch the mood. What would the feeling be like if it were true?
 
 I told you a few, I think, maybe, months ago of a friend of mine who called me. She never had money. I gave her away because she asked me to give her away. She said, 'I have no father to give me.' Whether the father was here, I do not know. And so I said, 'Willingly, I'll give you away.' So, I arranged it ' almost like a funeral. When they said, 'Who giveth this woman to this man?' I stepped forward and said, 'I do.' So, I gave her away. At the reception, this lady came by along with these people, and this one said, 'Who are you?' I said, 'I am the bride's 'father'; I just gave her away.' She said, 'I know you gave her away all right, but who are you?' I said, 'I am her 'father.'' She said, 'Yes, but I happen to be her sister!'
 

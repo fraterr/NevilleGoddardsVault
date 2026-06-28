@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Faith, Hope And Love
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Scripture and its Truth, The Power of Experience, Experience of Faith, Hope, and Love, Experiencing God's Power, Recognizing God's Revelation, Personal Revelation of God, Gathering as the Father, The Power of Imagination, Doubt in Exercise of Power, Levels of God's Revelation, The Open Ear and the Prepared Body, Justified Faith and the Power of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Scripture makes the most profound statements in the world. You can believe them or reject them, but you will never know their truth until scripture is experienced. When it is once experienced, you can no more deny it than you can the humblest evidence of your senses.  
   
 I make the claim God is love. Scripture tells us God is faith, saying: *"Through faith the world was made by the Word of God."* And we are told to *"Put your hope fully upon the grace that is coming to you at the resurrection of Jesus Christ in you."* Now, I can tell you that his name is I AM and that God's first revelation to man is that of the Father. I can tell you that all this is true of yourself; that you are God the Father; that you are infinite love, infinite faith, and infinite hope, but you will not know this truth until it becomes your own experience.  
@@ -36,7 +22,7 @@ Now, to have a great experience you must have an experiencing nature, for only b
   
 There are those who speak of God as an over-soul, or impersonal force. They have become so abstract in their concept of this creative and redeeming power. But God is not an over-soul or intangible force, but Man, and he speaks with a voice as I speak to you now. You hear me in the tongue in which you were born. When God speaks to you, you will hear him in your natural tongue. And when you stand in the presence of Infinite love it is Man, and yet you will know he is all love.  
   
-Now let me share another experience. We are told in the Book of Genesis that when a dream is doubled, God has fixed it and it will shortly come to pass. This lady had three [[Dreams]] of elephants. In her first dream she said: *"It was the mating season, and I saw many elephants, all in the creative act."* This dream was followed by a dream in which she found herself standing by a river, surrounded by mountains. On the river's bank stood three stone elephants, and as she looked at them they became animated, entered the river, and swam downstream. Watching them she said to herself: *"This is the second time I have seen stone elephants. The last time was when they came out of the mountains."* Then she added: *"When I awoke I realized what I had said was true."*  
+Now let me share another experience. We are told in the Book of Genesis that when a dream is doubled, God has fixed it and it will shortly come to pass. This lady had three [Dreams](/Dreams) of elephants. In her first dream she said: *"It was the mating season, and I saw many elephants, all in the creative act."* This dream was followed by a dream in which she found herself standing by a river, surrounded by mountains. On the river's bank stood three stone elephants, and as she looked at them they became animated, entered the river, and swam downstream. Watching them she said to herself: *"This is the second time I have seen stone elephants. The last time was when they came out of the mountains."* Then she added: *"When I awoke I realized what I had said was true."*  
   
 There is a language of symbolism that is universal. Regardless of whether you are in Africa, in China or here, in the depth of the soul the elephant is the symbol of God's creative power and wisdom, which is defined in scripture as Jesus Christ. In her dream she remembered another dream, so this dream is bordering on self-revelation, which is God revealing himself in her.  
   
@@ -101,7 +87,7 @@ Now let us go in to the silence.
 - All individuals will be gathered back into the one Father, knowing they are the Father.
 
 ### The Power of Imagination
-- The lady's three [[Dreams]] of elephants symbolize the creative power of God within her.
+- The lady's three [Dreams](/Dreams) of elephants symbolize the creative power of God within her.
 - The power to create lies within the human imagination, not in external circumstances.
 - The lady has proof of her creative power to transform what is dead into something alive.
 

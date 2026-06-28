@@ -1,21 +1,3 @@
----
-book: The Power of Awareness
-chapter: Consciousness
-keywords:
-  - Dreams
-bible_ref: null
-tags: book
-topics:
-  - Consciousness is Reality
-  - Consciousness Begets Consciousness
-  - World as Consciousness
-  - Consciousness is the Sole Operant Power
-  - Consciousness Arrangement Manifests Conditions
-  - Importance for Daily Life
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 It is only by a change of consciousness, by actually changing your concept of yourself, that you can *“build more stately mansions”* — the manifestations of higher and higher concepts. (By manifesting is meant experiencing the results of these concepts in your world.) It is of vital importance to understand clearly just what consciousness is.
 
 The reason lies in the fact that consciousness is the one and only reality, it is the first and only cause -sub stance of the phenomena of life. Nothing has existence for man save through the consciousness he has of it. Therefore, it is to consciousness you must turn, for it is the only foundation on which the phenomena of life can be explained.
@@ -24,7 +6,7 @@ If we accept the idea of a first cause, it would follow that the evolution of th
 
 Consequently, what appears to you as circumstances, conditions, and even material objects are really only the products of your own consciousness. Nature, then, as a thing or a complex of things external to your mind, must be rejected. You and your environment cannot be regarded as existing separately. You and your world are one.
 
-Therefore, you must turn from the objective appearance of things to the subjective center of things, your consciousness, if you truly desire to know the cause of the phenomena of life, and how to use this knowledge to realize your fondest [[Dreams]]. In the midst of the apparent contradictions, antagonisms, and contrasts of your life, there is only one principle at work, only your consciousness operating. Difference does not consist in variety of substance, but in variety of arrangement of the same causesubstance, your consciousness.
+Therefore, you must turn from the objective appearance of things to the subjective center of things, your consciousness, if you truly desire to know the cause of the phenomena of life, and how to use this knowledge to realize your fondest [Dreams](/Dreams). In the midst of the apparent contradictions, antagonisms, and contrasts of your life, there is only one principle at work, only your consciousness operating. Difference does not consist in variety of substance, but in variety of arrangement of the same causesubstance, your consciousness.
 
 The world moves with motiveless necessity. By this is meant that it has no motive of its own, but is under the necessity of manifesting your concept, the arrangement of your mind, and your mind is always arranged in the image of all you believe and consent to as true. The rich man, poor man, beggar man or thief are not different minds, but different arrangements of the same mind, in the same sense that a piece of steel when magnetized differs not in substance from its demagnetized state but in the arrangement and order of its molecules. A single electron revolving in a specified orbit constitutes the unit of magnetism. When a piece of steel or anything else is demagnetized, the revolving electrons have not stopped. Therefore, the magnetism has not gone out of existence. There is only a rearrangement of the particles, so that they produce no outside or perceptible effect. When particles are arranged at random, mixed up in all directions, the substance is said to be demagnetizedbut when particles are marshalled in ranks so that a number of them face in one direction, the substance is a magnet. Magnetism is not generated; it is displayed.
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Nature Of God
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Revealing the Nature of God through Personal Experiences, Understanding Paul and the Message of Scripture, The Significance of David and the Revelation of Truth, The Power of Imagination and Faith, The Promise of Transformation into God, The Christ within Individuals and the Return of God's Memory]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 To think of the Bible's events as historical, and the characters recorded there as persons such as you and I, is to see truth tempered to the weakness of the human form, unable to stand the strong light of revelation. But I tell you: it is in us, as persons, that the nature of God is revealed. 
 
 Paul tells us his conversion came through a revelation of Jesus Christ. It did not come through a man, thereby causing him to change religions. No. Paul never forsook Judaism, but interpreted the meaning of the Old Testament through revelation. But was Paul a person, an individual being such as you are, as I am; or is he, too, one of these eternal characters? That is the question I am asking tonight. 
@@ -87,15 +73,15 @@ One day you will enter the state known as Paul; but right now you are Saul, seek
 
 Tonight, set your hope fully upon this grace that is coming to you; for Christ in you is your hope of glory! Do you not realize that Jesus Christ is in you? Test yourself and see, for all things are possible to him. Think of something you would like that reason says you cannot have. Now, assume it's yours. 
 
-Your [[Assumption]], though false in the sense that it is denied by your reasonable mind, if persisted in will harden into fact. You do not need to know the means that will be employed to bring your [[Assumption]] to pass; all you are required to do is persist in your [[Assumption]] and allow your own wonderful human imagination to give it to you. 
+Your [Assumption](/Assumption), though false in the sense that it is denied by your reasonable mind, if persisted in will harden into fact. You do not need to know the means that will be employed to bring your [Assumption](/Assumption) to pass; all you are required to do is persist in your [Assumption](/Assumption) and allow your own wonderful human imagination to give it to you. 
 
-All things are possible to your imagination. It's up to you to provide the necessary link between your [[Assumption]] and its fulfillment. That link is faith. Having assumed your desire is fulfilled, your faith in that [[Assumption]] will cause it to harden into fact. That is the law. 
+All things are possible to your imagination. It's up to you to provide the necessary link between your [Assumption](/Assumption) and its fulfillment. That link is faith. Having assumed your desire is fulfilled, your faith in that [Assumption](/Assumption) will cause it to harden into fact. That is the law. 
 
-Test this law, and if you prove it in performance, it will not matter to you if it seems irrational to others. Tonight, leave this auditorium in the [[Assumption]] that you are what you would like to be; and if tomorrow your [[Assumption]] can be seen as fact by the world round about you, then you have found Christ, he who is within you as your hope of glory. 
+Test this law, and if you prove it in performance, it will not matter to you if it seems irrational to others. Tonight, leave this auditorium in the [Assumption](/Assumption) that you are what you would like to be; and if tomorrow your [Assumption](/Assumption) can be seen as fact by the world round about you, then you have found Christ, he who is within you as your hope of glory. 
 
 Man is forever coming up with fantastic ideas like going to the moon. At the time, the idea seemed impossible, yet in time man does go to the moon. So you see, nothing is impossible to God - but nothing! 
 
-Simply name that which seems so impossible to you, then assume that you have it. Walk in the [[Assumption]] it is now an objective fact and see how God works. I tell you, in a way that you do not know, and you could not possibly devise, you will be led across a bridge of incident to the fulfillment of that state. All you have to do is ignore the evidence of your outer senses and go about your own wonderful business assuming the feeling of the wish fulfilled. Your [[Assumption]], instead of receding into the past, will advance into the future and you will walk right into its fulfillment. 
+Simply name that which seems so impossible to you, then assume that you have it. Walk in the [Assumption](/Assumption) it is now an objective fact and see how God works. I tell you, in a way that you do not know, and you could not possibly devise, you will be led across a bridge of incident to the fulfillment of that state. All you have to do is ignore the evidence of your outer senses and go about your own wonderful business assuming the feeling of the wish fulfilled. Your [Assumption](/Assumption), instead of receding into the past, will advance into the future and you will walk right into its fulfillment. 
 
 Accept what I am telling you tonight, and you will be on your way towards the state called Paul. He tried his best to persuade his own friends to believe what happened to him in the synagogue. Christianity is not a new religion, but the fulfillment of Judaism. It's as old as the faith of Abraham, older even than the synagogue. The promise was fulfilled in the state of Judaism, interpreted to Jews, who then organized it into a separate religion; but there could be no Christianity without Judaism. Many a Christian would like to divorce the two books and put the Old Testament aside; but there could be no New Testament without the Old, for the New is only the fulfillment of the promise made to Abraham. 
 
@@ -138,7 +124,7 @@ Now let us go into the silence.
 ### The Power of Imagination and Faith
 
 - All things are possible through imagination, which can create reality and materialize desires.
-- It is essential to have faith in one's [[Assumption]] and persist in it until it hardens into facts.
+- It is essential to have faith in one's [Assumption](/Assumption) and persist in it until it hardens into facts.
 - Testing and proving the power of imagination for oneself is more important than what others may think.
 - As individuals move from the state of Saul to Paul, they will experience the fulfillment of scripture.
 

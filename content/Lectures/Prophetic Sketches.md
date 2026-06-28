@@ -1,19 +1,8 @@
----
-book: 
-chapter: Prophetic Sketches
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: ["The Bible: Prophetic Sketches", Lazarus' Resurrection, Awakening from Death, Christ Within, David as the Son of God, Revealing the Son, Prophetic Sketches as Instruction, Seedtime and Harvest]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 The stories recorded in the Bible are prophetic sketches of events predestined to take place in the individual you! 
 
 We are told in the seventh chapter of John: *"We know where this man comes from, yet we are told that when the Christ appears no one will know where he comes from."* Speaking of the Father and the higher realm to which he now belongs, Jesus says: *"A time will come when I will no longer speak to you in parables, but tell you plainly of the Father."* Trying to convince man of man's own Fatherhood from which he came and to which he will return, Jesus said: *"I came out from the Father and I have come into the world. Again I am leaving the world and returning to the Father."* Now, where does he speak plainly? In the 14th chapter of John, saying: *"He who sees me has seen the Father,"* and in the 10th [chapter] of John, when he states: *"I and the Father are one."*
 
-Now let us take the first great sketch as recorded in the Book of Genesis (the seed-plot of the Bible). The Book begins: *"In the beginning, God"* and ends, *"'in a coffin in Egypt."* In the 37th chapter it is stated: *"Behold this dreamer cometh."* The one placed in the coffin is the dreamer, called Joseph. It is he who [[Dreams]] that the sun and the moon and eleven stars come down and bow to him. And while gathering the sheaves, he saw his sheaf stand erect while all the others bowed to him. And when the father heard of these [[Dreams]], he said: *"I and your mother and brothers will bow to you and serve you?"* Well, time proved that it was true, for Joseph became the sovereign ruler over all. This outline, this prophetic sketch, is all about God! *"In the beginning God"* 9and the first and the last are one). :*"I am the beginning and the end, the alpha and the omega, the first and the last."* In the beginning God laid himself down in a coffin in Egypt. He [[Dreams]] the dream of life in the coffin of you, for there is nothing in this world but God. Your *"I am"* is the God of scripture who is buried in the coffin called by your mortal name.
+Now let us take the first great sketch as recorded in the Book of Genesis (the seed-plot of the Bible). The Book begins: *"In the beginning, God"* and ends, *"'in a coffin in Egypt."* In the 37th chapter it is stated: *"Behold this dreamer cometh."* The one placed in the coffin is the dreamer, called Joseph. It is he who [Dreams](/Dreams) that the sun and the moon and eleven stars come down and bow to him. And while gathering the sheaves, he saw his sheaf stand erect while all the others bowed to him. And when the father heard of these [Dreams](/Dreams), he said: *"I and your mother and brothers will bow to you and serve you?"* Well, time proved that it was true, for Joseph became the sovereign ruler over all. This outline, this prophetic sketch, is all about God! *"In the beginning God"* 9and the first and the last are one). :*"I am the beginning and the end, the alpha and the omega, the first and the last."* In the beginning God laid himself down in a coffin in Egypt. He [Dreams](/Dreams) the dream of life in the coffin of you, for there is nothing in this world but God. Your *"I am"* is the God of scripture who is buried in the coffin called by your mortal name.
 
 Now, Genesis ends on a mute note'a coffin. It's the overture to the exodus, where God is led out of the coffin in which he was placed, bringing with him the man in whom he is buried. This exodus is accomplished by signs and wonders. The foundation of the entire drama is the resurrection, for you cannot enter the New Age until you are a Son of the resurrection. *"This age"* is the age of death, while *"that age"* is the age of the resurrected.
 
@@ -79,7 +68,7 @@ Now let us go into the silence.
 ### The Bible: Prophetic Sketches
 - The stories in the Bible are prophetic sketches of events that will happen in the individual
 - Jesus speaks of the Father and the higher realm, stating that he will eventually speak plainly about the Father
-- The first great sketch is found in the book of Genesis, with Joseph's [[Dreams]] and rise to power
+- The first great sketch is found in the book of Genesis, with Joseph's [Dreams](/Dreams) and rise to power
 - Genesis ends with Joseph in a coffin in Egypt, foreshadowing the exodus
 - The resurrection is the foundation of the entire drama, leading to the New Age
 

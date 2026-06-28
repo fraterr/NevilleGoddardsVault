@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Occupant Or Inmate
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [Occupant or Inmate, Dwelling Place, Occupying a State, Falling Backwards and Moving States, Certainty and Truth, Christ and Imagination, Revision and Persistence, Vision and Human States, Moving States and Belief, Freedom to Choose, Freedom to Choose]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight’s subject is *"Occupant or Inmate."*
 
 An occupant established title to property by dwelling in it and is free to come and go as he chooses. An inmate is confined. Whether it be a prison or asylum, the inmate is restrained by law, yet he is just as free as the occupant, but he does not know it.
@@ -24,7 +10,7 @@ Every state, regardless of what it is, is waiting for occupancy. The great trage
 
 Now listen to these words from the 10th of Matthew. *"Do not think that I came to bring peace upon the earth. I came not to bring peace, but a sword to set a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law, for a man’s enemies are those of his own household."* These words are everlastingly true. You have no enemy other than that of your own household. Your father, mother, daughter, daughter-in-law or mother-in-law are not your household, they are your intimates. Your household is your imagination, where all your enemies live. Personified as your fellow workers, neighbors, those you meet during the day, the thieves who steal your purse, their life is in you. Your thoughts are your enemies, for the world is your thoughts pushed out.
 
-May I tell you how wonderful it is to receive your letters, that I may share your [[Dreams]] and experiences with others? I will share one letter with you now. This lady writes, “Due to a long illness I began to feel insecure, so I went to bed assuming that I am now very secure. That night I dreamed I was with a little child and an elderly woman. Seeing something he desired, the child began to complain, saying it was too expensive and it would cost $250,000. I told him not to be concerned because he already had billions of dollars. As we started to leave the lady resisted saying it was too dark outside, but I told her it would be alright because I had a light. As I spoke the wall opened and we moved into another room filled with a wonderful blue light.
+May I tell you how wonderful it is to receive your letters, that I may share your [Dreams](/Dreams) and experiences with others? I will share one letter with you now. This lady writes, “Due to a long illness I began to feel insecure, so I went to bed assuming that I am now very secure. That night I dreamed I was with a little child and an elderly woman. Seeing something he desired, the child began to complain, saying it was too expensive and it would cost $250,000. I told him not to be concerned because he already had billions of dollars. As we started to leave the lady resisted saying it was too dark outside, but I told her it would be alright because I had a light. As I spoke the wall opened and we moved into another room filled with a wonderful blue light.
 
 *"Then a few days later I dreamed I was in a field of harvested wheat where a few stalks remained. Then I saw three buffalo coming toward me and, although I was not afraid of them I hid, and as I was hiding, I awoke."*
 
@@ -32,11 +18,11 @@ In the 14th and 15th chapter of Deuteronomy we are told, *"When you reap your ha
 
 Three, in scripture, represents resurrection. *"On the third day the earth rose up out of the deep."* The buffalo, like the ox, eats what it sees and what it needs you are willing to leave behind for them to feed upon, as the symbol of the stranger, the fatherless and the widow. My earthly father took that story in Deuteronomy to such an extent that he would never finish his plate at home. When he had all he desired he would fill his plate once more, take one small morsel and leave the rest for the servants. My mother had instructed the servants not to eat from the table dishes, but from anything that remained on the plates, so my father would make certain they had a full meal from his plate every time. He did the same thing in New York City, and I couldn’t convince him that the waiters would not touch it. He left food for the sojourner whether they ate it or not. That was my earthly father.
 
-And so it was with the lady in her dream. She left the grains for the sojourner and those who may need it, remembering when she was a slave in the land of Egypt. So I can say to her, you are having Biblical [[Dreams]], and when these [[Dreams]] appear you, God asleep, are near the unfolding of Christ. For Christ is what God means by Man, and Christ awake is what Man awake means by God.
+And so it was with the lady in her dream. She left the grains for the sojourner and those who may need it, remembering when she was a slave in the land of Egypt. So I can say to her, you are having Biblical [Dreams](/Dreams), and when these [Dreams](/Dreams) appear you, God asleep, are near the unfolding of Christ. For Christ is what God means by Man, and Christ awake is what Man awake means by God.
 
 When Christ (imagination) begins to stir in you, go all out and completely abandon yourself to a state. Determine to either sink or swim, dare to move from one state into another. Many years ago Blake showed me how to move, how to see infinite Man as one. Telling me to let myself go and fall backwards, I fell, just as I have done from a high diving board into a pool, but this time I fell through interstellar space, and when I came to rest I saw a heavenly being in the distance. At first it appeared as one Man whose heart was like a flaming ruby. As I approached I saw that this flaming heart contained all of humanity, all the nations, all the races. Every being in the world was contained in the heart of the one Man. That is how I learned how to move from one state into another. Just let yourself go and fall backwards into another state... from one of not being wanted to being wanted.
 
-Now, another lady writes saying, *"In my dream I came upon scene after scene, each changing as I approached it. I could see the scene and as I thought, the scene rearranged itself to outpicture my thoughts. Then I realized I was the cause of its change. Now I realize that even while I am dreaming, I am doing."* Filled with joy because she had remembered the principle of [[Revision]] while dreaming she sat at the breakfast table having coffee when she heard a voice within her say, *"Move into the state of love."* Then the room began to recede and she felt herself falling backwards. The sensation was so great she broke the feeling and the room returned to normalcy once again. She regretted her action immediately; but confessed, “Now I know how to move.
+Now, another lady writes saying, *"In my dream I came upon scene after scene, each changing as I approached it. I could see the scene and as I thought, the scene rearranged itself to outpicture my thoughts. Then I realized I was the cause of its change. Now I realize that even while I am dreaming, I am doing."* Filled with joy because she had remembered the principle of [Revision](/Revision) while dreaming she sat at the breakfast table having coffee when she heard a voice within her say, *"Move into the state of love."* Then the room began to recede and she felt herself falling backwards. The sensation was so great she broke the feeling and the room returned to normalcy once again. She regretted her action immediately; but confessed, “Now I know how to move.
 
 If you know how to move you are free. So are you occupying your present state or its inmate? If you are its occupant you can move and be other than what you are now. But you must be willing to fall asleep in the desired state and carry it into dream where it becomes natural. Then, dwelling in that new state of consciousness day after day, the world will pick up the atmosphere of your dream and fulfill it. Do not ask anyone to help you; just occupy your desired state, knowingly, not unknowingly as before. Blake saw it so clearly saying, *"I do not consider the just or the wicked to be in a supreme state, but to be every one of them in states of the sleep which the soul may fall into in its deadly dream of good and evil."* Now, Blake never used a word in a loose manner. When he spoke of falling into, he meant exactly that. Desiring to see the one Man containing all, he told me to fall backwards, and I did.
 
@@ -94,7 +80,7 @@ Now let us go into the Silence.
 ### Occupying a State
 - Discussing the potential of occupying a state and how it leads to its manifestation in the external world.
 - Drawing on Biblical passages about enemies being those in one's own household and leaving parts of one's harvest for the less fortunate.
-- Exploring the symbolism of three representing resurrection and relating it to [[Dreams]].
+- Exploring the symbolism of three representing resurrection and relating it to [Dreams](/Dreams).
 
 ### Falling Backwards and Moving States
 - Sharing the personal experience of falling backwards into a different state and encountering a vision of the interconnectedness of humanity.
@@ -110,8 +96,8 @@ Now let us go into the Silence.
 - Encouraging individuals to occupy a state and embody it, pointing out that nothing is impossible when one knows who Christ is.
 - Reminding listeners that they are gods in human form and can be anything they desire when they are not confined by a state.
 
-### [[Revision]] and Persistence
-- Discussing the importance of [[Revision]] and persistence when helping others occupy desired states.
+### [Revision](/Revision) and Persistence
+- Discussing the importance of [Revision](/Revision) and persistence when helping others occupy desired states.
 - Highlighting the need to continue aiding others until changes are witnessed and emphasizing the interconnectedness of all beings.
 
 ### Vision and Human States

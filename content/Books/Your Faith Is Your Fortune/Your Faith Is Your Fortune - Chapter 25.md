@@ -1,18 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Gethsemane
-keywords:
-  - Sabbath
-  - Prayer
-bible_ref:
-  - Matthew 26:36
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Then cometh Jesus with them, unto a place called Gethsemane, and saith unto the disciples, Sit ye here, while I go and pray yonder."* (Matt. 26:36)
 
 A most wonderful mystical romance is told in the story of Jesus in the Garden of Gethsemane, but man has failed to see the light of its symbology and has mistakenly interpreted this mystical union as an agonizing experience in which Jesus pleaded in vain with His Father to change His destiny.
@@ -33,11 +18,11 @@ Knowing this to be true, see to it that you choose well the mother of your child
 
 When man realizes that the conscious state in which he lives is the choice that he has made of a mate, he will be more careful of his moods and feelings. He will not permit himself to react to suggestions of fear, lack or any undesirable impression. Such suggestions of lack could never pass the watch of the disciplined mind of the mystic, for he knows that every conscious claim must in time be expressed as a condition of his world — of his environment. So he remains faithful to his beloved, his defined objective, by defining and claiming and feeling himself to be that which he desires to express. Let a man ask himself if his defined objective would be a thing of joy and beauty if it were realized. If his answer is in the affirmative, then he may know that his choice of a bride is a princess of Israel, a daughter of Judah, for every defined objective which expresses joy when realized is a daughter of Judah, the king of praise.
 
-Jesus took with Him into His hour of [[Prayer]] His disciples, or disciplined attributes of mind, and commanded them to watch while He prayed, so that no thought or belief that would deny the realization of His desire might enter His consciousness. Follow the example of Jesus, who, with His desires clearly defined, entered the Garden of Gethsemane (the state of joy) accompanied by His disciples (His disciplined mind) to lose Himself in a wild joy of realization. The fixing of His attention on His objective was His command to His disciplined mind to watch and remain faithful to that fixation. Contemplating the joy that would be His on realizing His desire, He began the spiritual act of generation, the act of pressing out the mystical seed — His defined desire. In this fixation He remained, claiming and feeling Himself to be that which He (before He entered Gethsemane) desired to be, until His whole being (consciousness) was bathed in an oily sweat (joy) resembling blood (life) , in short, until His whole consciousness was permeated with the living, sustained joy of being His defined objective.
+Jesus took with Him into His hour of [Prayer](/Prayer) His disciples, or disciplined attributes of mind, and commanded them to watch while He prayed, so that no thought or belief that would deny the realization of His desire might enter His consciousness. Follow the example of Jesus, who, with His desires clearly defined, entered the Garden of Gethsemane (the state of joy) accompanied by His disciples (His disciplined mind) to lose Himself in a wild joy of realization. The fixing of His attention on His objective was His command to His disciplined mind to watch and remain faithful to that fixation. Contemplating the joy that would be His on realizing His desire, He began the spiritual act of generation, the act of pressing out the mystical seed — His defined desire. In this fixation He remained, claiming and feeling Himself to be that which He (before He entered Gethsemane) desired to be, until His whole being (consciousness) was bathed in an oily sweat (joy) resembling blood (life) , in short, until His whole consciousness was permeated with the living, sustained joy of being His defined objective.
 
-As this fixation is accomplished so that the mystic knows by his feeling of joy that he has passed from his former conscious state into his present consciousness, the passover or crucifixion is attained. This crucifixion or fixation of the new conscious claim is followed by the [[Sabbath]], a time of rest. There is always an interval of time between the impression and its expression, between the conscious claim and its embodiment. This interval is called the [[Sabbath]], the period of rest or non-effort (the day of entombment).
+As this fixation is accomplished so that the mystic knows by his feeling of joy that he has passed from his former conscious state into his present consciousness, the passover or crucifixion is attained. This crucifixion or fixation of the new conscious claim is followed by the [Sabbath](/Sabbath), a time of rest. There is always an interval of time between the impression and its expression, between the conscious claim and its embodiment. This interval is called the [Sabbath](/Sabbath), the period of rest or non-effort (the day of entombment).
 
-To walk unmoved in the consciousness of being or possessing a certain state is to keep the [[Sabbath]]. The story of the crucifixion beautifully expresses this mystical stillness or rest. We are told that after Jesus cried out, *“It is finished!”* He was placed in a tomb. There He remained for the entire [[Sabbath]]. When the new state or consciousness is appropriated so you feel, by this appropriation, fixed and secure in the knowledge that it is finished, then you, too, will cry out, *“It is finished!”* and will enter the tomb or [[Sabbath]], an interval of time in which you will walk unmoved in the conviction that your new consciousness must be resurrected (made visible).
+To walk unmoved in the consciousness of being or possessing a certain state is to keep the [Sabbath](/Sabbath). The story of the crucifixion beautifully expresses this mystical stillness or rest. We are told that after Jesus cried out, *“It is finished!”* He was placed in a tomb. There He remained for the entire [Sabbath](/Sabbath). When the new state or consciousness is appropriated so you feel, by this appropriation, fixed and secure in the knowledge that it is finished, then you, too, will cry out, *“It is finished!”* and will enter the tomb or [Sabbath](/Sabbath), an interval of time in which you will walk unmoved in the conviction that your new consciousness must be resurrected (made visible).
 
 Easter, the day of resurrection, falls on the first Sunday after the full moon in Aries. The mystical reason for this is simple. A defined area will not precipitate itself in the form of rain until this area reaches the point of saturation; just so the state in which you dwell will not express itself until the whole is permeated with the consciousness that it is so — it is finished.
 
@@ -81,9 +66,9 @@ Remain faithful to the desired state, permitting no negative impressions.
 
 Fixing consciousness on the wish fulfilled is the crucifixion.
 
-### [[Sabbath]] is Resting in End
+### [Sabbath](/Sabbath) is Resting in End
 
-[[Sabbath]] rest follows until the state saturates consciousness.
+[Sabbath](/Sabbath) rest follows until the state saturates consciousness.
 
 ### Resurrection Comes in Fullness
 

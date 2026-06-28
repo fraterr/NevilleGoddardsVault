@@ -1,24 +1,10 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Who Am I
-keywords: [Sabbath]
-bible_ref:
-tags: lecture
-topics: [Who am I?, The Journey of Awakening, The Revelation of True Identity, The Eternal Drama, The Recognition of True Identity, The Unfolding Mystery]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"Every generated body in its inward form is a garden of delight and a building of magnificence. Travelers from Eternity pass outward to bodies of flesh and blood and forgetfulness, but travelers to Eternity pass inward to the Father and Remembrance."* (William Blake) Notice the movement here. Those who travel from eternity pass outward to these bodies of flesh and blood and forgetfulness, while those who travel to eternity pass inward to the body of the Father and Remembrance!
 
 Tonight I want to ask this question: *"Who am I?"* Am I Neville Goddard? No. Are you John Brown or Mary Smith? You may know your physical background and if I should call your name you would answer, but are you the name you go by? No. Your name is a part of your outward journey from eternity into a state of forgetfulness of who you really are. Were you to turn around by practicing repentance, by radically changing your attitude towards everything in the world, you would move inward to the Father and Remembrance.
 
 If you don't like someone, change your attitude towards him. Represent him to yourself as you would like him to be, and persist in seeing and liking the new image. Your reason and your senses may deny any change, but it will come because you are practicing repentance. Change your attitude towards life by turning your thoughts around and you will move towards eternity. You will pass inward to the Father and Remembrance. *"I came out from the Father and I have come into the world. Again I am leaving the world and going to the Father."*
 
-Follow me now in your imagination, for I am going to tell you a little story. It is the story of a man who was born in a very modest environment in a certain city. He never traveled beyond a few miles of his home. He had no social, financial, or intellectual background, but lived a simple life in a normal environment. Now imagine this man entering the synagogue (as was his custom on the [[Sabbath]]), picking up the Book of the prophet Isaiah and turning to the 61st chapter, rise and read these words: *"The Spirit of the Lord is upon me, because he has anointed me and sent me to preach good news to the poor and release to the captives."* Closing the book he hands it to the attendant and sits down as all eyes are on him. Turning to those present he says: *"The scripture that you have just heard has been realized today."*
+Follow me now in your imagination, for I am going to tell you a little story. It is the story of a man who was born in a very modest environment in a certain city. He never traveled beyond a few miles of his home. He had no social, financial, or intellectual background, but lived a simple life in a normal environment. Now imagine this man entering the synagogue (as was his custom on the [Sabbath](/Sabbath)), picking up the Book of the prophet Isaiah and turning to the 61st chapter, rise and read these words: *"The Spirit of the Lord is upon me, because he has anointed me and sent me to preach good news to the poor and release to the captives."* Closing the book he hands it to the attendant and sits down as all eyes are on him. Turning to those present he says: *"The scripture that you have just heard has been realized today."*
 
 Knowing scripture was being fulfilled in him he told those that would listen, but that's not what the people were looking for. They did not think scripture would be fulfilled in an individual, but by an individual on the outside. They are taught to believe that a conqueror will come from without and enslave those who enslave and free those who are bound, but that is not how Christ comes. He comes to set you - an individual - free, for though you be a billionaire, you are still enslaved by your billions. You could this night have millions of dollars, yet find yourself flat on your back, paying someone to care for your normal, natural functions as you are unable to do it yourself; therefore you are a slave to the body you wear and totally unaware of the being you really are. So when Jesus comes into the world he comes not from without, but from within. He unfolds in you, casting you as the central character in scripture. That is the story of Christianity.
 

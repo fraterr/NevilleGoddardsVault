@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Jeremiah's Discovery
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Word of God and Self-Discovery, The Power of Imagination, The Illusion of the Physical World, Misinterpretations and Traditional Beliefs, The Journey of Self-Expansion, Unity and Awakening]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The body of scripture is the Word of God, which every child born of woman must hear, assimilate, understand, and fully accept. This belief will cause the Word to erupt within him, and as he experiences God's Word, he discovers who he really is. 
 
 The Book of John begins: *"In the beginning was the Word, and the Word was with God and the Word was God. He was in the beginning with God: all things were made through him and without him was not anything made that was made. He was in the world, the world was made by him, yet the world knew him not. He came to his own home and his own people received him not."* 
@@ -128,7 +114,7 @@ I know exactly what I had for dinner this night. I cannot deny the food I ate, a
 
 But while we are here, we are given a law whereby, through its operation, we may know who God is. The law is simple. It is stated many ways, one of which is: *"As a man sows, so shall he reap."* As you imagine you are the man (the woman) you would like to be, you are sowing that imaginal thought in your mind. 
 
-To the degree that you are faithful to that [[Assumption]], you will reap its fruit in your world; but first you must know what you want. You may not desire the wealth of a Rockefeller or the fame of a Richard Burton. I certainly have no desire for that kind of money or fame; but if someone tells me they really want it, I will pray for him that he has it. 
+To the degree that you are faithful to that [Assumption](/Assumption), you will reap its fruit in your world; but first you must know what you want. You may not desire the wealth of a Rockefeller or the fame of a Richard Burton. I certainly have no desire for that kind of money or fame; but if someone tells me they really want it, I will pray for him that he has it. 
 
 Everything here is fading and will one day vanish; but the immortal you who does not function in this world, will live forever. Everything you have ever accomplished here will disappear, leaving not a trace behind; but the being of whom I speak is perfect, and functions in a realm of perfection. 
 

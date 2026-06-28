@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Test Yourselves
-keywords: [Revision, Meditation]
-bible_ref:
-tags: lecture
-topics: [Faith and Testing, Radical Change of Attitude, The Power of Imagination, Stories of Faith and Results, The Temple of God, God's Gift of Love, Revising and Repenting, God's Law and Wisdom, The Power of Action]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Faith is not complete until through experiment it becomes experience. God's promise cannot be tested. It cannot be earned, for it is given by grace. But your faith will be increased when you experiment, when you test God's law. It is easier to accept the Christian faith than to live by it, but you must live by it for your faith to grow'
 
 In his 2nd letter to the Corinthians, Paul is speaking to the whole world when he says: *"Examine yourselves to see if you are holding to the faith. Test yourselves' Do you not realize that Jesus Christ is in you? - unless of course you fail to meet the test. I hope you will discover that we have not failed."*
@@ -47,7 +33,7 @@ Love were as plain to see."
 
 Life is God's power on display, but if you will look closer love will be plain to see' Many years ago I was taken in Spirit into the divine assembly where the gods hold judgment. There I encountered El Shaddai, God personified as Infinite Might' He was a man no larger than you are, but with the power to destroy the universe if he so desired. It was Power, who - after the recording angel checked my name - took me into the presence of Love. They are the same being, for you cannot separate God's power from Himself; but what a different face was infinite love' Wearing the human form divine, the Ancient of Days, all love, embraced me and made me one with his body and I still feel that presence today. My friends know me as Neville, my daughter as her father, my wife as her husband - but I no longer feel this body of flesh and blood. I feel only the body of love. But power came first, that I knew; but looking closer love can be plainly seen. These two beings cannot be separated. Love is Spirit and Christ is the power of God and the wisdom of God - but God is love' He is the Father of all, and one day everyone will receive his gift of love'
 
-In the meantime exercise your power. Have faith in the promise by exercising his law and proving it in performance, for faith is not complete until through experiment it becomes your experience' This lady knows what she has experienced. She knows the law works. She would never be interested in hearing of any special diet to become more spiritual, or any [[Meditation]] to become aware of her so-called cosmic consciousness. But through exercise, through testing herself, God's law is becoming her experience, and one day the real gift, the gift of God Himself will be hers.
+In the meantime exercise your power. Have faith in the promise by exercising his law and proving it in performance, for faith is not complete until through experiment it becomes your experience' This lady knows what she has experienced. She knows the law works. She would never be interested in hearing of any special diet to become more spiritual, or any [Meditation](/Lectures/Radio Lectures/Meditation) to become aware of her so-called cosmic consciousness. But through exercise, through testing herself, God's law is becoming her experience, and one day the real gift, the gift of God Himself will be hers.
 No one can earn God's gift. It could happen to all who are here this night, or to one. It is my desire that everyone will have the experience before I depart, but I am not to know the time that God the Father has fixed in his own accord. I do know that we reconstruct the temple one by one. All the things you and I do here will vanish like castles in the sand. But the Bible, which is the Word of God, is forever. It will never pass away. It is engraved on the Rock, the Rock that is Christ, the gospel contained in all.
 
 Paul uses the word *"rock"* because of vision. I know, for back in the 30's while sitting in the silence not thinking of anything in particular, I closed my eyes in contemplation and saw a quartz, a solid rock (the symbol of death, the limit of contraction which God took upon himself.) As I watched, the rock fragmented itself. Then I saw all the tiny pieces gather together as if by some unseen hand and mold itself into a living statue sitting in a lotus position. Looking at this wonderful creature, I realized I was seeing myself. As I recognized Neville the whole thing began to glow, to become radiant, and when it reached the limit of intensity it exploded and I awoke sitting in my chair.
@@ -56,7 +42,7 @@ The symbolism is true. Engraved upon the Rock that is Christ is the eternal Word
 
 Tonight you can take this simple principle as recorded in the 13th chapter of 2 Corinthians and *"Examine yourselves to see whether you are holding to the faith."* When you are satisfied that you are, then test yourself. If the morning's mail brings bad news don't call the person and tell him he shouldn't have written the letter, but revise it. Change the letter completely. When you answer the telephone test yourself again and hear only what you want to hear. Do as my friend does, for her telephone technique never fails her.
 
-As Fawcett said: *"The secret of Imagining is the greatest of all problems to the solution of which the mystics aspire, for supreme Power, supreme Wisdom, supreme Delight, lie in the solution of this far-off mystery."* I invite you all to share in the solution of this mystery. My friend has contributed her discovery. She calls it her telephone technique using [[Revision]]. Now the Bible does not use the word [[Revision]]. It uses the word *"repent"* which means *"a radical change of attitude."* I use the modern word [[Revision]] because the word *"repent"* has grown barnacles. We think of a person repenting by getting down on his belly and moving forward like a worm towards someone to whom he repents. But when you revise (or repent) you don't confess to anyone. How can you confess any sin to anyone when you are told in the Book of Psalms: *"Against thee and only thee have I sinned, O Lord."* You cannot sin against another; you can only sin against yourself for your true self is God. I should go to someone just as foolish as I and say: *"Father, I want to repent?"* Never'
+As Fawcett said: *"The secret of Imagining is the greatest of all problems to the solution of which the mystics aspire, for supreme Power, supreme Wisdom, supreme Delight, lie in the solution of this far-off mystery."* I invite you all to share in the solution of this mystery. My friend has contributed her discovery. She calls it her telephone technique using [Revision](/Revision). Now the Bible does not use the word [Revision](/Revision). It uses the word *"repent"* which means *"a radical change of attitude."* I use the modern word [Revision](/Revision) because the word *"repent"* has grown barnacles. We think of a person repenting by getting down on his belly and moving forward like a worm towards someone to whom he repents. But when you revise (or repent) you don't confess to anyone. How can you confess any sin to anyone when you are told in the Book of Psalms: *"Against thee and only thee have I sinned, O Lord."* You cannot sin against another; you can only sin against yourself for your true self is God. I should go to someone just as foolish as I and say: *"Father, I want to repent?"* Never'
 
 The priesthoods of the world give us man-made precepts and call them the doctrines of God. They are blind leaders of the blind. When the Pharisees and scribes came to Jesus, saying: *"Your disciples are violating the precepts, the traditions of the elders by not washing their hand when they eat,"* Jesus replied: *"Why do you transgress the commandment of God for the precepts of men? It is not what goes into the mouth that defiles a man (for that goes through his stomach and passes on), but what comes out of the mouth of man that defiles him."* That which comes out of the heart defiles, not that which enters the belly. Call your man-made precepts as a something coming from God and you transgress his commandments. This is true everywhere. Man is forever condemning another for what he believes the other ought to do to obtain salvation. But salvation is yours. It is coming to you whether you live wisely or foolishly. No matter what you have done you are going to receive God's gift and not one will be lost.
 
@@ -86,10 +72,10 @@ Now let us go into the silence.
 ### The Power of Imagination
 - Use the power of imagination to revise conversations and change the thoughts and words you hear.
 - Imaginal acts can produce results, even if unseen by the human senses.
-- Utilize the technique of [[Revision]] to change negative thoughts into positive ones.
+- Utilize the technique of [Revision](/Revision) to change negative thoughts into positive ones.
 
 ### Stories of Faith and Results
-- A friend used the telephone technique of [[Revision]] to imagine her friend passing an exam, leading to the friend actually passing the test successfully.
+- A friend used the telephone technique of [Revision](/Revision) to imagine her friend passing an exam, leading to the friend actually passing the test successfully.
 - Another friend desired a career change and imagined herself getting a job with a salary increase, which eventually came true.
 - The maid of a friend wanted to lose weight and imagined herself reaching her desired weight, resulting in her losing weight.
 
@@ -104,7 +90,7 @@ Now let us go into the silence.
 - Life is God's power on display, and a closer look reveals love.
 
 ### Revising and Repenting
-- The technique of [[Revision]] is a modern term for the biblical concept of repentance.
+- The technique of [Revision](/Revision) is a modern term for the biblical concept of repentance.
 - Repentance means a radical change of attitude, not confessing to someone else.
 - Man-made precepts should not be mistaken for the commandments of God.
 

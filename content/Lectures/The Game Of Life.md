@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Game Of Life
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Importance of Knowing the Rules of Life, The Power of Belief and Persistence, Unconcerned Action and Passionate Desire, The Influence of Mood on Fortunes, Predicting the Future through Mood, The Psychological Act of Creation, Assuming the Feeling of the Desired End, Examples of Successful Application of the Law, The Role of Imagination and Contacts, The Game of Life, The Power of Self-Awareness and Responsibility, Letters and Visions as Examples, Playing the Game of Life]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The game of life, like every game, is played within the framework of certain rules, and any violation of those rules carries a penalty. You and I are playing this game from morning to night, and should therefore learn its rules in order to play it well.
 
 Ecclesiastes gives us this rule: *"Even in your thought do not curse the king, or in your bed chamber curse the rich, for a bird will carry your voice or some winged creature tell the matter."* And Mark gives us another, as: *"Whatever you desire, believe that you have received it and you will."* If you must believe you have received your desire in order to attain it, then you must start your game by believing it is finished. You must feel yourself into and partaking of your goal. And you must persist in that feeling in order to achieve it.
@@ -32,7 +18,7 @@ But if you apply this law you can predict your future. Feel a new mood rise with
 In the Book of Proverbs, it is said: *"The spirit of man is the lamp of the Lord."* Now, the lamp of the Lord is the light of the world. We contain that light; and nature - the genie - is our slave, fashioning the world as our mood dictates. By nature I mean all of humanity - the animal, plant, and mineral world. In fact, everything that appears on the outside is a slave of this lamp. Fashioned from within, this slave will fashion your world to reflect your thoughts; and no power can stop their fulfillment.
 Become aware of what you are thinking, and you will recognize a law between your mood and your surrounding circumstances. Then you will predict with certainty, because you know certain events - being in harmony with your mood - must appear. Everything - whether a living being or an inanimate object such as a book - must appear to bear witness to your mood.
 
-Now, in order to play the game of life, you must know what you want to replace what you have. When you know what it is, you must assume the feeling that you have it. Although your reason and senses will deny its existence, persistence will cause your [[Assumption]] to harden into fact and objectify itself upon your screen of space. Play the game this way. You may think it doesn't work, but that's because you have not tried it. You may believe the idea is stupid, but I tell you: the mood decides your fortune. Believe me, for I have proved this principle over and over again in my life.
+Now, in order to play the game of life, you must know what you want to replace what you have. When you know what it is, you must assume the feeling that you have it. Although your reason and senses will deny its existence, persistence will cause your [Assumption](/Assumption) to harden into fact and objectify itself upon your screen of space. Play the game this way. You may think it doesn't work, but that's because you have not tried it. You may believe the idea is stupid, but I tell you: the mood decides your fortune. Believe me, for I have proved this principle over and over again in my life.
 
 It was Winston Churchill who galvanized the Western world by putting his words into practice. In spite of the horrors and bombing in London, Mr. Churchill sustained the mood of victory, and even in the darkest days he would not waver. Knowing the mood would externalize itself around the world, he sustained the mood - while his opponents, not knowing the law, put their trust in armies and machinery of war.
 
@@ -159,7 +145,7 @@ Now let us go into the silence.
 - Responsibility lies within the individual for their own life and experiences.
 
 ### Letters and Visions as Examples
-- Letters and [[Dreams]] shared by individuals highlight successful manifestations and visions.
+- Letters and [Dreams](/Dreams) shared by individuals highlight successful manifestations and visions.
 - Each vision is a foreshadowing of a great event that will happen within everyone, symbolizing the rise of the Son of God within.
 
 ### Playing the Game of Life

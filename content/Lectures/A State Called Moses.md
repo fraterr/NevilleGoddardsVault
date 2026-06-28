@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: A State Called Moses
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Scripture is Salvation History, Moses - The Buried State, I AM is God's Name, The Unfolding Pattern, Enter the Promise Yourself, Follow the Pattern, God Buries Himself in Man, Put Hope in the Pattern, Put Hope in the Pattern]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 While reading scripture, always bear in mind that it is a story of salvation and not secular history, that the characters - from Adam to Jesus - are states of consciousness. In Blake's *"Visions of the Last Judgment,"* he said: *"It ought to be understood that the Persons Moses and Abraham are not here meant, but states signified by those names as they were revealed to mortal man in a series of divine revelations, as they are written in the Bible."* Having seen the entire play, Blake added: *"When you see them from afar they appear as one man, but as you approach they appear as multitudes of nations, as the One Man becomes the many."* 
 
 The first five books of the Bible are called the Torah, or the Law, with Abraham as the symbol of the beginning of civilization. But the outstanding character recorded there is the infinite, eternal state called Moses. The word Moses is the old perfected [form] of the Egyptian verb 'to be born'; so it is in the state of Moses that something is to be born. Now, at the end of the Torah we are told: *"Moses, the servant of the Lord died and the Lord buried him, but no man knows the place of his burial to this day."* (Deuteronomy 34) Why? Because Moses is buried in you. 
@@ -28,7 +14,7 @@ I do not care how long you live or how much you own, you will die to this world.
 
 There is only one creative being, only one God. Being protean, he appears to be unnumbered nations, races, and people; but in the end, one by one he gathers himself into the one body, the one Spirit, one Lord, one God and Father of us all -yet without loss of identity. You will know you are God. I will know you and you will know me. Having known each other in this violent state by the masks we now wear, we will return to the unity of one made up of others, to be brothers in that heavenly state. 
 
-It is Moses who betrays God's name. Now that you know it, ask for wealth in the name of God by saying: *"I am wealthy."* You cannot point outside of self and call upon God's name. If I am in an impoverished state and desire the state of wealth, I must dare to assume I am wealthy. The Torah is a discussion between Jehovah and Pharaoh, or faith and doubt. You must have the faith of [[Assumption]] that you are the man you want to be in order to become it. Your desires will never come to pass if you believe the denials displayed by your reason and outer senses. As you walk in the [[Assumption]] that your desire is fulfilled, you are calling upon the name of God and conjuring that which you are assuming. You must dare to assume wealth, if that is your objective. 
+It is Moses who betrays God's name. Now that you know it, ask for wealth in the name of God by saying: *"I am wealthy."* You cannot point outside of self and call upon God's name. If I am in an impoverished state and desire the state of wealth, I must dare to assume I am wealthy. The Torah is a discussion between Jehovah and Pharaoh, or faith and doubt. You must have the faith of [Assumption](/Assumption) that you are the man you want to be in order to become it. Your desires will never come to pass if you believe the denials displayed by your reason and outer senses. As you walk in the [Assumption](/Assumption) that your desire is fulfilled, you are calling upon the name of God and conjuring that which you are assuming. You must dare to assume wealth, if that is your objective. 
 
 If you desire health, you must assume it, even though the doctor's reasoning world produces proof to the contrary. You must be ever aware that they are not your God, that there is only one God and his name is I am! When you point to another as an authority in your world, you are transferring the power that belongs to God to an idol. Now, if you call for anything with the name of God, and his name is I am, and you say I am - are you not your own maker? 
 

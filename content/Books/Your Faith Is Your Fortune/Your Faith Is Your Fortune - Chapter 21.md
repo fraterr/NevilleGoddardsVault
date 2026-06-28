@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Daniel in the Lions’ Den
-keywords: []
-bible_ref:
-  - Daniel 6:16
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Thy God whom thou servest continually; he will deliver thee."* (Daniel 6: 16)
 
 The story of Daniel is the story of every man. It is recorded that Daniel, while locked in the lions’ den, turned his back upon the hungry beasts; and with his vision turned toward the light coining from above he prayed to the one and only God. The lions who were purposely starved for the feast remained powerless to hurt the prophet. Daniel’s faith in God was so great that it finally brought about his freedom and his appointment to a high office in the government of his country. This story was written for you to instruct you in the art of freeing yourself from any problem or prison in the world.

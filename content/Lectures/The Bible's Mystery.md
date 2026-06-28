@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Bible's Mystery
-keywords: [Assumption, Prayer]
-bible_ref:
-tags: lecture
-topics: [The Story of Salvation, The Selectivity of the Calling, The Experience of Being Called, The Identity of Jesus, Understanding the Message, The Promises of God, The Coming End of the World, Abiding in the Words, The Marvelous Story of the Gospel, The Marvelous Story of the Gospel]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Think of this fabulous world as a play filled with horrors, violence, and fear, from which there seems to be no escape. Then think of the play as coming to its end as one man is called, incorporated into the body of the play's author and sent back to tell what he heard, what he saw and felt. This is the story of salvation.
 
 Our New Testament finds each author claiming to be an apostle, to be one who is sent - yet they are all anonymous. Matthew, Mark, Luke, and John are not mentioned in any contemporary work of the time these gospels were supposed to have been written; but each author, although unknown physically, claims to have had the experience of being called and sent. And they shared with us what they heard, what they saw and experienced. 
@@ -50,7 +36,7 @@ Now, no one comes to me while I am here in this world of Caesar unless my Father
 
 This fantastic story cannot be told once and expect to be accepted; it's too profound. When you tell it, those who hear you will see the garment of flesh you wear and say: *"But we know you."* But they will not know you, for they do not know the one speaking to them came from the third heaven, which is the resurrected world of the New Jerusalem.
 
-While in this world I was incorporated into the body of love and sent. Paul mentioned fourteen years. I go back forty. It was 1929 when I was called and sent, but it was not until 1959 (thirty years later) that my ministry began in the true sense of the word. Prior to that I spoke only of the law. You know what you want, believe that you have it. Persist in that [[Assumption]] and it will harden into fact. So I was only talking about the law, as I knew nothing of the promise until 1959, when all the promises of God found their *"yes"* in me.
+While in this world I was incorporated into the body of love and sent. Paul mentioned fourteen years. I go back forty. It was 1929 when I was called and sent, but it was not until 1959 (thirty years later) that my ministry began in the true sense of the word. Prior to that I spoke only of the law. You know what you want, believe that you have it. Persist in that [Assumption](/Assumption) and it will harden into fact. So I was only talking about the law, as I knew nothing of the promise until 1959, when all the promises of God found their *"yes"* in me.
 
 There is only one being in whom the promises can be fulfilled. That being is the one who is called and sent, and he always calls and sends his pattern - who is Jesus, so in the end there is Jesus only. He is the one man who is housed in every man, waiting to be called out of this world and fertilized by entering the body of love, then sent back into the world; and when the pattern erupts in him, he is the one spoken of in scripture. So, *"Father, as thou hast sent me, even so I send them, that he who sees me sees he who sent me, and he who sent me has never left me alone. I have finished the work thou gavest me to do. Now, return the glory that I had with thee."* When this garment is taken off I will return to the glory that was mine when He incorporated me into his body of love. Then I will be the Lord, the one Spirit, the one God and Father of all.
 

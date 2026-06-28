@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Talent
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Parable of the Talents, The Greatest Talent - Human Imagination, Use of the Talent, Jesus Christ is Human Imagination, The Lady's Story, Christianity and Mystery, Repentance and Attitude, Exercising the Talent, Discovering the Real Christ, Changing the World through Imagination, The Parable's Meaning, God's Gift - Human Imagination, Conclusion, God's Gift - Human Imagination, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 A talent is a gift entrusted to one for his use. And when one is given the greatest talent of them all, its use gives meaning to existence.
 
 In the 25th chapter of the Book of Matthew, a parable is told comparing this gift to the kingdom of heaven as: "A man going on a long journey called his servants and entrusted to them his property. To one he gave five talents, to another two, and to another, one. Then he went away. When he returned, the servants explained their use of the talents. The one who had received five had increased it to ten, for which he was highly commended and invited to enter into the joy of his master. The one who received two had doubled his and he, too, was highly commended and invited to enter into the joy of his master. But he who had received one, being afraid to test it, had buried his talent. He was condemned, the talent taken from him, and given to the one who had ten. 
@@ -44,7 +30,7 @@ You may question my example, but I know, if you have used your talents as I enco
 
 When you know what you want, use your sense of feeling. Let the feeling of satisfaction so fill your being that the idea ceases to be a desire, but has evoked motor elements. These awaken sensory sensations within you causing the desire's fulfillment. Imagination is nothing more than sensory states. Learn to go beyond an idea by feeling its reality. Then turn to another and still another, as the being who is feeling it begins to awaken within you. Fulfill all of your desires while you are here, and then when you least expect it, the Divine Breath will breathe upon that immortal tomb where you are buried. And you will awaken to find yourself completely sealed in your Holy Sepulcher where you have been dreaming your life into being.
 
-This world is made up of horrible [[Dreams]] which the one within every individual is dreaming. That one must and will awaken, as you hear the story and put it into practice through repentance. The word *"repentance"* comes from the Greek word *"metanoia,"* which means *"a radical change of attitude."* This change must be so radical that it gets right down to the root, the I AM. Think of your world as your mirror. Do you like what you see there? You know you can live with it or ignore it, but perhaps you would like to see it differently. If you would, repent by persuading yourself that you are seeing a world to your liking. Persist in your repentance, for to the degree that you are self-persuaded it is so, it will be so.
+This world is made up of horrible [Dreams](/Dreams) which the one within every individual is dreaming. That one must and will awaken, as you hear the story and put it into practice through repentance. The word *"repentance"* comes from the Greek word *"metanoia,"* which means *"a radical change of attitude."* This change must be so radical that it gets right down to the root, the I AM. Think of your world as your mirror. Do you like what you see there? You know you can live with it or ignore it, but perhaps you would like to see it differently. If you would, repent by persuading yourself that you are seeing a world to your liking. Persist in your repentance, for to the degree that you are self-persuaded it is so, it will be so.
 
 If you attempt to change the world before you change your attitude towards it, your struggle will be in vain. That which you dislike will change only to the degree that you change your attitude towards it. Until you do it cannot change, for the dislike is coming from within you. *"Man is all Imagination, and God is Man and Exists in us and we in Him. The Eternal Body of Man is the Imagination and that is God himself."*
 
@@ -62,7 +48,7 @@ Whatever your desire may be, is possible and can be yours if you will imagine it
 
 To one five talents were given. To another, two and another, one. Then came the day of accounting and all those who had expanded their talents were invited to enter into the joy of their master. And those who were afraid to test their Imagination, who wouldn't even try it, were condemned, and the knowledge of the power that they are was taken from them.
 
-The talent is God's gift to you. It is entrusted to you for your use. Use your talent tonight by sleeping in the [[Assumption]] that you are now - not tomorrow - but now, the person you would like to be. In the morning, persist in your [[Assumption]] by allowing the world to see you as they would have to see you, were you now the one you would like to be. Although your reason and senses deny your [[Assumption]], if you persist your desire will harden into fact.
+The talent is God's gift to you. It is entrusted to you for your use. Use your talent tonight by sleeping in the [Assumption](/Assumption) that you are now - not tomorrow - but now, the person you would like to be. In the morning, persist in your [Assumption](/Assumption) by allowing the world to see you as they would have to see you, were you now the one you would like to be. Although your reason and senses deny your [Assumption](/Assumption), if you persist your desire will harden into fact.
 
 Let the world turn their back upon this law. That is perfectly all right, but you go your way using your talent. And when you least expect it, all that is said in scripture concerning Jesus Christ will be yours to experience in the first person, singular, present tense. Then you will know beyond all doubt who Jesus Christ really is. When you know who you are, it will not matter what the world says. Let the billion Christians and the two billion non-Christians go their way. If they want to question or ridicule you, turn your back and walk away. Having found the real Christ, you have found the great secret to the mystery of all life.
 
@@ -101,7 +87,7 @@ Now let us go into the silence.
 
 ### The Lady's Story
 - The author shares a story of a lady who used her imagination to rent out her apartment.
-- She slept in the [[Assumption]] that her apartment was rented and it happened in reality.
+- She slept in the [Assumption](/Assumption) that her apartment was rented and it happened in reality.
 
 ### Christianity and Mystery
 - The author describes Christianity as a mystery, with Paul using the word "mystery" multiple times.

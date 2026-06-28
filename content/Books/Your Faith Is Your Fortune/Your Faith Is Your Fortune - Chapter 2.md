@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: You Shall Decree
-keywords: []
-bible_ref:
-  - Isaiah 55:11
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."* (Isaiah 55:11)
 
 Man can decree a thing and it will come to pass.

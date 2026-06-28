@@ -1,20 +1,3 @@
----
-book: The Power of Awareness
-chapter: Creation
-keywords:
-  - Assumption
-bible_ref:
-  - Isaiah 46:9-10
-tags: book
-topics:
-  - Creation is Finished
-  - You Are Destined to Experience More
-  - Self-Concept Determines Experience
-  - You Shape Present and Future
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"I am God, declaring the end from the beginning, and from ancient times things that are not yet done."* (Isaiah 46:9, 10)
 
 Creation is finished. Creativeness is only a deeper receptiveness, for the entire contents of all time and all space, while experienced in a time sequence, actually coexist in an infinite and eternal now. In other words, all that you ever have been or ever will be — in fact, all that mankind ever was or ever will be — exists now. This is what is meant by creation, and the statement that creation is finished means nothing is ever to be created, it is only to be manifested. What is called creativeness is only becoming aware of what already is. You simply become aware of increasing portions of that which already exists. The fact that you can never be anything that you are not already or experience anything not already existing explains the experience of having an acute feeling of having heard before what is being said, or having met before the person being met for the first time, or having seen before a place or thing being seen for the first time.
@@ -23,11 +6,11 @@ The whole of creation exists in you, and it is your destiny to become increasing
 
 If creation is finished, and all events are taking place now, the question that springs naturally to the mind is *“what determines your time track?”* That is, what determines the events which you encounter? And the answer is your concept of yourself . Concepts determine the route that attention follows. Here is a good test to prove this fact. Assume the feeling of your wish fulfilled and observe the route that your attention follows.
 
-You will observe that as long as you remain faithful to your [[Assumption]], so long will your attention be confronted with images clearly related to that [[Assumption]]. For example; if you assume that you have a wonderful business, you will notice how in your imagination your attention is focused on incident after incident relating to that [[Assumption]]. Friends congratulate you, tell you how lucky you are.
+You will observe that as long as you remain faithful to your [Assumption](/Assumption), so long will your attention be confronted with images clearly related to that [Assumption](/Assumption). For example; if you assume that you have a wonderful business, you will notice how in your imagination your attention is focused on incident after incident relating to that [Assumption](/Assumption). Friends congratulate you, tell you how lucky you are.
 
 Others are envious and critical. From there your attention goes to larger offices, bigger bank balances, and many other similarly related events.
 
-Persistence in this [[Assumption]] will result in actually experiencing in fact that which you assumed.
+Persistence in this [Assumption](/Assumption) will result in actually experiencing in fact that which you assumed.
 
 The same is true regarding any concept. If your concept of yourself is that you are a failure, you would encounter in your imagination a whole series of incidents in conformance to that concept.
 
@@ -56,7 +39,7 @@ You increasingly become aware of its infinite wonders.
 
 Your concept of self directs the route of attention.
 Assuming wish fulfilled focuses attention on related incidents.
-Persisting in [[Assumption]] manifests it physically.
+Persisting in [Assumption](/Assumption) manifests it physically.
 Failure concept makes you encounter conforming events.
 
 ### You Shape Present and Future

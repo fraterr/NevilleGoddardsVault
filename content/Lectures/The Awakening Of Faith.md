@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Awakening Of Faith
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Responsibility of Sharing the Christian Mystery, The True Nature of God, Awakening the Awareness of God Within, The Fulfillment of Scripture, The Importance of Belief in Imagination, Honoring the Greatness Within, The Creative Power of the Universe within Each Individual, Returning to the Oneness, Respecting the Divinity in Others, Respecting the Divinity in Others]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Those who experience the Christian mystery are charged with the responsibility of telling others. Their aim is the awakening of faith in God. For, as Paul, I ask the question: *"How can men call upon him in whom they have not believed? And how can they believe in him of whom they have never heard? And how can they hear unless there is a preacher? And how can men preach unless they are sent? As it is written, 'How beautiful are the feet of those who preach good news!' But not all have heeded the gospel, for Isaiah says, 'Who, O Lord, has believed what he has heard from us?' So, faith comes from what is heard, and what is heard comes from the preaching of Christ."* 
 
 Now Christ is not a person outside of you who lived 2,000 years ago. Christ is the cosmic being who became humanity by burying himself in every child born of woman. Ask the average person if they believe in God and many of them will say, Yes. But when asked to define Him, they will describe someone other than themselves. So, *"How can men call upon one in whom they do not believe?"* 

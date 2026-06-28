@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Sons Of The Most High
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Rise and Fall of Ideas, Belief and Imagination, Descending and Ascending, The Power of Assumption, Understanding Scripture and Dreams, The Spiral Staircase and Unity, Persistent Assumption and Self-Belief, Returning to Oneness]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 President Hoover, a man who began his life here on earth in the state of poverty, yet rose to the highest office in our land made this statement at a convention in San Francisco: *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the mind of men."*
 
 We are told in the 8th chapter of Nehemiah that Ezra read from the Book, from the law of God with interpretation, so that the people understood the reading. It is my hope that I can interpret the words of President Hoover and the meaning behind the words from the Epistle of John so that you may understand their meaning. The words are these: *"I am from above; you are from below. You are of this world; I am not of this world. Now I say to you, unless you believe that I am he you will die in your sins."*
@@ -26,13 +12,13 @@ Descending to prove a prophecy, you are truly sons of God and you and I are one.
 
 We descended in consciousness and we have gone through all of the fires of hell. But one by one we will rise to discover we really are God, the Father of his only begotten Son. How can I ever convince you of this while speaking on this level where there is such division, yet I tell you we truly are one. We fell into division for one purpose and that is to rise into unity, into the oneness that is God.
 
-Everyone will know that consciousness; but while we are here we can prove President Hoover's statement, that the rise and fall of ideas will determine the environment in which the individual lives. So I say to you: name what you want to be and become so conscious of being it, you believe *"I am he,"* for if you are not consciously saying: *"I am he,"* you are missing your mark. Unless you feel you are the man (or woman) that you want to be and persist in that [[Assumption]], you are not going to reach your goal. Your [[Assumption]] may be for earthly things, but I urge you to persist in the [[Assumption]] that you are God until your very breath proclaims: *"I am he!"* The world may tell you that you are crazy, but I am telling you from experience that you've got to feel you are God in order to know who God is!
+Everyone will know that consciousness; but while we are here we can prove President Hoover's statement, that the rise and fall of ideas will determine the environment in which the individual lives. So I say to you: name what you want to be and become so conscious of being it, you believe *"I am he,"* for if you are not consciously saying: *"I am he,"* you are missing your mark. Unless you feel you are the man (or woman) that you want to be and persist in that [Assumption](/Assumption), you are not going to reach your goal. Your [Assumption](/Assumption) may be for earthly things, but I urge you to persist in the [Assumption](/Assumption) that you are God until your very breath proclaims: *"I am he!"* The world may tell you that you are crazy, but I am telling you from experience that you've got to feel you are God in order to know who God is!
 
-God's story begins in the Old Testament and comes to its fruition in the New. The story is told of Jacob, who comes into a place at night, and using a stone for a pillow he falls asleep and [[Dreams]] of a stairway leading up to heaven, with the gods [sic] ascending and descending as God stands above. Then he awakens and says: *"Behold, this is the place of God and I did not know it."* 
+God's story begins in the Old Testament and comes to its fruition in the New. The story is told of Jacob, who comes into a place at night, and using a stone for a pillow he falls asleep and [Dreams](/Dreams) of a stairway leading up to heaven, with the gods [sic] ascending and descending as God stands above. Then he awakens and says: *"Behold, this is the place of God and I did not know it."* 
 
-Tonight when you go to bed, you lay your head upon a pillow and God (Imagination) rests upon your skull, for that is the stone, the place of God where he [[Dreams]] of the staircase leading up to heaven - the same God who said: *"I am the Lord, the God of your father Abraham, Isaac and Jacob."* The story continues as Jacob, now awake, takes the stone (awareness now individualized) and anointing it, he builds the temple of the Lord. That temple you are.
+Tonight when you go to bed, you lay your head upon a pillow and God (Imagination) rests upon your skull, for that is the stone, the place of God where he [Dreams](/Dreams) of the staircase leading up to heaven - the same God who said: *"I am the Lord, the God of your father Abraham, Isaac and Jacob."* The story continues as Jacob, now awake, takes the stone (awareness now individualized) and anointing it, he builds the temple of the Lord. That temple you are.
 
-God, the Father of all life is in you! Being all imagination, your true name is I AM, and besides you there is no other God. So I tell you: unless you believe *"I am he,"* you will die in your sins in the sense that you will continue missing the mark. You must assume that you are now the man (the woman) you want to be and persist in that [[Assumption]], for there is no other way for you to be it, as there is only God in this world.
+God, the Father of all life is in you! Being all imagination, your true name is I AM, and besides you there is no other God. So I tell you: unless you believe *"I am he,"* you will die in your sins in the sense that you will continue missing the mark. You must assume that you are now the man (the woman) you want to be and persist in that [Assumption](/Assumption), for there is no other way for you to be it, as there is only God in this world.
 
 The story recorded in the Old Testament lays the foundation of which the New Testament is its fulfillment, but *"Even to this day when Moses is read a veil is over their minds and they cannot understand it."* When the mind is veiled, one cannot understand that the God spoken of by the prophets is imagination; but I tell you: at night when you go to bed God is dreaming, and when you awake in the morning he is still dreaming your world into being. But one day you will awaken in your skull (the stone that God anointed). You will fall upon it and say: *"Behold, this is the place of God and I did not know it."*
 
@@ -42,7 +28,7 @@ The New Testament records the fulfillment of the Old, but those who call themsel
 
 When Jesus Christ was publicly portrayed as crucified (remember, this play did not take place on earth save as a parable), he came before Pilate, who said: *"Do you not know that I have the power to set you free or the power to crucify you?"* And Jesus answered: *"You have no power unless it has been given you from above."*
 
-Your I AMness is from above. Having come to do the Father's will, I who am now aware of being you, will drink the cup of experience to the very end. But no one has any power over me save I, by my [[Assumption]], give it away. I do it by assuming I am less than another, thereby forcing him to play the part of one superior to me. Everyone reflects my assumptions and plays their part relative to that which I have assumed, for there is nothing but Imagination, and I am he. Assuming I am afraid, I live in a world of fear, for there is no other. Being protean, I am playing every part in my dream of life, be it for my good or for my ill.
+Your I AMness is from above. Having come to do the Father's will, I who am now aware of being you, will drink the cup of experience to the very end. But no one has any power over me save I, by my [Assumption](/Assumption), give it away. I do it by assuming I am less than another, thereby forcing him to play the part of one superior to me. Everyone reflects my assumptions and plays their part relative to that which I have assumed, for there is nothing but Imagination, and I am he. Assuming I am afraid, I live in a world of fear, for there is no other. Being protean, I am playing every part in my dream of life, be it for my good or for my ill.
 
 When you dream tonight of numberless people and awaken in the morning to find them gone, where did they go? Are they not all in you, created by and acted by you? Then are you not protean? You, all Imagination, are God the dreamer, imagining the many parts you are playing. This very moment is a part of your dream, and those around you are there, playing their parts because you are imagining them. You are playing the part of your husband, your wife, your children, your friends, and your enemies. They are all you, for there is nothing but God.
 
@@ -56,7 +42,7 @@ It is said that he who descended is the son of Man. Well, if God's Son becomes t
 
 Descending as God's sons, you will ascend as the Father of God's only Son, David. Then you will know from experience what you formerly could not believe. And only after you have descended into these bodies of decay can you discover that there is only one Imagination, only one God, only one Father.
 
-While in this world of Caesar, go to bed this night and putting your head on the true pillow (called the skull), dare to assume you are the man (the woman) that you would like to be. Just assume it. Tomorrow, if the world denies it, turn your back on its denial and persist in your [[Assumption]] and you will become that which you have assumed you are. But when your world reflects your persistent [[Assumption]], don't forget how you brought it into being. You brought it to pass by assuming: *"I am he,"* and there is no other God.
+While in this world of Caesar, go to bed this night and putting your head on the true pillow (called the skull), dare to assume you are the man (the woman) that you would like to be. Just assume it. Tomorrow, if the world denies it, turn your back on its denial and persist in your [Assumption](/Assumption) and you will become that which you have assumed you are. But when your world reflects your persistent [Assumption](/Assumption), don't forget how you brought it into being. You brought it to pass by assuming: *"I am he,"* and there is no other God.
 
 You may not be listed in the social register or as one of the millionaires of the world, but no one is more important than you. I have yet to meet one person that I have felt was greater than I. Having awakened from the dream of life, I know there is no other to be greater or lesser than. Weak and limited as I am, there is only one being in the world and that being is God.
 
@@ -84,13 +70,13 @@ Now let us go into the silence.
 - We have to descend in consciousness to rise and ascend as God.
 - Through the pattern of Jesus Christ, we can discover our true nature as God.
 
-### The Power of [[Assumption]]
+### The Power of [Assumption](/Assumption)
 
 - Your assumptions and beliefs determine the world in which you live.
 - It is crucial to assume and persist in the belief that you are already what you desire to be.
-- Your [[Assumption]] should be aligned with your goals and persist until it becomes natural to believe that you are what you desire.
+- Your [Assumption](/Assumption) should be aligned with your goals and persist until it becomes natural to believe that you are what you desire.
 
-### Understanding Scripture and [[Dreams]]
+### Understanding Scripture and [Dreams](/Dreams)
 
 - The Old Testament lays the foundation while the New Testament fulfills it.
 - The true meaning of scripture is often veiled, but it reveals that God is imagination.
@@ -103,10 +89,10 @@ Now let us go into the silence.
 - Descending as God's sons allows you to ascend as the Father of God's Son, David.
 - You and God are one and unity is the ultimate goal.
 
-### Persistent [[Assumption]] and Self-Belief
+### Persistent [Assumption](/Assumption) and Self-Belief
 
-- Dare to assume you are the person you want to be and persist in that [[Assumption]].
-- Your [[Assumption]] can bring about the desired reality, and there is no other God but yourself.
+- Dare to assume you are the person you want to be and persist in that [Assumption](/Assumption).
+- Your [Assumption](/Assumption) can bring about the desired reality, and there is no other God but yourself.
 - Your importance and greatness lie in being God's creation, and no one else is greater or lesser than you.
 
 ### Returning to Oneness

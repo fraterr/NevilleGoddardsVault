@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Be Imitators Of God
-keywords: []
-bible_ref:
-tags: lecture
-topics: [God's Dream and the Imitation, The Manifestation of Jesus Christ, Recognizing the Risen Lord, Sharing the Experiences of Christ, The Bible and Luke's Account, Imitating God and Having a Glorious Dream, Unveiling Your Wish, Unveiling Your Wish]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"It has been taught us from the primal state, that that which is, was wished until it were."* (William Shakespeare)   
   
 God started with a wish, saying; *"Let us make man in our image."* And we are told that we will be perfect as our Father is perfect, and holy as our Father is holy. Therefore, whatever God was, when his work is completed, man must be. We are told to be imitators of God as dear children, so we must discover how he became us in order to imitate him.  

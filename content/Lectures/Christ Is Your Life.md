@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christ Is Your Life
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Revelation of the Risen Christ, The Power of Christ as Your Life, The Principle of All Things Working for Good, The Responsibility of Revision and Self-Persuasion, God as the Human Imagination, The Awakening and Rising of Christ within You, Fulfilling Desires Through Self-Persuasion, Understanding Visions and Misinterpretation, The Supernatural Nature of Gaining Christ, Embracing the Truth of Redemption, Embracing the Truth of Redemption]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 This teaching is essentially a revelation of the Risen Christ. I am not speaking of the life of any man between his physical birth and death, but of the Christ who has risen in me and who rises in all. I have no mental image of a being outside of my life, or yours.   
   
 Paul tells us: *"You have died, and your life is hid with Christ in God. When Christ who is our life appears, you will appear with him in glory."* (Col. 3:3,4) Here we see Paul equating your life with Christ. You are alive now, so what does Paul mean when he claims you have died? All of Paul’s letters equate death with a sleep so profound the past is forgotten. It is from the sleep of death he urges you to roust yourself from saying: *"Awake O sleeper and rise from the dead."*   
@@ -26,13 +12,13 @@ I would say to him, just take the objective. Perhaps because of their talents yo
   
 Now, you questioned if all things worked for good. The 8th chapter of Romans tells us that it does. This truth is dramatized for us in the 50th chapter of the Book of Genesis. It is the story of Joseph, one of the twelve Sons of Jacob. Joseph had the capacity to dream vividly. His visions were true and he could interpret them. His brothers, becoming envious, plotted to kill him; but Judah interceded, urging them to sell him instead.   
   
-Joseph was sold as a slave, and when no one could interpret Pharaoh's [[Dreams]] Joseph was brought before him. He interpreted the [[Dreams]] so accurately, Pharaoh made him equal with himself, and whatever Joseph said was instantly executed. He foretold of the famine that was to come; and when his brothers came seeking food Joseph - now sitting on the throne - recognized them, and said: *"Fear not, you meant evil against me, but God meant it for good."* So everything works for good when there is time to reflect upon the act.   
+Joseph was sold as a slave, and when no one could interpret Pharaoh's [Dreams](/Dreams) Joseph was brought before him. He interpreted the [Dreams](/Dreams) so accurately, Pharaoh made him equal with himself, and whatever Joseph said was instantly executed. He foretold of the famine that was to come; and when his brothers came seeking food Joseph - now sitting on the throne - recognized them, and said: *"Fear not, you meant evil against me, but God meant it for good."* So everything works for good when there is time to reflect upon the act.   
   
 I could go back to my own small family. There came a moment in our life when it seemed as though the world had come to its end. My father’s partners, desiring to take control of the little equity he had in the business, succeeded and our world collapsed. We had nothing and even our friends made themselves scarce.   
   
 But what appeared to be an evil thing turned out to be a blessing, for by detaching ourselves from this partnership - which was small in the sense that they couldn’t think big - my father started on his own with sons who could imagine. The family has now turned our business into a large enterprise of many kinds of businesses with no outside partnerships, dwarfing anything we thought possible forty years ago when it happened. It has taken time and reflection, but now we can see that - although my father’s partners intended evil against him - God meant it for good.   
   
-Now, a friend had a dream in which he received a letter with his son’s report card inside, indicating that he must show a decided improvement in four subjects, one of which was algebra. Since his son has always been tops in math, he was annoyed and instantly revised the report card. Suddenly angry with himself he said: *"I am tired of the responsibility of this power and life’s many needs of [[Revision]]. My son is a big boy now, let him do it for himself,"* and awoke.   
+Now, a friend had a dream in which he received a letter with his son’s report card inside, indicating that he must show a decided improvement in four subjects, one of which was algebra. Since his son has always been tops in math, he was annoyed and instantly revised the report card. Suddenly angry with himself he said: *"I am tired of the responsibility of this power and life’s many needs of [Revision](/Revision). My son is a big boy now, let him do it for himself,"* and awoke.   
   
 Peter asked the question: *"Lord, if my brother sins against me, how often must I forgive him, seven times?"* and the Lord answered: *"I did not say seven, but seventy times seven."* This does not mean four hundred and ninety times. Seventy is the numerical value of the Hebrew letter ayin, whose symbol is an eye. Seven is the numerical value of the Hebrew letter zayin, whose symbol is a sword.   
   
@@ -48,7 +34,7 @@ So this lesson was given us in the beginning. Whatever you are beholding in your
   
 In the case of my friend, his dream was telling him to continue to revise and not to be afraid of the responsibility of his tremendous power to imagine; for life itself is nothing more than an activity of imagination. When I speak of Christ being your life, I am saying he is your imagination, for life is an activity of imagination. Ask yourself what you are imagining right now and you will discover what Christ has created. For by him all things are created, and without him is not a thing created that is created.   
   
-Everything now formed and called a fact was once only an image in the mind of someone who persisted in that image and projected it onto the screen of space. So do not give up the responsibility of [[Revision]], and - as to influencing others - may I say you cannot help it. As you walk the street you unwittingly influence people there. You simply cannot stop it.   
+Everything now formed and called a fact was once only an image in the mind of someone who persisted in that image and projected it onto the screen of space. So do not give up the responsibility of [Revision](/Revision), and - as to influencing others - may I say you cannot help it. As you walk the street you unwittingly influence people there. You simply cannot stop it.   
   
 Another point I want to bring up is this: The prophets who wrote the Old Testament were servants of the Lord. They recorded what they saw or heard, but they did not understand it. Every true prophet’s vision is foreshortened. Seeing as present what is future: *"The prophets prophesied of the grace that was to be yours. They searched and inquired as to what person or time was indicated by the Spirit of Christ within them when predicting the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving, not themselves but you, in the things that are now being revealed."*   
   
@@ -88,11 +74,11 @@ It should not matter what a man does with his life between the cradle and the gr
   
 Whether you play the part of a cook or a king, a carpenter or movie idol, is not important - for your external state means nothing. There are men who are now playing the part of a cook, carpenter, shoeshine boy, or barber, knowing they are redeemed, waiting patiently for that moment in time when they can take off the garment of flesh and blood for the last time. But only the Father knows that moment. Let no one speculate as to when it will happen. Record your visions, but do not interpret them. We are all past masters at misinterpretation of the great mission of God to us.   
   
-As for me, I have already risen. I am of the world, not in it. My [[Dreams]] and experiences at night are not related to this world, so I play a double life. While I am here there is work to be done to continue to encourage everyone by telling the true story of redemption.   
+As for me, I have already risen. I am of the world, not in it. My [Dreams](/Dreams) and experiences at night are not related to this world, so I play a double life. While I am here there is work to be done to continue to encourage everyone by telling the true story of redemption.   
   
 Take this wonderful story to heart. It is a true one. Christ is your life which is wholly supernatural. The birth is supernatural. The discovery of the Father is supernatural. The tearing of the temple from top to bottom and the ascent into the kingdom are supernatural, as well as the descent of the dove. No physical dove descends upon your shoulder - it is a supernatural experience, but this fantastic truth has been embodied in a tale that man could understand; for, as Tennyson said: *"Truth embodied in a tale shall enter in at lowly doors."*   
   
-Remember what I have said. Forget influence! Take objectives. Conceive a scene which would imply the fulfillment of your desire and dream noble [[Dreams]], for nothing is impossible to Christ and Christ is your life!   
+Remember what I have said. Forget influence! Take objectives. Conceive a scene which would imply the fulfillment of your desire and dream noble [Dreams](/Dreams), for nothing is impossible to Christ and Christ is your life!   
   
 Now let us go into the silence.
 
@@ -113,7 +99,7 @@ Now let us go into the silence.
 - The story of Joseph in the Bible demonstrates that all things work for good in the end.
 - Personal experiences also illustrate how seemingly negative events can lead to positive outcomes.
 
-### The Responsibility of [[Revision]] and Self-Persuasion
+### The Responsibility of [Revision](/Revision) and Self-Persuasion
 - The importance of revising one's imagination and believing in desired outcomes.
 - William James' revelation about inner attitudes producing outer changes in harmony with convictions.
 - The story of Jacob and the animals shows the power of imagination in creating external reality.
@@ -146,14 +132,14 @@ Now let us go into the silence.
 ### Embracing the Truth of Redemption
 - The individual should embrace the true story of redemption.
 - Christ is the individual's life and nothing is impossible for Christ.
-- Focus on objectives and dream noble [[Dreams]].Christ is a supernatural experience.
+- Focus on objectives and dream noble [Dreams](/Dreams).Christ is a supernatural experience.
 - The birth, discovery of the Father, tearing of the temple, and ascent into the kingdom are all supernatural events.
 - The dove descending is a symbol of a supernatural experience.
 
 ### Embracing the Truth of Redemption
 - The individual should embrace the true story of redemption.
 - Christ is the individual's life and nothing is impossible for Christ.
-- Focus on objectives and dream noble [[Dreams]].[[Dreams]].
+- Focus on objectives and dream noble [Dreams](/Dreams).[Dreams](/Dreams).
 
 
 #Revision #Dreams

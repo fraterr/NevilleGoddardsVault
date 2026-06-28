@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Thy Will Be Done
-keywords: []
-bible_ref:
-  - Luke 22:42
-  - Joel 3:10
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Not my will, but thine, be done."* (Luke 22:42)
 
 *“Not my will, but thine, be done.”* This resignation is not one of blind realization that *“I can of myself do nothing, the Father within me he doeth the work,”* When man wills he attempts to make something which does not now exist appear in time and space. Too often we are not aware of that which we are really doing. We unconsciously state that we do not possess the capacities to express. We predicate our desire upon the hope of acquiring the necessary capacities in future time. *“I AM not, but I will be.”*

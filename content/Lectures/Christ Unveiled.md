@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christ Unveiled
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Christ Unveiled]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is *"Christ Unveiled."* That is quite a tall order, for we are told in Mark 13:21: *"If anyone says to you, 'Look, here is Christ!' or 'Look, there he is!' do not believe it."* And I will endorse that one hundred percent. Listen to it carefully and see the pronoun used in that sentence. *"Here he is, believe him not."* So, here, who is Christ? What is Christ? Where is Christ? Paul found him and, having found him, he said: *"From now on we regard no one from a human point of view even though we once regarded Christ from a human point of view, we regard him thus no longer."* (1 Cor. 5:16) He regards him not, from now on, as man. He thought he was man and went out to destroy those who believed in Christ as a man.  
   
 Then we are told in I Peter 1:10,11: *"The prophets who prophesied of the grace that was to be yours searched and inquired about this salvation; they inquired what person or time was indicated by the Spirit of Christ within them when predicting the sufferings of Christ and the subsequent glory."* They thought they were looking for a person, or time, and they wondered whether he would come. There was no reply to that, save *"It was revealed to them they were serving not themselves but you"* (v. 12) What is Christ? I tell you Christ is *"The Way"* of salvation. Christ is *"The Way"* to the Father.  

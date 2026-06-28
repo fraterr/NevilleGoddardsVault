@@ -1,22 +1,4 @@
----
-book: Prayer, The Art of Believing
-chapter: Dual Nature of Consciousness
-keywords:
-  - Assumption
-  - Prayer
-bible_ref: null
-tags: book
-topics:
-  - The Dual Nature of Consciousness
-  - The Subconscious Mind
-  - Prayer Unlocks the Subconscious
-  - Subjective Reasoning
-  - Suggestion Governs Subjective Mind
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-A clear concept of the dual nature of man's consciousness must be the basis of all true [[Prayer]]. Consciousness includes a subconscious as well as a conscious part. The infinitely greater part of consciousness lies below the sphere of objective consciousness. The subconscious is the most important part of consciousness. It is the cause of voluntary action. The subconscious is what a man is. The conscious is what a man knows. *"I and my Father are one but my Father is greater than I."* The conscious and subconscious are one, but the subconscious is greater than the conscious.
+A clear concept of the dual nature of man's consciousness must be the basis of all true [Prayer](/Prayer). Consciousness includes a subconscious as well as a conscious part. The infinitely greater part of consciousness lies below the sphere of objective consciousness. The subconscious is the most important part of consciousness. It is the cause of voluntary action. The subconscious is what a man is. The conscious is what a man knows. *"I and my Father are one but my Father is greater than I."* The conscious and subconscious are one, but the subconscious is greater than the conscious.
 
 *"I of myself can do nothing, the Father within me He doeth the work."* I, objective consciousness, of myself can do nothing; the Father, the subconscious, He doeth the work. The subconscious is that in which everything is known, in which everything is possible, to which everything goes, from which everything comes, which belongs to all, to which all have access.
 
@@ -24,17 +6,17 @@ What we are conscious of is constructed out of what we are not conscious of. Not
 
 The whole of creation is asleep within the deep of man and is awakened to objective existence by his subconscious assumptions. Within that blankness we call sleep there is a consciousness in unsleeping vigilance, and while the body sleeps this unsleeping being releases from the treasure house of eternity the subconscious assumptions of man.
 
-[[Prayer]] is the key which unlocks the infinite storehouse. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* [[Prayer]] modifies or completely changes our subconscious assumptions, and a change of [[Assumption]] is a change of expression.
+[Prayer](/Prayer) is the key which unlocks the infinite storehouse. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* [Prayer](/Prayer) modifies or completely changes our subconscious assumptions, and a change of [Assumption](/Assumption) is a change of expression.
 
 The conscious mind reasons inductively from observation, experience and education. It therefore finds it difficult to believe what the five senses and inductive reason deny.
 
-The subconscious reasons deductively and is never concerned with the truth or falsity of the premise, but proceeds on the [[Assumption]] of the correctness of the premise and objectifies results which are consistent with the premise.
+The subconscious reasons deductively and is never concerned with the truth or falsity of the premise, but proceeds on the [Assumption](/Assumption) of the correctness of the premise and objectifies results which are consistent with the premise.
 
-This distinction must be clearly seen by all who would master the art of praying. No true grasp of the science of [[Prayer]] can be really obtained until the laws governing the dual nature of consciousness are understood and the importance of the subconscious realized.
+This distinction must be clearly seen by all who would master the art of praying. No true grasp of the science of [Prayer](/Prayer) can be really obtained until the laws governing the dual nature of consciousness are understood and the importance of the subconscious realized.
 
-[[Prayer]]—the art of believing what is denied by the senses — deals almost entirely with the subconscious.
+[Prayer](/Prayer)—the art of believing what is denied by the senses — deals almost entirely with the subconscious.
 
-Through [[Prayer]], the subconscious is suggested into acceptance of the wish fulfilled, and, reasoning deductively, logically unfolds it to its legitimate end. *"Far greater is He that is in you than he that is in the world."*
+Through [Prayer](/Prayer), the subconscious is suggested into acceptance of the wish fulfilled, and, reasoning deductively, logically unfolds it to its legitimate end. *"Far greater is He that is in you than he that is in the world."*
 
 The subjective mind is the diffused consciousness that animates the world; it is the spirit that giveth life. In all substance is a single soul — subjective mind. Through all creation runs this one unbroken subjective mind. Thought and feeling fused into beliefs impress modifications upon it, charge it with a mission, which mission it faithfully executes.
 
@@ -65,15 +47,15 @@ Ideas are best suggested when the objective mind is partly subjective, that is, 
 - Our subconscious assumptions influence behavior and shape reality
 - The subconscious alone can objectify our existence in its image
 
-### [[Prayer]] Unlocks the Subconscious
+### [Prayer](/Prayer) Unlocks the Subconscious
 
-- [[Prayer]] modifies subconscious assumptions, changing expression
+- [Prayer](/Prayer) modifies subconscious assumptions, changing expression
 - Conscious mind reasons inductively from senses
 - Subconscious reasons deductively from premises and objectifies results
 
 ### Subjective Reasoning
 
-- [[Prayer]] deals with subconscious subjective reasoning
+- [Prayer](/Prayer) deals with subconscious subjective reasoning
 - Subjective mind unfolds wished fulfillment deductively into reality
 - Subjective mind animates the world as the spirit that gives life
 - Thoughts and feelings charge it with a mission that it executes

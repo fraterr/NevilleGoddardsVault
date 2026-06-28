@@ -1,24 +1,10 @@
----
-book: Your Faith Is Your Fortune
-chapter: Christmas
-keywords:
-  - Dreams
-bible_ref:
-  - Matthew 1:23
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is God with us."* (Matt. 1:23)
 
 One of the most controversial statements in the New Testament concerns the virgin conception and subsequent birth of Jesus, a conception in which man had no part. It is recorded that a virgin conceived a son without the aid of man, then secretly and without effort gave birth to her conception. This is the foundation upon which all Christendom rests.
 
 The Christian world is asked to believe this story, for man must believe the unbelievable to fully express the greatness that he is.
 
-Scientifically, man might be inclined to discard the whole Bible as untrue because his reason will not permit him to believe that the virgin birth is physiologically possible, but the Bible is a message of the soul and must be interpreted psychologically if man is to discover its true symbology. Man must see this story as a psychological drama rather than a statement of physical fact. In so doing he will discover the Bible to be based on a law which if self-applied will result in a manifested expression transcending his wildest [[Dreams]] of accomplishment. To apply this law of self-expression, man must be schooled in the belief and disciplined to stand upon the platform that *“all things are possible to God.”*
+Scientifically, man might be inclined to discard the whole Bible as untrue because his reason will not permit him to believe that the virgin birth is physiologically possible, but the Bible is a message of the soul and must be interpreted psychologically if man is to discover its true symbology. Man must see this story as a psychological drama rather than a statement of physical fact. In so doing he will discover the Bible to be based on a law which if self-applied will result in a manifested expression transcending his wildest [Dreams](/Dreams) of accomplishment. To apply this law of self-expression, man must be schooled in the belief and disciplined to stand upon the platform that *“all things are possible to God.”*
 
 The outstanding dramatic dates of the New Testament, namely, the birth, death and resurrection of Jesus, were timed and dated to coincide with certain astronomical phenomena. The mystics who recorded this story noticed that at certain seasons of the year beneficial changes on earth coincided with astronomical changes above. In writing this psychological drama they have personified the story of the soul as the biography of man. Using these cosmic changes, they have marked the birth and resurrection of Jesus to convey that the same beneficial changes take place psychologically in the consciousness of man as he follows the law.
 

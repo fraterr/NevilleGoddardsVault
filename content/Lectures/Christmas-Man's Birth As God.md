@@ -1,18 +1,4 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christmas-Man's Birth As God
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Two Births, Paradoxes and Contradictions, Solve the Contradictions, Departure from this World, The Plan of Departure, The Crown of Righteousness, The Birth of Man as God, The Universal Diffusion of God, The Way Back to the Father, Awakening and Resurrection, The Second Event, The Journey Back to God, The Journey Back to God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
-*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* (John 1) Our physical birth is God's incarnation, for incarnation signifies the [[Assumption]] by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* (John 1) Our physical birth is God's incarnation, for incarnation signifies the [Assumption](/Assumption) by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   

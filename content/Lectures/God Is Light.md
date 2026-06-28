@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God Is Light
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [God is Light, God as Revealer, Jesus as the Light of the World, Awakening to God, God is Love, Teaching and Helping While Asleep, Rejection and Awakening, Everyone is God, God as Spirit, Experiencing God's Definitions, Fulfilling Dreams and Imaginations, God as Father and Son, Literal Truth of Scripture, The Power of Imagination, Fulfilling Desires, Fiery Arrows of Imagination, The Truth of God as Light, Fiery Arrows of Imagination, The Truth of God as Light]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 We are told in the 1st Epistle of John, the 1st chapter: *"This is the message we have received from him and proclaim to you, that God is light and in him there is no darkness at all."* Is this a figure of speech or a literal fact? I am telling you from experience: it is a literal fact, for God is light!  
   
 There are three very firm statements made in scripture defining God. God is light. God is love, and God is spirit. John tells us here that God is light, a light in which there is no darkness.   
@@ -34,7 +20,7 @@ Knowing that God is love and light, when your spiritual birth appears you will h
   
 We speak of darkness and light, yet is darkness a thing - or is it the absence of a thing? Is the hole in a sock a thing or is it the absence of a portion of the sock? I am speaking of actual light - vibrant, living, pulsing light, which hasn’t a thing to do with the pigment of skin. I wear all garments - black, yellow, pink and red. I am not greater in one garment than I am in another. In Christ there is no Greek, no Jew, no bond, no free, no male, no female. God is one in all and He awakens in all, and when he does everything claimed of Jesus Christ is experienced. One day, having played the central part, you too will close your eyes and leave this world. Having shot your arrows well, those who heard and believed you will awaken. They may forget you in time that doesn’t really matter, for the eternal story is recorded in the gospel. Your name may not be recorded there but it is recorded in eternity, for your true identity is God Himself!  
   
-On this level you can start from here, right now, and fulfill any dream. May I tell you: you are going to live the life that you are imagining, so imagine well! Imagine the most glorious thing in the world and - no matter how wonderful it is - may I tell you it is nothing compared to the being that you really are. Nothing in this world can come close to the being you really are. This world of Caesar is only a tiny section of your infinite being, but while you are here, dream nobly. Dream lovely [[Dreams]], for you can realize everything if you are willing to imagine that you have them now. Begin now to imagine you are the man (the woman) you would like to be, and regardless of what happens tomorrow, next week, or next month, if you persist in the [[Assumption]] that you already are that which you want to be, you will become it in this world of flesh and blood. Everything here will vanish, yes - but why not test your creative power? Then you will begin to taste the power latent within you, and you will discover that you can conjure out of your own depth things that are seemingly impossible, conjured by the mere act of [[Assumption]]. If you dare to act and persist in acting as though it were true and it becomes a fact, then you will know the truth of your creative power.  
+On this level you can start from here, right now, and fulfill any dream. May I tell you: you are going to live the life that you are imagining, so imagine well! Imagine the most glorious thing in the world and - no matter how wonderful it is - may I tell you it is nothing compared to the being that you really are. Nothing in this world can come close to the being you really are. This world of Caesar is only a tiny section of your infinite being, but while you are here, dream nobly. Dream lovely [Dreams](/Dreams), for you can realize everything if you are willing to imagine that you have them now. Begin now to imagine you are the man (the woman) you would like to be, and regardless of what happens tomorrow, next week, or next month, if you persist in the [Assumption](/Assumption) that you already are that which you want to be, you will become it in this world of flesh and blood. Everything here will vanish, yes - but why not test your creative power? Then you will begin to taste the power latent within you, and you will discover that you can conjure out of your own depth things that are seemingly impossible, conjured by the mere act of [Assumption](/Assumption). If you dare to act and persist in acting as though it were true and it becomes a fact, then you will know the truth of your creative power.  
   
 The promise you will have to take on faith. I tell you from experience: it is true. I have experienced the fact that God is love, the fact that God is the Father. Who would have thought that one born in 1905 (and my friend who is here tonight - in 1911) with no social, intellectual or financial background, would experience the fact that we are God the Father. That God’s Son David - he who decreed: *"I will tell of the decree of the Lord. He said unto me: ‘Thou art my Son, today I have begotten thee’"* - is our Son. Who would have thought that we, born in the 20th century, are the Father of one who was supposed to have lived 1000 BC, when we have no memory beyond that little moment in time. I can return to the age of three in my memory, yet we both returned to the same memory and remembered one who supposedly lived 3000 years ago.  
   
@@ -58,7 +44,7 @@ You can be anything you want to be, for you are going to be what you are imagini
   
 I am telling you from experience, the story is true. God is light. In the Book of 1 John, he speaks as though he had only heard and not yet experienced, saying: *"We will tell what we have heard from him and proclaim to you that God is light and in him there is no darkness at all."* But in the Gospel of John, he speaks from experience and puts these words in the mouth of the central character, saying: *"I am the light of the world. He who follows me will not be in darkness, for I am the light of life."* Here we see light identified with life. There is something within you which is all light, the light of life by which you animate and start things moving, just as the lady saw the statue. It was dead, made of marble; but as everyone was perfectly formed, the madonna became animated and began to dance. You animate everything, for you are God, buried in your mortal body, which is an eternal part of the universe. The bodies you see here are sepulchers. They appear to be alive while you wear them, but they are dead. You animate them, for you are the princes who - dwelling as one man - became fragmented into all these little parts. The one who fell was the king. Now a prince, you are gathering yourself together into the one being called the Lord God Jehovah, who is Jesus Christ.  
   
-I know it doesn’t make sense on this level. It is not expected to, but I tell you it is true. Night after night I go to bed and move beyond the world of [[Dreams]] into the world of spirit making, and from there I shoot my fiery arrows, knowing they never miss. Then someone will bring me a message, telling me she saw circles after circles after circles in the air and an arrow penetrate the smallest circle and swivel. She brought back an image, for that is exactly what happens. The arrow never misses its target. The message always penetrates and sets aflame that which is already there. So I tell you: your imaginings, your [[Dreams]], your visions, are fiery arrows shot by a being who is all light!  
+I know it doesn’t make sense on this level. It is not expected to, but I tell you it is true. Night after night I go to bed and move beyond the world of [Dreams](/Dreams) into the world of spirit making, and from there I shoot my fiery arrows, knowing they never miss. Then someone will bring me a message, telling me she saw circles after circles after circles in the air and an arrow penetrate the smallest circle and swivel. She brought back an image, for that is exactly what happens. The arrow never misses its target. The message always penetrates and sets aflame that which is already there. So I tell you: your imaginings, your [Dreams](/Dreams), your visions, are fiery arrows shot by a being who is all light!  
   
 Now let us go into the silence.
 
@@ -107,8 +93,8 @@ Now let us go into the silence.
 ### Experiencing God's Definitions
 - As one awakens to their true identity, they begin to experience the definitions of God stated in scripture.
 
-### Fulfilling [[Dreams]] and Imaginations
-- We have the power to fulfill our [[Dreams]] and imaginings.
+### Fulfilling [Dreams](/Dreams) and Imaginations
+- We have the power to fulfill our [Dreams](/Dreams) and imaginings.
 - We are encouraged to imagine nobly, for we are capable of realizing everything we imagine.
 
 ### God as Father and Son
@@ -128,7 +114,7 @@ Now let us go into the silence.
 - We are encouraged to thank God and wait for the fulfillment of our desires.
 
 ### Fiery Arrows of Imagination
-- Our imaginings, [[Dreams]], and visions are powerful and transformative.
+- Our imaginings, [Dreams](/Dreams), and visions are powerful and transformative.
 - They are likened to fiery arrows shot by a being of light.
 
 ### The Truth of God as Light
@@ -136,7 +122,7 @@ Now let us go into the silence.
 - We are encouraged to thank God and wait for the fulfillment of our desires.
 
 ### Fiery Arrows of Imagination
-- Our imaginings, [[Dreams]], and visions are powerful and transformative.
+- Our imaginings, [Dreams](/Dreams), and visions are powerful and transformative.
 - They are likened to fiery arrows shot by a being of light.
 
 ### The Truth of God as Light

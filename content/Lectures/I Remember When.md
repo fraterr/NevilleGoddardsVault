@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: I Remember When
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Memory and Imagination, Being a Scriptural Prophet, The Power of Remembering When, The Identity of Jesus Christ, The Importance of Movement, The Transformative Power of Imagination, The Promise of Joy and Challenges, Unity with God and the Return to the Source]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When I receive a great revelation concerning the creative power of God I cannot keep it to myself, but must share it with all that will listen. Here is one I received many years ago. I found myself, in Spirit, in the interior of a stately mansion in New York City. It was the kind of home the great financial giants lived in at the turn of the century. Fully awake and aware, I was visible to the three generations who were present. The son spoke to his children saying: 'Your grandfather would stand on an empty lot and say: I remember when this was an empty lot.' Then he would paint a word picture of his desire for that lot so vividly that those who heard him could see it completed right before their eyes. This is the grandfather who made the fortune we are now enjoying." 
 
 I awoke, recorded the experience, returned to sleep, and re-dreamed the dream - only this time I was the grandfather. Speaking to those present I said: 'I remember when this was an empty lot." Then I pictured the building placed there so vividly the very stones molded themselves into the form I envisioned.
@@ -34,7 +20,7 @@ In the beginning of creation the Spirit of God (his creative power called Christ
 
 Look at yourself in the mirror and dare to see radiant health and happiness reflected back to you. Then say within yourself: 'I remember when my reflection was so different." Persist in seeing your new image reflected there and you will resurrect that state. Your image, your concept of yourself or of another, is in your own wonderful human imagination who is Christ and Christ is the only God. God the Father and Christ your creative power are the same being, therefore he has never left you!
 
-Tonight, regardless of whether your [[Dreams]] are beautiful or horrible, you are aware of them because Christ has never left you. And when you awake in the morning Christ (your imagination) awakes with you, or you could not remember your [[Dreams]]. The human imagination is the God the world honors (as they should) for imagination is the creative power of the world. Learn to control your wonderful imagination and you will discover that the whole vast world is yourself pushed out.
+Tonight, regardless of whether your [Dreams](/Dreams) are beautiful or horrible, you are aware of them because Christ has never left you. And when you awake in the morning Christ (your imagination) awakes with you, or you could not remember your [Dreams](/Dreams). The human imagination is the God the world honors (as they should) for imagination is the creative power of the world. Learn to control your wonderful imagination and you will discover that the whole vast world is yourself pushed out.
 
 Last night I visited many of my friends, not only those who are here but those such, as my brother, who have gone through that little gate the world calls death. You see, to me this world is no more real than the world I visited last night. My friends, although gone from this sphere, are having the same experiences they had while they were here: hating, liking, loving, disliking. They are the same people, only young, with the same problems they had here. This I know, for being fully aware that I have already died, I can close my eyes to this world and enter that world instantly. I spent my entire night in a world, which is not real to this one, yet so solid and real to those who inhabit it.
 

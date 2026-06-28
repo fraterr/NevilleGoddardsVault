@@ -1,22 +1,3 @@
----
-book: The Power of Awareness
-chapter: Acceptance
-keywords: []
-bible_ref:
-  - Malachi 3:10
-tags: book
-topics:
-  - Perception Beyond Sense
-  - Absorption is Assumption
-  - Creative Power in Moments of Absorption
-  - Shock of Returning to Physical
-  - Keys to Heaven
-  - Windows Open with Acceptance
-  - Spirit of Assumption Opens Blessing
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 Man’s Perceptions are not bounded by organs of Perception: he perceives more than sense (though ever so acute) can discover.
 
 However much you seem to be living in a material world, you are actually living in a world of imagination. The outer, physical events of life are the fruit of forgotten blossom-times — results of previous and usually forgotten states of consciousness. They are the ends running true to ofttimes forgotten imaginative origins.
@@ -38,7 +19,7 @@ There is continuity between the so-called real and unreal. To cross from one sta
 
 Not by might nor by power but by my spirit, saith the Lord of hosts.
 
-Assume the spirit, the feeling of the wish fulfilled, and you will have opened the windows to receive the blessing. To assume a state is to get into the spirit of it. Your triumphs will be a surprise only to those who did not know your hidden passage from the state of longing to the [[Assumption]] of the wish fulfilled.
+Assume the spirit, the feeling of the wish fulfilled, and you will have opened the windows to receive the blessing. To assume a state is to get into the spirit of it. Your triumphs will be a surprise only to those who did not know your hidden passage from the state of longing to the [Assumption](/Assumption) of the wish fulfilled.
 
 The Lord of hosts will not respond to your wish until you have assumed the feeling of already being what you want to be, for acceptance is the channel of His action. Acceptance is the Lord of hosts in action.
 
@@ -51,7 +32,7 @@ The Lord of hosts will not respond to your wish until you have assumed the feeli
 Man perceives beyond physical senses, in imagination's world.
 Outer events are fruits of forgotten inner states of consciousness.
 
-### Absorption is [[Assumption]]
+### Absorption is [Assumption](/Assumption)
 
 When absorbed in an emotional state, you assume it fulfilled.
 What you are intensely emotional about you will experience.
@@ -76,7 +57,7 @@ Undesirable facts lose reality with wish fulfilled.
 Windows of heaven open with complete acceptance, not willpower.
 Continuity between real/unreal crossed by feeling.
 
-### Spirit of [[Assumption]] Opens Blessing
+### Spirit of [Assumption](/Assumption) Opens Blessing
 
 Assume the spirit, feeling of wish fulfilled.
 Lord of hosts responds only when you accept you already have it.

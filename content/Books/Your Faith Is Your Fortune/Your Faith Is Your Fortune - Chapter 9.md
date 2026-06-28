@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: The Foundation Stone
-keywords: []
-bible_ref:
-  - 1Corinthians 3:10-13
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Let every man take heed how he buildeth there-on. For other foundations can no man lay than that is laid, which is Jesus Christ. Now if man build upon this foundation gold, silver, precious stones, wood, hay, stubble; every man’s work shall be made manifest; for the day shall declare it."* (1 Cor. 3:10-13)
 
 The foundation of all expression is consciousness. Try as man will, he cannot find a Cause of manifestation other than his consciousness of being. Man thinks he has found the cause of disease in germs, the cause of war in conflicting political ideologies and greed. All such discoveries of man, catalogued as the essence of wisdom are foolishness in the eyes of God. There is only one power and this power is God(consciousness).It kills; it makes alive; it wounds; it heals; it does all things, good, bad or indifferent.

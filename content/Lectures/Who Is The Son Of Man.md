@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Who Is The Son Of Man
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Son of Man, Dominion, Glory, and Kingdom, Personal Experience of Dominion, Glory and Becoming One with God, Redeeming the Monster, Death and Eternal Life, Awakening as God the Father, The Splitting of the Veil, The Kingdom of Heaven]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 So, the Tonight’s subject is: *"Who is The Son of Man?"* In the 16th chapter of the Book of Matthew, the question is asked of the Disciples: *"‘Who do men say that the Son of Man is?’ and they answered, ‘Some say John the Baptist come again, others say Jeremiah or one of the prophets, others say Elijah.’ And then he said to them, ‘But who do you say that I am?’"* [Matthew 16:13-15]
 
 So here He equates the Son of Man with I AM. It is the one title that is most used concerning Jesus in Scripture. We find it in Ezekiel throughout the entire book, and the 7th chapter of the Book of Daniel, we hear *"one like a son of man, and he came to the Ancient of Days and was presented before him. And to him is given dominion and glory and kingdom."* [Daniel 7:13].

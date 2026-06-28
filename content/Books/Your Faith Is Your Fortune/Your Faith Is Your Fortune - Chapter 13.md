@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: The I’m-Pressions
-keywords: []
-bible_ref:
-  - 1Corinthians 15:49
-  - Isaiah 53:3-7
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"And as we have borne the image of the earthly, we shall also bear the image of the heavenly."* (1Cor. 15:49)
 
 Your consciousness or your I AM is the unlimited potential upon which impressions are made. I’m-pressions are defined states pressed upon your I AM, Your consciousness or your I AM can be likened to a sensitive film. In the virgin state it is potentially unlimited You can impress or record a message of love or a hymn of hate, a wonderful symphony or discordant jazz. It does not matter what the nature of the impression might be; your I AM will, without a murmur, willingly receive and sustain all impressions.

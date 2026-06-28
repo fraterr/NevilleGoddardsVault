@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Shaping Of The Unbegotten
-keywords: []
-bible_ref:
-tags: lecture
-topics: [God's Creative Act as an Act of Mercy, Everything in the World is Forever, The Shaping of God in Man, Imitating God through Creation, The Tree as Symbolic of Man, Tearing of the Veil and Self-Realization]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 We are told in Paul's letters to the Ephesians (5:1): *"Be imitators of God as dear children."* So, we must find out what God did. We are told: *"He called a thing not seen as though it were and the unseen became seen."* (Romans 4:17) The one who had the vision (and I turn to one, that is Blake) and Blake said: *"Many suppose that before the Creation, all was solitude and chaos. This is the most pernicious idea that can enter the mind, as it takes away all sublimity from the Bible and limits all existence to creation and to chaos."* But listen to the next statement: *"Eternity Exists and All things in Eternity, Independent of Creation, which was an act of Mercy."* No scientist today believes that. They think we came out of chaos; they think the whole thing began to evolve out of something that wasn't. And here one with vision tells us: *"Eternity Exists, and all things in eternity, Independent of creation,"* which creative act was a merciful act.
 
 Now what does he mean by it? Well, I have had a vision and I know that Blake is telling the truth, so I am telling the truth based upon my vision. Everything in this world is forever. What you now see, what former people saw, what they are going to see - everything is forever. These are parts of the eternal structure of eternity; this body, this little lectern, everything in the world is but a little part of the eternal structure of eternity. It didn't come into being at all, it always was - all the stars, everything on earth, all part of the eternal structure of eternity.

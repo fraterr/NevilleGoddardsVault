@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Last Days
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Last Days, The Bible's View of History, Sonship in the New Testament, The Son in the Last Days, Recognition of the Ancient of Days, Significance of David and God, Understanding Time and Eternity, The Last Days and Fulfillment of Scripture, The Identity of Jesus Christ and David, The Importance of David in Self-Realization, The Experience of Awakening and Transformation, The Last Days and the Mark of Jesus, The Repetition of Life and the Reality of Other Worlds, The Unfathomable Nature of the New Age, The Relevance of David and the Revelations of God, Experiencing God's Revelation through Sonship, Experiencing God's Revelation through Sonship]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Man thinks history is moving towards an inevitable climax of good, but that climax has already occurred and [is] recorded in the New Testament in the words: *"It is finished."* So when I speak of the last days, I am referring to definite events which will occur in the life of you, an individual, which will take you from this age of sin and death to enter the New Age of eternal life!
 
 The most astute book in the Bible is Ecclesiastes. In it we are told: *"What has been is what will be and what has been done is what will be done; and there is nothing new under the sun. Is there a thing of which it is said, 'See this is new? It has been already in ages before us, but there is no remembrance of former things, nor will there be remembrance of things yet to happen among those who come after."* This statement is difficult for man to grasp, for he is forever thinking of progress. Man sees things today and thinks they are new and wonderful because he cannot remember them. Just a century ago electricity was unknown. Now we have light powered by nuclear energy and think it was created for and by us, but scripture tells us it has always been! The play of life moves in a wheel, closed-circuited by time, and man with his short memory cannot remember other times.
@@ -47,7 +33,7 @@ You are Man, and when you stand in the presence of the Risen Lord you see the An
 
 Nothing comes near the Bible, and it is literally true! Men have misunderstood it and those who are preaching it as secular history are doing far greater harm to the soul than those who damage the body by getting blind drunk during the day. The alcoholic injures himself, while the preacher who does not know what he is saying distorts the mind by misinforming the people concerning the mystery of scripture.
 
-Ecclesiastes is right when he claims there is nothing new under the sun. I know this from experience, for I have gone into other worlds - terrestrial, just like this - where [[Dreams]] of modern man appear as child's toys. These worlds are here now, one within the other, all part of the one grand play. My friend Bob, who has had all of the experiences, found himself in a fantastic world where at the lunch hour people stopped what they were doing and took a little card from their pocket, made notes on it as to what they wanted to eat, and replaced the card. Then he saw heavenly expressions on their faces as they enjoyed the food which no one could see. This is taking place now. It's a real world, yet man here hasn't begun to dream of such a time. He is interested in producing more chickens, more cattle, pigs, and lambs for the bursting population; yet a world exists where a little card in the pocket allows food to be selected and consumed.
+Ecclesiastes is right when he claims there is nothing new under the sun. I know this from experience, for I have gone into other worlds - terrestrial, just like this - where [Dreams](/Dreams) of modern man appear as child's toys. These worlds are here now, one within the other, all part of the one grand play. My friend Bob, who has had all of the experiences, found himself in a fantastic world where at the lunch hour people stopped what they were doing and took a little card from their pocket, made notes on it as to what they wanted to eat, and replaced the card. Then he saw heavenly expressions on their faces as they enjoyed the food which no one could see. This is taking place now. It's a real world, yet man here hasn't begun to dream of such a time. He is interested in producing more chickens, more cattle, pigs, and lambs for the bursting population; yet a world exists where a little card in the pocket allows food to be selected and consumed.
 
 These are worlds that are taking place right now, worlds within worlds, all part of the world of Caesar. But I am speaking of another world. A world where those who are accounted worthy to attain neither marry nor are given in marriage, for they cannot die anymore. [They are] Now sons of God, being sons of the Resurrection in the sense that God's creative power has returned. But you never return until David calls you Father, for only then is the drama at its end.
 

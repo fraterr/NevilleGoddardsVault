@@ -1,23 +1,3 @@
----
-book: Freedom for All
-chapter: The Law of Creation
-keywords: []
-bible_ref:
-  - Genesis 6:10
-  - Genesis 9:22
-  - Genesis 9:25
-  - John 1:14
-  - Romans 4:17
-tags: book
-topics:
-  - The story of Noah is symbolic
-  - Ham discovers the secret of feeling
-  - Consciousness calls the unseen seen
-  - Noah's ark shows the law in action
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 Let us take one of the stories of the Bible and see how the prophets and writers of old revealed the story of creation by this strange Eastern symbolism.
 
 We all know the story of Noah and the Ark; that Noah was chosen to create a new world after the world was destroyed by the flood.

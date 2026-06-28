@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Who Am I?
-keywords: []
-bible_ref:
-  - Matthew 16:15
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"But whom say ye that I AM?"* (Matt. 16:15)
 
 *“I AM the Lord; that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*

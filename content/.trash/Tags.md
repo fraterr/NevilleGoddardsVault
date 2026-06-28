@@ -1,6 +1,3 @@
----
-dg-publish: true
----
 - Revision
 - Assumption
 - Brazen impudence

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Redemption
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The World of Sorrow and Glorious Redemption, Connection with the Plan of Redemption, The Raising of Lazarus and Resurrection in Us, Power and Offense, Unveiling of True Identity, Biblical Scripture as Revealed Truth, Redemption and the Formation of One New Being, Invitation to Believe and Await Revelation]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 We are told in Paul's letter to the Romans that this world is a world of sorrow. Then he gives us the reason and the glorious end it produces, saying: *"I consider the sufferings of this present time not worth comparing to the glory that is to be revealed in us. The creation waits with eager longing for the revealing of the sons of God; for the creation was made subject unto futility - not of its own will, but by the will of him who subjected it in hope; for the creation will be set free from its bondage to decay and obtain the glorious liberty of the children of God."* 
 
 Here we see that the redemption of the universe depends upon the revealing of ourselves, for, buried in this world, we are the sons of God but we do not know it. The world did not subject us; we subjected ourselves. No one took our lives; we laid them down ourselves. We have the power to lay our life down and the power to take it up again. Coming into this world for a purpose, we deliberately became what we are in the hope that one day we would rise and redeem the world by setting it free from its bondage to decay. 
@@ -70,7 +56,7 @@ I saw in today's paper that some ex-nun is teaching the Bible as literature at U
 
 When you read scripture don't discount the simplest thought expressed there, for you are going to experience it. You will know that Lazarus is not someone on the outside. The word means *"God has helped."* No man can redeem himself - only God can do it; therefore God has helped. There are numberless schools teaching self-realization and self-development, promising you self-realization by doing as they say. If you want to believe that you must pay others to teach you, you will lose your money for they cannot deliver the goods. Grace and truth come through Jesus Christ. Let no one fool you into believing that by doing certain things you will be saved. Rather, set your hope fully upon the grace that is coming to you at the revelation of Jesus Christ in you. 
 
-Don't reject this story. Firmly believe it and set your hope that without doing anything on the outside its revelation will come to you. And when it does and you share it with others not everyone will believe you. They may discount your experiences as wonderful [[Dreams]] or hallucinations. Don't expect, just because a man is intelligent, that he will understand when you speak of these depths, because they with their PhD's can't understand your words and will proclaim proudly that they are agnostics. I recently read this statement: *"The man who prunes himself on agnosticism is only confessing that he is an ignoramus. This is the Latin word for 'we do not know,' as is the Greek word 'agnostic.' So he who prunes himself on agnosticism is confessing, in Greek, that he is a Latin ignoramus."* Tell that to someone who claims to be agnostic and chances are he will slap your face, but I tell you: the truth of which I speak is not acquired in universities. It doesn't make sense logically, yet it is the eternally true story. Redemption is the wedding between visible history and salvation history; and when they meet they create a new being in one person, who is Paul, who is Jesus Christ. 
+Don't reject this story. Firmly believe it and set your hope that without doing anything on the outside its revelation will come to you. And when it does and you share it with others not everyone will believe you. They may discount your experiences as wonderful [Dreams](/Dreams) or hallucinations. Don't expect, just because a man is intelligent, that he will understand when you speak of these depths, because they with their PhD's can't understand your words and will proclaim proudly that they are agnostics. I recently read this statement: *"The man who prunes himself on agnosticism is only confessing that he is an ignoramus. This is the Latin word for 'we do not know,' as is the Greek word 'agnostic.' So he who prunes himself on agnosticism is confessing, in Greek, that he is a Latin ignoramus."* Tell that to someone who claims to be agnostic and chances are he will slap your face, but I tell you: the truth of which I speak is not acquired in universities. It doesn't make sense logically, yet it is the eternally true story. Redemption is the wedding between visible history and salvation history; and when they meet they create a new being in one person, who is Paul, who is Jesus Christ. 
 
 Now let us go into the silence.
 
@@ -114,12 +100,12 @@ Now let us go into the silence.
 
 ### Invitation to Believe and Await Revelation
 - One should firmly believe in and set hope on the revelation of Jesus Christ within, without relying on external actions.
-- Others may not believe the experiences shared, labeling them as [[Dreams]] or hallucinations.
+- Others may not believe the experiences shared, labeling them as [Dreams](/Dreams) or hallucinations.
 - The truth is not acquired through academic knowledge but through personal revelation.
 
 velation
 - One should firmly believe in and set hope on the revelation of Jesus Christ within, without relying on external actions.
-- Others may not believe the experiences shared, labeling them as [[Dreams]] or hallucinations.
+- Others may not believe the experiences shared, labeling them as [Dreams](/Dreams) or hallucinations.
 - The truth is not acquired through academic knowledge but through personal revelation.
 
 tion.

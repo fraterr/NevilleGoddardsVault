@@ -1,23 +1,3 @@
----
-book: Freedom for All
-chapter: The Name of God
-keywords: []
-bible_ref:
-  - Mark 9:43
-  - Matthew 7:24-25
-  - John 1:3
-  - Genesis 1:26
-tags: book
-topics:
-  - Consciousness is the one reality
-  - The Bible is written symbolically
-  - Understanding the symbolic name Jehovah
-  - Consciousness continually objectifies itself
-  - The Bible reveals the secret of creation
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 It cannot be stated too often that consciousness is the one and only reality, for this is the truth that sets man free.
 
 This is the foundation upon which the whole structure of biblical literature rests. The stories of the Bible are all mystical revelations written in an Eastern symbolism which reveals to the intuitive the secret of creation and the formula of escape. The Bible is man’s attempt to express in words the cause and manner of creation. Man discovered that his consciousness was the cause or creator of his world, so he proceeded to tell the story of creation in a series of symbolical stories known to us today as the Bible.

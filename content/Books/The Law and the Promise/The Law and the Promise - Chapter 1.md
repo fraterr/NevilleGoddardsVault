@@ -1,34 +1,3 @@
----
-book: The Law and the Promise
-chapter: Imagining Creates Reality
-keywords:
-  - Revision
-  - Dreams
-bible_ref:
-  - 1 Corinthians 3:16
-  - Romans 8:9
-  - Romans 8:11
-  - James 4:5
-  - Ephesians 5:1
-  - 2 Corinthians 13:5-6
-  - Luke 10:22
-  - John 3:7-8
-  - Acts 1:4
-  - Luke 24:44
-  - Genesis 18:14
-tags: book
-topics:
-  - Imagining Creates Reality
-  - World of Imagination
-  - Awaken the Power to Create
-  - Persist in Imagining the Ideal
-  - Enter the Image and Give it Sensory Vividness
-  - Alter the Past By Revising
-  - Proof in Experience
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
 
 The purpose of the first portion of this book is to show, through actual true stories, how imagining creates reality.
@@ -79,7 +48,7 @@ You can't commit yourself to what you do not love, so the secret of self-commiss
 
 Faith is believing what is unbelievable. Commit yourself to the feeling of the wish fulfilled, in faith that this act of self-commission will become a reality. And it must become a reality because imagining creates reality.
 
-Imagination is both conservative and transformative. It is conservative when it builds its world from images supplied by memory and the evidence of the senses. It is creatively transformative when it imagines things as they ought to be, building its world out of the generous [[Dreams]] of fancy.
+Imagination is both conservative and transformative. It is conservative when it builds its world from images supplied by memory and the evidence of the senses. It is creatively transformative when it imagines things as they ought to be, building its world out of the generous [Dreams](/Dreams) of fancy.
 
 In the procession of images, the ones that take precedence — naturally — are those of the senses.
 
@@ -97,15 +66,15 @@ Imagine that you are holding a rose in your hand. Smell it. Do you detect the od
 
 If you do this, all things will conspire to aid your harvesting and upon reflection you will see how subtle were the threads that led to your goal. You could never have devised the means which your imaginal activity employed to fulfill itself.
 
-If you long to escape from your present sense fixation, to transform your present life into a dream of what might well be, you need but imagine that you are already what you want to be and to feel the way you would expect to feel under such circumstances. Like the make-believe of a child who is remaking the world after its own heart, create your world out of pure [[Dreams]] of fancy.
+If you long to escape from your present sense fixation, to transform your present life into a dream of what might well be, you need but imagine that you are already what you want to be and to feel the way you would expect to feel under such circumstances. Like the make-believe of a child who is remaking the world after its own heart, create your world out of pure [Dreams](/Dreams) of fancy.
 
-Mentally enter into your dream; mentally do what you would actually do, were it physically true. You will discover that [[Dreams]] are realized not by the rich, but by the imaginative.
+Mentally enter into your dream; mentally do what you would actually do, were it physically true. You will discover that [Dreams](/Dreams) are realized not by the rich, but by the imaginative.
 
-Nothing stands between you and the fulfillment of your [[Dreams]] but facts — and facts are the creations of imagining. If you change your imagining, you will change the facts.
+Nothing stands between you and the fulfillment of your [Dreams](/Dreams) but facts — and facts are the creations of imagining. If you change your imagining, you will change the facts.
 
 Man and his past are one continuous structure. This structure contains all of the facts which have been conserved and still operate below the threshold of his surface mind. For him it is merely history. For him it seems unalterable — a dead and firmly fixed past. But for itself, it is living — it is part of the living age.
 
-He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [[Revision]] — and [[Revision]] results in repeal.
+He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [Revision](/Revision) — and [Revision](/Revision) results in repeal.
 
 Changing your life means changing the past.
 

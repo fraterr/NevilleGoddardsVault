@@ -1,28 +1,10 @@
----
-book: Prayer, The Art of Believing
-chapter: Good Tidings
-keywords:
-  - Assumption
-  - Prayer
-bible_ref: null
-tags: book
-topics:
-  - Bring Good Tidings
-  - Mental Arguments Produce Conflicts
-  - Happy Conversations
-  - Praying for Others
-  - Blessed are the Merciful
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *“How beautiful upon the mountains are the feet of him that bringeth good tidings, that publisheth peace, that bringeth good tidings of good, that pubisheth salvation.”*
 
 A very effective way to bring good tidings to another is to call before your minds eyes the subjective image of the person you wish to help and have him affirm that which you desired him to do. Mentally hear him tell you he has done it. This awakens within him the vibratory correlate of the state affirmed, which vibration persists until its mission is accomplished. It does not matter what it is you desire to have done, or whom you select to do it. As soon as you subjectively affirm that it is done, results follow.
 
 Failure can result only if you fail to accept the truth of your assertion or if the state affirmed would not be desired by the subject for himself or another. In the latter event, the state would realize itself in you, the operator.
 
-The seemingly harmless habit of *“talking to yourself”* is the most fruitful form of [[Prayer]].
+The seemingly harmless habit of *“talking to yourself”* is the most fruitful form of [Prayer](/Prayer).
 
 A mental argument with the subjective image of another is the surest way to pray for an argument.
 
@@ -34,7 +16,7 @@ Unfortunately, man forgets his subjective arguments, his daily mental conversati
 
 As mental arguments produce conflicts, so happy mental conversations produce corresponding visible states of good tidings. Man creates himself out of his own imagination.
 
-If the state desired is for yourself and you find it difficult to accept as true what your senses deny, call before your mind’s eye the subjective image of a friend and have him mentally affirm that you are already that which you desire to be. This establishes in him, without his conscious consent or knowledge, the subconscious [[Assumption]] that you are that which he mentally affirmed, which [[Assumption]], because it is unconsciously assumed, will persist until it fulfills its mission. Its mission is to awaken in you its vibratory correlate, which vibration when awakened in you realizes itself as an objective fact.
+If the state desired is for yourself and you find it difficult to accept as true what your senses deny, call before your mind’s eye the subjective image of a friend and have him mentally affirm that you are already that which you desire to be. This establishes in him, without his conscious consent or knowledge, the subconscious [Assumption](/Assumption) that you are that which he mentally affirmed, which [Assumption](/Assumption), because it is unconsciously assumed, will persist until it fulfills its mission. Its mission is to awaken in you its vibratory correlate, which vibration when awakened in you realizes itself as an objective fact.
 
 Another very effective way to pray for oneself is to use the formula of Job who found that his own captivity was removed as he prayed for his friends.
 
@@ -64,7 +46,7 @@ The gift transmitted to another is the like the divine measure, pressed down, sh
 
 ### Mental Arguments Produce Conflicts
 
-- Talking to yourself is powerful [[Prayer]], but arguments produce strife
+- Talking to yourself is powerful [Prayer](/Prayer), but arguments produce strife
 - You ask to be offended when you mentally argue with another
 - Man forgets these and can't explain the conflicts in his life
 

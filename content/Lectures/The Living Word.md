@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Living Word
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Discovering the Bible is All About You, The Living Word and the Dead Letter, Experiencing the Bible Within Yourself, Fulfilling Scripture and Unfolding the Word, The Awakening and Erupting of God Within You, The Power of Words, Becoming God and Discovering the Truth, Becoming God and Discovering the Truth]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In all the revelations that await you, there is none so fundamental and so filled with ecstasy, as when you discover that the Bible is all about you. What joy will be yours, when the word of God as recorded in the books of Genesis to Revelation is revealed, and you - an individual - become the living Word and the interpreter of the Bible. The day is coming when you will discover that you are the one who was sent; that you are the Word of God who cannot return empty, but must accomplish that which God purposed, and prosper in the thing for which you were sent. I was thrilled beyond measure when I realized that I was the Word which became flesh. Now clad in a robe dipped in blood, I am (as you are) the Word of God, who was in the beginning with God and was God.
 
 I tell you: you were sent for a divine purpose, which is to fulfill - thereby making alive - the word we call scripture. There is no other purpose for being here. You did not come to be rich, famous, known, strong, or weak, but to fulfill this fantastic play in a living way. The word in the written form is dead. The letter kills, but the Spirit makes alive. You, all Spirit, are the living word which interprets the seeming dead letter. You are destined to discover that the story of Jesus - from his conception by the Holy Spirit to his ascension into heaven - is a sign granted by God to those who will receive it.

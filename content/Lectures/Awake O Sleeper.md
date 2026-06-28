@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Awake O Sleeper
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Bible is Addressed to the Imagination, The Confession of Faith in the Sh'ma, We are the Gods Spoken of in the 82nd Psalm, The Story of Creation and Man's Destiny, The Awakening and Fulfillment of Purpose, The World as a Dream and the Power of Imagination, Death and Resurrection, The Divine Nature of Man, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Bible is addressed to the Imagination - which is spiritual sensation - and only immediately to the understanding, or reason.   
   
 In the fifth chapter of the Book of Ephesians we are told to: *"Awake O sleeper and rise from the dead."* Now, reason could never comprehend these words, but the Bible is calling upon Imagination to awaken, telling Him that he is sleeping, dreaming his world into being. But Imagination, now a rational being, does not know this and therefore cannot believe it.   
@@ -52,7 +38,7 @@ This is how the poem begins: *"Awake! Awake O sleeper in the land of shadows, wa
   
 The being in whom we were contained deliberately fell into this state called death, for the purpose of expansion into glorious life. His story is told in the parable of the grain of wheat, which unless it falls into the earth and dies, it remains alone. But if it dies, it brings forth much. Here is the story of the mystery of life through death. Being all Imagination, if I want an extension of reality, I must contract and die. I must empty myself of the glory I had with the Lord, and enter the one body, which falls.   
   
-The world tells us the fall was a mistake but that is not so, for God planned everything as it has come out and as it will be consummated. One day you will awaken, your mask will come off, and you will be enhanced beyond your wildest [[Dreams]] as you awaken to eternal life. And when we all awaken, we will know each other more intimately than is possible to know one another here. My wife and I often think the same thoughts; but no matter how intimate we may be, we cannot know the intimacy that will be ours when these garments are taken off and we are once more awakened into eternal life.   
+The world tells us the fall was a mistake but that is not so, for God planned everything as it has come out and as it will be consummated. One day you will awaken, your mask will come off, and you will be enhanced beyond your wildest [Dreams](/Dreams) as you awaken to eternal life. And when we all awaken, we will know each other more intimately than is possible to know one another here. My wife and I often think the same thoughts; but no matter how intimate we may be, we cannot know the intimacy that will be ours when these garments are taken off and we are once more awakened into eternal life.   
   
 Everyone will awaken in time, but not by any effort on their part while here. Your awakening was predetermined and it will happen on time, regardless of whether you are shining shoes or employing a million people. Our government undoubtedly has a million people on its payroll, with the president as its head. So in a technical sense he employs a million; yet tonight the one who shines his shoes could awaken, while the president continues to sleep, yet no one can die. That is the glorious part!   
   

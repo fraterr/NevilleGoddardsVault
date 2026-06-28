@@ -1,39 +1,3 @@
----
-book: Awakened Imagination
-chapter: The Coin of Heaven
-keywords:
-  - Assumption
-  - Inner conversations
-  - Meditation
-bible_ref:
-  - Romans 14:5
-  - Daniel 2:28
-  - James 3:2-5
-  - James 1:21
-  - James 3:6
-  - Ephesians 4:22-24
-  - Matthew 18:19
-  - John 1:1
-  - Exodus 3:14
-  - Isaiah 55:11
-  - Deuteronomy 30:14
-  - Deuteronomy 15-19
-  - Philippians 4:8
-  - 2 Samuel 23:2
-tags: book
-topics:
-  - Inner Speech
-  - Inner Speech Reveals States
-  - Matching Inner Speech to Desires
-  - Inner Speech Causes Manifestation
-  - Persuasion Through Inner Speech
-  - Renewing Inner Speech
-  - Your Life Reflects Inner Speech
-  - Gifts to Shape Reality
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"Let every man be fully persuaded in his own mind."* (Romans 14:5)  
 
 PERSUASION IS an inner effort of intense attention.  
@@ -44,7 +8,7 @@ Embrace the without within and become one who hears only that which implies the 
 Your inner speech is perpetually written all around you in happenings.  
 Learn to relate these happenings to your inner speech and you will become self-taught.  
 By inner speech is meant those mental conversations which you carry on with yourself.  
-They may be inaudible when you are awake because of the noise and distractions of the outer world of becoming, but they are quite audible in deep [[Meditation]] and dream.  
+They may be inaudible when you are awake because of the noise and distractions of the outer world of becoming, but they are quite audible in deep [Meditation](/Lectures/Radio Lectures/Meditation) and dream.  
 But whether they be audible or inaudible, you are their author and fashion your world in their likeness.  
 *"There is a God in heaven (and heaven is within you) that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days. Thy dream, and the visions of thy head upon thy bed, are these."* (Daniel 2:28)
 Inner speech from premises of fulfilled desire is the way to create an intelligible world for yourself.  
@@ -54,7 +18,7 @@ Make your inner speech match your fulfilled desire, for your inner speech is man
 The whole manifested world goes to show us what use we have made of the Word – Inner Speech.  
 An uncritical observation of our inner talking will reveal to us the ideas from which we view the world.  
 Inner talking mirrors our imagination, and our imagination mirrors the state with which it is fused. If the state with which we are fused is the cause of the phenomenon of our life, then we are relieved of the burden of wondering what to do, for we have no alternative but to identify ourselves with our aim, and inasmuch as the state with which we are identified mirrors itself in our inner speech, then to change the state with which we are fused, we must first change our inner talking.  
-It is our [[Inner conversations]] which make tomorrow's facts.  
+It is our [Inner conversations](/Inner-conversations) which make tomorrow's facts.  
 *"Put off the former conversation, the old man, which is corrupt... and be renewed in the spirit of your mind... put on the new man, which is created in righteousness."* (Ephesians 4:22-24)
 *"Our minds, like our stomachs, are whetted by change of food."* (Quintillian)
 Stop all of the old mechanical negative inner talking and start a new positive and constructive inner speech from premises of fulfilled desire. Inner talking is the beginning, the sowing of the seeds of future action. To determine the action, you must consciously initiate and control your inner talking.  
@@ -80,7 +44,7 @@ Try to notice what you are saying in yourself at this moment, to what thoughts a
 When imagination matches your inner speech to fulfilled desire, there will then be a straight path in yourself from within out, and the without will instantly reflect the within for you, and you will know reality is only actualized inner talking.  
 *"Receive with meekness the inborn Word which is able to save your souls."* (James 1:21)
 Every stage of man's progress is made by the conscious exercise of his imagination matching his inner speech to his fulfilled desire.  
-Because man does not perfectly match them, the results are uncertain, while they might be perfectly certain. Persistent [[Assumption]] of the wish fulfilled is the means of fulfilling the intention.  
+Because man does not perfectly match them, the results are uncertain, while they might be perfectly certain. Persistent [Assumption](/Assumption) of the wish fulfilled is the means of fulfilling the intention.  
 As we control our inner talking, matching it to our fulfilled desires, we can lay aside all other processes. Then we simply act by clear imagination and intention.  
 We imagine the wish fulfilled and carry on mental conversations from that premise.  
 Through controlled inner talking from premises of fulfilled desire, seeming miracles are performed.  
@@ -164,7 +128,7 @@ But I know from experience,
 
 ### Persuasion Through Inner Speech
 
-- Control outcomes by being fully persuaded in your [[Inner conversations]]
+- Control outcomes by being fully persuaded in your [Inner conversations](/Inner-conversations)
 - Listen attentively within to what you want to hear
 - Embrace the wish fulfilled by inner speech matching the outer
 

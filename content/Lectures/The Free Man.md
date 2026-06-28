@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Free Man
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Paul's Mission and Revelation, The Image of God in You, Becoming God, Enduring Trials, Paul's Transformation and Revelation, Awakening as God the Father, Allegorical Nature of Scripture, God's Dream and the Unfolding of Himself, Redemption of God's Sons]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Paul was the first man in history to be set free. His letters, forming a quarter of the New Testament, were written approximately thirty years prior to the four gospels, Matthew, Mark, Luke, and John. His 1st letter, chronologically speaking, was to the Galatians and began in this manner: *"Paul, an apostle - not from men nor through man, but through Jesus Christ and God the Father who raised him from the dead."* That statement, if understood, tells the entire story of salvation.
 
 An apostle is one who is sent on a mission. Paul's mission was to tell the story of salvation from experience. In this same first chapter he makes this confession: *"I will have you know, brethren, that I did not receive this from man, it came through a revelation of Jesus Christ."*
@@ -60,7 +46,7 @@ I thought it happened two thousand years ago and was not related to this age, ye
 
 It is the Father's memory which returns when he awakens from the dream of this world. God is dreaming here, caught up in a reality that is his own creation, be it good, bad, or indifferent. *"Arouse thyself, why sleepest thou, O Lord! Awake! Do not cast us off forever."* God is the sole author of your world and all within it, although what is happening may frighten you, as it appears to be outside and beyond your control; for you are the dreamer, dreaming your life into being. You are God, conjuring everything in your world, and everything has a symbolic significance for you if you could interpret it.
 
-The story of the Bible begins as a vision of Isaiah, Obadiah, and Ezekiel. These are all visions, spelling out how God became Man that Man may become God. Everything is the unfolding of God, and he is unfolding in you, as you. You are not some little thing on the outside that is cast away, but God himself, dreaming both horrible and lovely [[Dreams]] while clothed in your bodies of flesh. But one day you will awaken from the dream to find yourself clothed in the human form divine, the immortal form of love, which is God himself.
+The story of the Bible begins as a vision of Isaiah, Obadiah, and Ezekiel. These are all visions, spelling out how God became Man that Man may become God. Everything is the unfolding of God, and he is unfolding in you, as you. You are not some little thing on the outside that is cast away, but God himself, dreaming both horrible and lovely [Dreams](/Dreams) while clothed in your bodies of flesh. But one day you will awaken from the dream to find yourself clothed in the human form divine, the immortal form of love, which is God himself.
 
 Yes, you are human and God is Man. Let no one tell you he is not. *"Thou art a Man, God is no more. Thine own Humanity learn to adore."* Humanity is the cross God wears. There never was a cross of wood made from a tree, for the tree is in Man. Let our scientists search through nature to find that tree, for their search will be in vain, as the tree where God is crucified is in the human brain. 
 

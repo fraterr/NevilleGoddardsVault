@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: If Any Two Agree
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Power of Agreement, The Principle of Imagination, The Oneness of All, The Promise of Scripture, Responsibility and Love, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Concerning the Law, I can only acquaint you with the Law and leave you to your choice and its risk; but we have Scripture for it -- to tell it, regardless of what they do with the Law. In the 18th chapter of the Book of Matthew you read these words: *"If any two of you agree on earth about any request that you must make, that request will be granted by my Heavenly Father."* [Matthew 18:19]
 
 Find two who agree, and that request will be granted. Well, can you conceive of something greater? If two agree on earth concerning any request -- it doesn’t have to be good, it doesn’t have to be this, that or the other, but any request -- *"that you must make, that request will be granted by my Heavenly Father."*

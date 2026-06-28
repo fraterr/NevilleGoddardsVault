@@ -1,28 +1,14 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: There Is No Fiction
-keywords: [Assumption, Mental diet, Prayer, Dreams]
-bible_ref:
-tags: lecture
-topics: [Fiction vs Reality, The Power of Imagination, Everything is Imagined, The Power of Belief, The Nature of Dreams, Imagination Creates Reality, Fiction and Fact, Living in the Present, The Power of Thoughts, The Creative Power of Imagination, The Transformation of Reality, The Unveiling of Christ, The Interpretation of Dreams, Faith and Imagination, Faith and Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Fiction is defined as an imaginary construction which is unreal - as opposed to truth, or reality. But what is real and what is imaginary when, in a spiritual sense, all existing things are imaginary?
 
 Mark tells the parable of the fig tree, which - having been cursed - was found withered to its roots. Calling attention to this fact, awakened imagination said: *"Have faith in God. Truly I say to you, whoever says to this mountain, 'Be taken up and cast into the sea,' and does not doubt in his heart that what he has said will come to pass, it will be done for him. Therefore I tell you, whatever you desire, when you pray believe you have received it and you will."* Mark 11.
 
-Here is an imaginary act which has no support in fact. The tree was not withered at the time it was cursed, but when they returned the next day the imaginal act had been executed. So you see: this law is not limited to being constructive only. It can be used for good, bad, or indifferent purposes; for there are no limitations placed on the possibilities of [[Prayer]].
+Here is an imaginary act which has no support in fact. The tree was not withered at the time it was cursed, but when they returned the next day the imaginal act had been executed. So you see: this law is not limited to being constructive only. It can be used for good, bad, or indifferent purposes; for there are no limitations placed on the possibilities of [Prayer](/Prayer).
 
 Now when you pray you must immerse yourself in the feeling of the wish fulfilled, for the word *"pray"* means, *"Motion towards; accession to; at or in the vicinity of."* Point yourself towards the wish fulfilled and accept that invisible state as reality. Then go your way knowing the desire is now yours. You did it and you will not be surprised when it comes to pass.
 
-When you first practice this technique you will be surprised when it happens; but when you learn how to completely accept the state assumed, you will know you do not have to do a thing to make it come to pass, as the [[Assumption]] contains its own plan of fulfillment. You will know that this world is imaginal and that an [[Assumption]] - with no external object to support its truth - will harden into fact when its truth is persisted in.
+When you first practice this technique you will be surprised when it happens; but when you learn how to completely accept the state assumed, you will know you do not have to do a thing to make it come to pass, as the [Assumption](/Assumption) contains its own plan of fulfillment. You will know that this world is imaginal and that an [Assumption](/Assumption) - with no external object to support its truth - will harden into fact when its truth is persisted in.
 
-If an imaginal act produces an external fact to support it, then is not this world essentially imagined? If you dare to assume what your reason and senses deny and walk faithful to your [[Assumption]], believing in its reality - and its corresponding effect is produced, can this seemingly solid, real world be anything other than imaginal? Everything is imagined, for you are God - all imagination! God exists in you and you in Him. The world is all that you have imagined it to be, even though you cannot remember when or how you brought it into being.
+If an imaginal act produces an external fact to support it, then is not this world essentially imagined? If you dare to assume what your reason and senses deny and walk faithful to your [Assumption](/Assumption), believing in its reality - and its corresponding effect is produced, can this seemingly solid, real world be anything other than imaginal? Everything is imagined, for you are God - all imagination! God exists in you and you in Him. The world is all that you have imagined it to be, even though you cannot remember when or how you brought it into being.
 
 You cannot feed the mind violence and not expect violence in the world. Although the networks will deny this, a friend at NBC-TV studio told me that when it was official that Kennedy was dead, he received an order from New York that for the next four days no violent films were to be shown. He said pandemonium took place in the studio, as they went through their files trying to find enough non-violent film to cover four days! Lucky for them, most of the time will be taken up with the giant coverage of the funeral in New York City.
 
@@ -32,11 +18,11 @@ Do not allow anyone to act as an intermediary between you and your God, for He i
 
 God gave me the gift of birth and Fatherhood. Without the gift of his spirit, I could not understand the gifts which have followed. How could I ever interpret the gift of belief or be awakened from my long sleep, if He who interprets all things had not first become me?
 
-When Pharaoh's butler and baker had [[Dreams]], they spoke to a slave, saying: *"We had a dream."* Joseph then replied: *"Does not the interpretation belong to God? Tell me the dream."* Now I ask you, is Joseph not claiming here that he is God?
+When Pharaoh's butler and baker had [Dreams](/Dreams), they spoke to a slave, saying: *"We had a dream."* Joseph then replied: *"Does not the interpretation belong to God? Tell me the dream."* Now I ask you, is Joseph not claiming here that he is God?
 
 The Book of Genesis begins: *"In the beginning God"* and ends *"In a coffin in Egypt."* Who is in the coffin? Joseph! So in the beginning God, as Joseph, is placed in a coffin in Egypt. 
 
-Now, having said that interpretation belongs to God, Joseph then interpreted their [[Dreams]]. Two years later, he interpreted Pharaoh's dream and it came to pass, just as he said it would. If this story is true, is not the spirit of God upon man? Yes! Because God actually became as you are, that you may be as He is. Accept this literally, for it is true. 
+Now, having said that interpretation belongs to God, Joseph then interpreted their [Dreams](/Dreams). Two years later, he interpreted Pharaoh's dream and it came to pass, just as he said it would. If this story is true, is not the spirit of God upon man? Yes! Because God actually became as you are, that you may be as He is. Accept this literally, for it is true. 
 
 Imagination truly creates out of nothing! Thoughts call forth a thing that is not seen, as though it were happening. This is accomplished by an imaginal concept touched by feeling.
 
@@ -50,7 +36,7 @@ Now, in the eyes of millions Stalin was considered a very wise man, yet the Bibl
 
 The Bible does not imply that the uneducated man is the fool, only he who says in his heart there is no God. Stalin's world collapsed as the doors opened and he departed this little sphere. His world was real until that moment, and yet it was a world of fiction.
 
-Everything here will collapse, but because this is a fictitious world you can have anything you want. Would you like to be known? To fulfill a great ambition? To be famous in the eyes of others? You can have them all, if you are willing to assume they are already yours. And, in spite of the evidence of your senses and the contradiction of your reason, if you walk and sleep in your [[Assumption]] it will harden into fact. And after you have experienced them you will depart, leaving them all behind.
+Everything here will collapse, but because this is a fictitious world you can have anything you want. Would you like to be known? To fulfill a great ambition? To be famous in the eyes of others? You can have them all, if you are willing to assume they are already yours. And, in spite of the evidence of your senses and the contradiction of your reason, if you walk and sleep in your [Assumption](/Assumption) it will harden into fact. And after you have experienced them you will depart, leaving them all behind.
 
 Your desire is brought into being by an imaginal act. It is sustained by an imaginal act, and when that imaginal act is withdrawn (or modified) your desire - fulfilled - will collapse and vanish. So I maintain there is no fiction!
 
@@ -74,7 +60,7 @@ What do you love the most - your husband, wife, or child? It could even be some 
 
 Since we are living in a world of Caesar live it to the fullest, but do not be in love with it. Do not be moved by its emotions, as one million people were today as they watched a closed box, not knowing for sure a body was in it.
 
-Now, the Bible teaches that permissible lies are allowed. An [[Assumption]] not based upon fact is a lie, is it not? We are told to emulate the story of the unjust steward who - when told he might lose his job - asked the one who owed one hundred measures of oil to give him fifty, another eighty, and still another sixty. And when he returned to his master the steward was commended for his wisdom.
+Now, the Bible teaches that permissible lies are allowed. An [Assumption](/Assumption) not based upon fact is a lie, is it not? We are told to emulate the story of the unjust steward who - when told he might lose his job - asked the one who owed one hundred measures of oil to give him fifty, another eighty, and still another sixty. And when he returned to his master the steward was commended for his wisdom.
 
 This steward falsified the record, the facts of life which memory claimed to be correct. Perhaps memory says you only have ten dollars in the bank, the rent is due, and there are no prospects of more money on its way. Or that your friend is ill or out of a job. These are facts memory has recorded. You can falsify that record by a permissible lie, by seeing a thousand dollars in the bank and the rent as paid. By seeing one who is ill - as well, or one who is unemployed - as gainfully employed.
 
@@ -94,11 +80,11 @@ We are told: *"Eye has not seen, ear has not heard and it has not entered into t
 
 As you awaken, one after the other, no two will have a duplicate experience. The symbolism will be there however, as well as the time element. It is always five months between the vision of the birth and the revelation of God's son.
 
-In the story recorded in the 40th chapter of the Book of Genesis, Joseph gave different interpretations to the number three in both [[Dreams]]. The baker had three baskets on his head, with birds eating the bread contained therein. Joseph interpreted the dream by saying: *"In three days you will hang from a tree and the birds will eat upon your flesh,"* and it came to pass as he interpreted it.
+In the story recorded in the 40th chapter of the Book of Genesis, Joseph gave different interpretations to the number three in both [Dreams](/Dreams). The baker had three baskets on his head, with birds eating the bread contained therein. Joseph interpreted the dream by saying: *"In three days you will hang from a tree and the birds will eat upon your flesh,"* and it came to pass as he interpreted it.
 
 The butler saw a vine with three branches which budded, blossomed, and ripened into grapes. He put the grapes into a cup, crushed them, and gave the cup to Pharaoh. The most important thing here is the grape vessel. Anyone can poison wine, so the cup bearer must be a trusted servant. It is he who drinks the wine first, and if poisoned, he dies and not the master.
 
-Joseph interpreted the dream saying that the butler (the cup bearer) would be restored in three days, and he was. Now if it takes the spirit of God to interpret all [[Dreams]] and all [[Dreams]] come from God, is not he who interprets the dream the awakened man called Jesus Christ?
+Joseph interpreted the dream saying that the butler (the cup bearer) would be restored in three days, and he was. Now if it takes the spirit of God to interpret all [Dreams](/Dreams) and all [Dreams](/Dreams) come from God, is not he who interprets the dream the awakened man called Jesus Christ?
 
 Remember, regardless of what happened today or what the future looks like, there is no fiction. Imagination creates its own reality. You have the power to change your present and your future by writing a glorious tale about yourself and those you love. Make it a first-person, present tense experience or as something you have already accomplished, and then live in that state, for imaging does create reality.
 
@@ -116,7 +102,7 @@ But if they were separated ten days or two weeks before you wanted them for dinn
 
 If mother's command was not remembered until perhaps four days before the meal everyone knew it, because when the birds were plucked and the heat began to express the birds, the entire neighborhood knew the Goddard's were having fish for dinner, and no one could eat them. But if their diet was changed from fish to corn - and only corn for that interval of time - we had delicious ducks for dinner which tasted like ducks!
 
-Now, although we are not ducks we do feed on ideas. Feed your mind a certain idea for one week and you will change its structure. Continue for two weeks and you will be well fed on lovely thoughts. You see, this is a fictitious world and you are its author. Nothing is impossible! It's all fiction anyway, so live nobly and dream beautiful [[Dreams]]; for you are all imagination, and your human imagination is the Lord God, Jesus - the Christ.
+Now, although we are not ducks we do feed on ideas. Feed your mind a certain idea for one week and you will change its structure. Continue for two weeks and you will be well fed on lovely thoughts. You see, this is a fictitious world and you are its author. Nothing is impossible! It's all fiction anyway, so live nobly and dream beautiful [Dreams](/Dreams); for you are all imagination, and your human imagination is the Lord God, Jesus - the Christ.
 
 Now let us go into the silence.
 
@@ -130,8 +116,8 @@ Now let us go into the silence.
 ### The Power of Imagination
 - The parable of the withered fig tree illustrates the power of imagination and belief.
 - Imagination can be used constructively or destructively, depending on one's desires and prayers.
-- [[Prayer]] should involve immersing oneself in the feeling of the wish fulfilled and accepting it as reality.
-- Persistence in the [[Assumption]] of the desired state will eventually manifest it into reality.
+- [Prayer](/Prayer) should involve immersing oneself in the feeling of the wish fulfilled and accepting it as reality.
+- Persistence in the [Assumption](/Assumption) of the desired state will eventually manifest it into reality.
 
 ### Everything is Imagined
 - The world is essentially imagined, and assumptions can harden into facts.
@@ -143,9 +129,9 @@ Now let us go into the silence.
 - Believing in the presence of God within oneself eliminates the need for intermediaries.
 - God gave consciousness to humans to understand the gifts and interpret life experiences.
 
-### The Nature of [[Dreams]]
-- [[Dreams]] can hold personal or collective significance and may symbolize various aspects of life.
-- [[Dreams]] hold potential lessons and interpretations that can be unlocked by God's spirit.
+### The Nature of [Dreams](/Dreams)
+- [Dreams](/Dreams) can hold personal or collective significance and may symbolize various aspects of life.
+- [Dreams](/Dreams) hold potential lessons and interpretations that can be unlocked by God's spirit.
 
 ### Imagination Creates Reality
 - Imagination has the power to bring thoughts into reality.
@@ -164,7 +150,7 @@ Now let us go into the silence.
 
 ### The Power of Thoughts
 - Thoughts have the potential to create reality, shaping one's experiences.
-- One's [[Mental diet]] influences the thoughts and results in corresponding actions and outcomes.
+- One's [Mental diet](/Mental-diet) influences the thoughts and results in corresponding actions and outcomes.
 - Changing the diet of thoughts can lead to a fundamental change in one's reality.
 
 ### The Creative Power of Imagination
@@ -182,20 +168,20 @@ Now let us go into the silence.
 - One gains complete control over their power and realizes that everything is a thought.
 - The unveiling of Christ from within brings a new dimension of existence and spiritual understanding.
 
-### The Interpretation of [[Dreams]]
-- [[Dreams]] hold various symbols and time elements with personal interpretations.
-- The spirit of God is needed to interpret [[Dreams]], revealing the awakened man called Jesus Christ.
-- The interpretations of [[Dreams]] reveal a deeper understanding of one's spiritual journey.
+### The Interpretation of [Dreams](/Dreams)
+- [Dreams](/Dreams) hold various symbols and time elements with personal interpretations.
+- The spirit of God is needed to interpret [Dreams](/Dreams), revealing the awakened man called Jesus Christ.
+- The interpretations of [Dreams](/Dreams) reveal a deeper understanding of one's spiritual journey.
 
 ### Faith and Imagination
 - Having faith in God and the power of imagination is crucial to manifesting desires.
 - Imagination creates its own reality, and ordinary life experiences are based on fiction.
-- Living nobly and dreaming beautiful [[Dreams]] aligns with the creative power of imagination.rpretations of [[Dreams]] reveal a deeper understanding of one's spiritual journey.
+- Living nobly and dreaming beautiful [Dreams](/Dreams) aligns with the creative power of imagination.rpretations of [Dreams](/Dreams) reveal a deeper understanding of one's spiritual journey.
 
 ### Faith and Imagination
 - Having faith in God and the power of imagination is crucial to manifesting desires.
 - Imagination creates its own reality, and ordinary life experiences are based on fiction.
-- Living nobly and dreaming beautiful [[Dreams]] aligns with the creative power of imagination.nation.
+- Living nobly and dreaming beautiful [Dreams](/Dreams) aligns with the creative power of imagination.nation.
 
 
 #Assumption #Mental diet #Prayer #Dreams

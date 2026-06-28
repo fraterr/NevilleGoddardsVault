@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: His Name
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Mystery of Scripture, The Nature of God Manifested in Individuals, The Cosmic Principle of Christ, Paul's Independence from Intermediaries, One with the Risen Christ, God's Plan and Human Desires, Understanding Scripture and Awakening as God, Regeneration and Unity]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 As Paul said to Timothy: *"Great indeed, we confess, is the mystery of our religion."* Scripture is not secular history, but a mystery which is most important that we understand! 
 
 Speaking to his disciples, Jesus said: *"In that day you will know that I am in the Father, and you in me and I in you."* (John 14) The phrase *"in that day"* is an eschatological term meaning, *"at the end of the journey."* In other words, when this age of Caesar comes to its end, you will experience the truth of scripture, and - understanding - you will say: *"I am in the Father and you are in me and I am in you."* 

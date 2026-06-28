@@ -1,39 +1,3 @@
----
-book: Awakened Imagination
-chapter: Creation is Finished
-keywords:
-  - Assumption
-  - Mental diet
-bible_ref:
-  - Ecclesiastes 3:15
-  - John 4:38
-  - Matthew 5:8
-  - Matthew 7:8; Luke 11:10
-  - Matthew 5:14
-  - Matthew 4:4
-  - Exodus 6:4-8
-  - Romans 8:20
-  - Romans 8:21
-  - Ephesians 3:8-9
-  - Ephesians 5:13
-  - 1Samuel 8:18-19
-tags: book
-topics:
-  - States Already Exist
-  - The Momentous Realization
-  - The Inner Countryside
-  - Creation is Complete
-  - States of Consciousness
-  - You Are the Mover
-  - Purpose of Flesh
-  - Choose States Wisely
-  - Live From Ideals
-  - Practice Makes Real
-  - Bridge Thinking Of and From
-banner: Handles/img/banner awakened imagination.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"I am the beginning and the end, there is nothing to come that has not been, and is."* (Ecclesiastes 3:15)  
 BLAKE SAW all possible human situations as *"already-made"* states. He saw every aspect, every plot and drama as already worked out as *"mere possibilities"* as long as we are not in them, but as overpowering realities when we are in them.  
 He described these states as *"Sculptures of Los's Halls"*.  
@@ -82,14 +46,14 @@ Man lives not by bread alone, but by every word that proceeds out of the mouth o
 and *"the mouth of God"* is the mind of man.  
 Become a drinker and an eater of the ideals you wish to realize. Have a set, definite aim or your mind will wander, and wandering it eats every negative suggestion.  
 If you live right mentally, everything else will be right.  
-By a change of [[Mental diet]], you can alter the course of observed events.  
-But unless there is a change of [[Mental diet]], your personal history remains the same.  
+By a change of [Mental diet](/Mental-diet), you can alter the course of observed events.  
+But unless there is a change of [Mental diet](/Mental-diet), your personal history remains the same.  
 You illuminate or darken your life by the ideas to which you consent.  
-Nothing is more important to you than the ideas on which you feed. And you feed on the ideas from which you think. If you find the world unchanged, it is a sure sign that you are wanting in fidelity to the new [[Mental diet]], which you neglect in order to condemn your environment. You are in need of a new and sustained attitude.  
+Nothing is more important to you than the ideas on which you feed. And you feed on the ideas from which you think. If you find the world unchanged, it is a sure sign that you are wanting in fidelity to the new [Mental diet](/Mental-diet), which you neglect in order to condemn your environment. You are in need of a new and sustained attitude.  
 You can be anything you please if you will make the conception habitual, for any idea which excludes all others from the field of attention discharges in action.  
 The ideas and moods to which you constantly return define the state with which you are fused.  
 Therefore train yourself to occupy more frequently the feeling of your wish fulfilled. This is creative magic. It is the way to work toward fusion with the desired state.  
-If you would assume the feeling of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your [[Assumption]] for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
+If you would assume the feeling of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your [Assumption](/Assumption) for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
 After you have assumed the feeling of the wish fulfilled, do not close the experience as you would a book, but carry it around like a fragrant odor.  
 Instead of being completely forgotten, let it remain in the atmosphere communicating its influence automatically to your actions and reactions. A mood, often repeated, gains a momentum that is hard to break or check. So be careful of the feelings you entertain. Habitual moods reveal the state with which you are fused.  
 It is always possible to pass from thinking of the end you desire to realize, to thinking from the end.  
@@ -153,7 +117,7 @@ But the crucial matter is thinking from the end, for thinking from means unifica
 ### Live From Ideals
 
 - Do not just think OF ideals, think FROM them to realize them
-- Alter [[Mental diet]] to change conditions and history
+- Alter [Mental diet](/Mental-diet) to change conditions and history
 - Make ideas habitual to become one with desired states
 
 ### Practice Makes Real

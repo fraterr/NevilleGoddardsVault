@@ -1,39 +1,3 @@
----
-book: Seedtime and Harvest
-chapter: The Water and the Blood
-keywords:
-  - null
-bible_ref:
-  - John 3:3
-  - John 19:34
-  - John 5:6
-  - Genesis 29:2-3
-  - Exodus 15:5
-  - Ezekiel 34:31
-  - Romans 8:17
-  - John 2:9
-  - Matthew 1:21
-  - Jeremiah 18:8-10
-  - Hebrews 9:22
-  - Proverbs 20:27
-  - Job 29:3
-  - John 4:19
-  - Ephesians 1:7
-tags: book
-topics:
-  - Born Again of Water and Blood
-  - Stone vs Water
-  - Water into Wine
-  - Water and Blood
-  - Conscious Imagination Appropriates States
-  - Demand Creates Supply
-  - She Shed Her Blood
-  - Experience Redemption to Know It
-  - Redemption Through His Blood
-banner: Handles/img/banner seedtime and harvest.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *“…Except a man be born again he cannot see the kingdom of God.”*
 (John 3:3)
 

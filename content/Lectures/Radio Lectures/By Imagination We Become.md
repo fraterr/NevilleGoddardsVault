@@ -1,24 +1,3 @@
----
-book:
-chapter: By Imagination We Become
-keywords:
-  - Assumption
-bible_ref:
-tags: lecture
-topics:
-  - Imagination Shapes Reality
-  - Using Imagination
-  - Daily Exercise
-  - No Limits
-  - Creative Force
-  - Becoming Our Ideal
-  - Sowing Destiny
-  - Affirming Our Nature
-banner: Handles/img/banner radio lectures.png
-sticker: emoji//1f4e3
-radio_lecture: yes
-dg-publish: true
----
 How many times have we heard someone say, *"Oh, it’s only his imagination?"* Only his imagination - man’s imagination is the man himself. No man has too little imagination, but few men have disciplined their imagination. Imagination is itself indestructible. Therein lies the horror of its misuse. Daily, we pass some stranger on the street and observe him muttering to himself, carrying on an imaginary argument with one not present. He is arguing with vehemence, with fear or with hatred, not realizing that he is setting in motion, by his imagination, an unpleasant event which he will presently encounter.
 
 The world, as imagination sees it, is the real world. Not facts, but figments of the imagination, shape our daily lives. It is the exact and literal minded who live in a fictitious world. Only imagination can restore the Eden from which experience has driven us out. Imagination is the sense by which we perceived the above, the power by which we resolve vision into being. Every stage of man’s progress is made by the exercise of the imagination. It is only because men do not perfectly imagine and believe that their results are sometimes uncertain when they might always be perfectly certain. Determined imagination is the beginning of all successful operation. The imagination, alone, is the means of fulfilling the intention. The man who, at will, can call up whatever image he pleases is, by virtue of the power of his imagination, least of all subject to caprice. The solitary or captive can, by intensity of imagination and feeling, affect myriads so that he can act through many men and speak through many voices. *"We should never be certain,"* wrote William Butler Yeats in his IDEAS OF GOOD AND EVIL, *"that it was not some woman treading in the wine-press who began that subtle change in men’s minds, or that the passion did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."*
@@ -43,7 +22,7 @@ Sow a habit, you reap a character;
 
 Sow a character, you reap your destiny.
 
-By imagination, we are all reaping our destinies, whether they be good, bad, or indifferent. Imagination has full power of objective realization and every stage of man’s progress or regression is made by the exercise of imagination. I believe with William Blake, *"What seems to be, is, to those to whom it seems to be, and is productive of the most dreadful consequences to those to whom it seems to be, even of torments, despair, and eternal death. By imagination and desire we become what we desire to be. Let us affirm to ourselves that we are what we imagine. If we persist in the [[Assumption]] that we are what we wish to be, we will become transformed into that which we have imagined ourselves to be. We were born by a natural miracle of love and for a brief space of time our needs were all another’s care. In that simple truth lies the secret of life. Except by love, we cannot truly live at all. Our parents in their separate individualities have no power to transmit life. So, back we come to the basic truth that life is the offspring of love. Therefore, no love, no life. Thus, it is rational to say that, "*God is Love."
+By imagination, we are all reaping our destinies, whether they be good, bad, or indifferent. Imagination has full power of objective realization and every stage of man’s progress or regression is made by the exercise of imagination. I believe with William Blake, *"What seems to be, is, to those to whom it seems to be, and is productive of the most dreadful consequences to those to whom it seems to be, even of torments, despair, and eternal death. By imagination and desire we become what we desire to be. Let us affirm to ourselves that we are what we imagine. If we persist in the [Assumption](/Assumption) that we are what we wish to be, we will become transformed into that which we have imagined ourselves to be. We were born by a natural miracle of love and for a brief space of time our needs were all another’s care. In that simple truth lies the secret of life. Except by love, we cannot truly live at all. Our parents in their separate individualities have no power to transmit life. So, back we come to the basic truth that life is the offspring of love. Therefore, no love, no life. Thus, it is rational to say that, "*God is Love."
 
 Love is our birthright. Love is the fundamental necessity of our life. *"Do not go seeking for that which you are. Those who go seeking for love only make manifest their own lovelessness and the loveless never find love. Only the loving find love and they never have to seek for it."*
 

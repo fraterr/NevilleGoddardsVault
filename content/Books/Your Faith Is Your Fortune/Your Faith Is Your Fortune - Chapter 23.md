@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Be Ears That Hear
-keywords: []
-bible_ref:
-  - Luke 9:44
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Let these sayings sink down into your ears; for the son of man shall be delivered into the hands of men"* (Luke 9:44)
 
 *“Let these sayings sink down into your ears, for the Son of Man shall be delivered into the hands of men.”* Be not as those who have eyes that see not and ears that hear not. Let these revelations sink deep into your ears, for after the Son (idea) is conceived man with his false values (reason) will attempt to explain the why and wherefore of the Son’s expression, and in so doing will rend him to pieces.

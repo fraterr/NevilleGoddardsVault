@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: All Things Exist
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [The World of Imagination and the World of Generation, The World of Caesar and the Importance of Revision, Examples of Revision and Imagination in Practice, Dreams as Revelations, Faith and the Appropriate Use of Imagination, The Concept of Repentance and Going All Out, The Power of Imagination and Inner Vision, Exercising Divine Right and Counting on the True Self, The Birth of Christ and the Transformation of History, Practice and Experience, Practice and Experience]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"All that you behold, though it appears without, it is within, in your imagination of which this world of mortality is but a shadow."*   
 (William Blake)  
   
@@ -40,7 +26,7 @@ Now a lady wrote, saying: *"I found myself looking at an enormous building at th
   
 *"The scene changed, and I am viewing paper decorations hanging above a door. I reached up to pull them down, when an enormous wind caught me and I felt as though I was borne in the arms of a very strong man and awoke saying, ‘I love thee, O Lord.’"*   
   
-This marvelous series of [[Dreams]] revealed much. This lady admitted crossing the water while walking on a solid foundation. Now the Bible is a parable from beginning to end, and water is the symbol of its psychological truth. The literal interpretation of a parable is solid as a rock. When the meaning behind the parable is discovered, the stone is rolled away and the water found. However if a little solid reality in this world is desired while playing with this psychological truth, it becomes stepping-stones below the water. Loving what is heard is not enough. One must be willing to go all out and walk on the water. Instead, feeling she must be practical as she was living in a world of reality where rent must be paid, food bought, and clothes purchased, she is unable to walk by faith at the present time.  
+This marvelous series of [Dreams](/Dreams) revealed much. This lady admitted crossing the water while walking on a solid foundation. Now the Bible is a parable from beginning to end, and water is the symbol of its psychological truth. The literal interpretation of a parable is solid as a rock. When the meaning behind the parable is discovered, the stone is rolled away and the water found. However if a little solid reality in this world is desired while playing with this psychological truth, it becomes stepping-stones below the water. Loving what is heard is not enough. One must be willing to go all out and walk on the water. Instead, feeling she must be practical as she was living in a world of reality where rent must be paid, food bought, and clothes purchased, she is unable to walk by faith at the present time.  
   
 Let me give you a definition that came to me concerning the word faith. Faith is the subjective appropriation of an objective hope. When my friend revised the first telephone conversation, he subjectively appropriated what he hoped would objectify for his friend. He remained faithful to his imaginal act, and confirmation came.   
   
@@ -66,7 +52,7 @@ Start now to practice what the Bible calls repentance, which is a radical change
 Go all out and walk on the water! Don’t be like Peter, whose understanding told him imagination didn’t make sense (symbolized as his feet), or you will drown in the sea of illusion. Imagination, speaking to his faith, said: *"Peter, come,"* and as Peter walked, he looked down to see how this was possible, and sank. My friend, who did not look down, walked on the water in the direction of his wish fulfilled - and it was.   
 All of the Bible stories will be fulfilled literally on different levels of your being. You will experience them all, because you are Jesus Christ. Blake tells us so beautifully: *"Desires and perceptions of Man, untaught by anything but organs of sense must be limited to objects of sense; therefore, God becomes Man that Man may become God."*  
   
-If you only knew what your organs of sense reveal, you would never perceive anything beyond them. It would be horrible to remain an organ of sense and never transcend it. But God brought creation with him when he became humanity, and you are here to awaken to that fact! If God did not become you, you would be an animated body, limited to all that your sense organs would reveal. But having become you, God is awakening and will give you desires and their fulfillments, far beyond the wildest [[Dreams]] of those who are still limited to the organs of sense.   
+If you only knew what your organs of sense reveal, you would never perceive anything beyond them. It would be horrible to remain an organ of sense and never transcend it. But God brought creation with him when he became humanity, and you are here to awaken to that fact! If God did not become you, you would be an animated body, limited to all that your sense organs would reveal. But having become you, God is awakening and will give you desires and their fulfillments, far beyond the wildest [Dreams](/Dreams) of those who are still limited to the organs of sense.   
   
 When Blake said: *"All that you behold, though it appears without, it is within you,"* he meant it. Being an incurrent eyewitness like my friend, Blake saw God’s mystery of salvation clearly.   
   
@@ -89,22 +75,22 @@ Now let us go into the silence.
 - Permanent realities exist in the eternal world of imagination, with their reflections in the natural world.
 - The seed of contemplative thought can resurrect and externalize extinct beings, as everything lives within us.
 
-### The World of Caesar and the Importance of [[Revision]]
+### The World of Caesar and the Importance of [Revision](/Revision)
 
 - The world of generation should not be neglected, as it is an important aspect of reality.
 - Scripture encourages revising, forgiving, and changing our thoughts to change our life conditions.
 
-### Examples of [[Revision]] and Imagination in Practice
+### Examples of [Revision](/Revision) and Imagination in Practice
 
 - A friend revised a call from another friend who feared being fired, leading to his friend receiving praise for his work.
 - Another person imagined using the word "Mister" before a prominent man's name in an ad, and the man later requested the change in a radio commercial.
 - Every moment of time is an opportunity to put the law into practice, just like the symbolism of stuffing a pig (Christ) with love and imagination.
 
-### [[Dreams]] as Revelations
+### [Dreams](/Dreams) as Revelations
 
-- [[Dreams]] can provide deep insights and revelations.
-- [[Dreams]] can symbolize crossing water (psychological truth) and walking on a solid foundation.
-- [[Dreams]] can represent the impregnation of ideas and the perceptions of the dreamer.
+- [Dreams](/Dreams) can provide deep insights and revelations.
+- [Dreams](/Dreams) can symbolize crossing water (psychological truth) and walking on a solid foundation.
+- [Dreams](/Dreams) can represent the impregnation of ideas and the perceptions of the dreamer.
 
 ### Faith and the Appropriate Use of Imagination
 

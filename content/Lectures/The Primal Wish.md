@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Primal Wish
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Primal Wish, Learning how to move, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight’s subject is *"The Primal Wish"*. I am so thrilled that you are here tonight. Listen carefully to what I will tell you concerning this primal wish.
 
 In the very first chapter of Genesis, God said, *"Let us make man in our image, after our likeness."* That’s the primal wish. And Shakespeare said, *"It has been taught us from the primal state that he which is was wished until he were."* This is tonight’s subject. We are making an image.
@@ -26,7 +12,7 @@ Now let me share with you a letter that was given to me a few days ago by a dear
 
 *"Then I asked, ‘What are they doing?’ And you replied, ‘They are doing the same thing today that they did this time last year.’ Sensing a lapse of memory I said, ‘How long have I been here?’ and you replied, ‘Two years.’ In this I sensed symbolism, so I asked, ‘Did I learn anything?’ and nodding you said, ‘Yes, you learned how to move’ and disappeared. Then I walked back into the house which had now turned into a palace and I was led to my quarters."*
 
-We are told in the book of Numbers, *"God speaks to man through the medium of [[Dreams]]."* I tell you, you are not here by accident, not one of you, for tonight I will lead you toward the fulfillment of that primal wish, *"Let us make man in our image."* I will lead you toward getting dominion over everything in the world, things on the earth, below the earth, under water, below the water, in the heavens and beyond. Infinite power is yours after the image of the invisible God is formed in you, for there is nothing but God.
+We are told in the book of Numbers, *"God speaks to man through the medium of [Dreams](/Dreams)."* I tell you, you are not here by accident, not one of you, for tonight I will lead you toward the fulfillment of that primal wish, *"Let us make man in our image."* I will lead you toward getting dominion over everything in the world, things on the earth, below the earth, under water, below the water, in the heavens and beyond. Infinite power is yours after the image of the invisible God is formed in you, for there is nothing but God.
 
 Now, he had been there two years. Two is conflict; it is energy. The wall of hostility must be turned down between God and his emanation that they may become one, for God cleaves to his emanation, his wife until the sleep of death is past and the wall of hostility has disappeared. The number two is the important thing. It’s not two years of 365 days per year, but conflict, and while it lasted he had enemies, all within him. Then the wall is broken down and he goes to the front room to see all of the soldiers who formed his squadron transform themselves into me. Then I took him to the back of the house.
 
@@ -96,7 +82,7 @@ A: You are told in scripture, if two different persons agree in testimony it is 
 - Being formed in the image and likeness of God allows one to be identified as God's child.
 - A dream is shared in which the protagonist finds themselves in a dilapidated farmhouse during a war. They witness a transformation of soldiers into a single being and are led to a field of wheat.
 - The dream symbolizes the transformation from conflict to abundance.
-- God speaks to man through [[Dreams]], and the dream indicates that the fulfillment of the primal wish is possible.
+- God speaks to man through [Dreams](/Dreams), and the dream indicates that the fulfillment of the primal wish is possible.
 - The number two represents conflict, and the dream highlights the transformation from conflict to oneness.
 - Jesus is the door that leads to an abundant life, and those who follow him will enter this abundant life.
 - The dream also emphasizes the importance of movement and the ability to change states.
@@ -120,7 +106,7 @@ A: You are told in scripture, if two different persons agree in testimony it is 
 - Agreeing in testimony with the desired state resolves conflict and manifests the desired state.
 - Entering a state and affirming its reality brings it into being.
 - By persisting in a desired state, one can manifest it and overcome any obstacles.
-- The dream signifies the transformation from conflict to abundance and serves as a reminder of the power of [[Dreams]].
+- The dream signifies the transformation from conflict to abundance and serves as a reminder of the power of [Dreams](/Dreams).
 - Movement and changing one's perspective are crucial in manifesting desires.
 - The dream also hints at the concept of death and awakening to a higher state of consciousness,
 - Learning to move and remaining faithful to motion brings freedom and discipline.aining faithful to motion brings freedom and discipline.ipline.

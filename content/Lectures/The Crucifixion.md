@@ -1,14 +1,3 @@
----
-book: 
-chapter: The Crucifixion
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Crucifixion as the History of Man, "The Scripture: Luke 18:31-34", The Crucifixion as the Story of Every Being, The Speaker's Personal Experience, The Time Interval and Redemption, Isaac as the Shaping of the Unbegotten, The Crucifixion as the Beginning of the Drama, The Importance of Recognizing David, The Unveiling of the Mystery, The Holy Sepulcher as the Skull, The Transformation and Final Journey, Fulfillment and the Unbegotten Being, The Awakening and Embrace of Infinite Love, Isaiah 14:24 and the Vision's Appointed Hour, The Mystery of the Crucifixion, Sharing the Experience and Encouragement, Isaiah 14:24 and the Vision's Appointed Hour, The Mystery of the Crucifixion, Sharing the Experience and Encouragement]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 The crucifixion is the history of man. Our human history begins with birth and ends with death. In Divine history it begins with death and ends with birth. There is a complete reversal of these histories. Here we begin in the womb and end in the tomb: but in Divine history we begin in the tomb and awaken in the womb where we are born. Now here in this fantastic drama I think we have misconceived the part of Jesus Christ and made of him an idol, and having made of him an idol he hides from us the true God.
 
 Let us turn to the Book of Luke 18:31-34: *"And taking the twelve he said to them; 'Behold, we are going up to Jerusalem, and everything that is written of the Son of man by the prophets will be accomplished. For he will be delivered to the Gentiles, and will be mocked and shamefully treated and spit upon; they will scourged him and kill him, and on the third day he will rise.' But they understood none of these things; this saying was hid from them, and they did not grasp what was said."* We are told that no one understood him. Now believe this; I am speaking to you, as I have tried every night, from experience. I am not theorizing. I have no interest whatsoever in trying to set up some workable philosophy of life, I really haven't. If I made my exit tonight it would make no difference to me personally, maybe to my wife and my child, my family, - but not to me.

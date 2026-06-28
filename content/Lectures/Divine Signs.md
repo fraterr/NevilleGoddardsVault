@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Divine Signs
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Story of Jesus as a Divine Sign, The Allegory of Abraham's Two Sons, The Revelation of the Mystery of Christ, God's Purpose and Meaning in Life, God's Symbolism and Interpretation, Personal Experiences and Revelations, The Unfolding of the Plan and Interpretation of Scripture, The Power of Imagination and Creative Power, Divine Signs as Allegories and God's Plan of Salvation, The Fertilization of the Plan and the Awakening, The Fertilization of the Plan and the Awakening]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Those raised in the Christian or Jewish faith are taught to believe that scripture is secular history. But I know that the story of Jesus, from his conception by the Holy Spirit to his ascension into heaven, is a sign rendered by God to those who will receive it.  
   
 The visions of the Old and New Testament are unchanged, eternal realities, which are forever. One day you will encounter what appears on paper to be a person, but he will be a state of consciousness, personified.   
@@ -74,9 +60,9 @@ You don't come for one time, and hear something so radically different from what
   
 I have referenced the Old Testament and - like Paul - ask you to keep my interpretation of the Old Testament in mind as you read my experiences. If so, you will find light coming from what you did not formerly understand, for the pattern has awakened in me. The New Testament is the fulfillment of the Old. It's not the other way around. The pattern, the mystery of his will, remains sealed in the Old Testament until the fullness of time, when the seal is broken and individual man resurrects, fulfilling scripture.   
   
-If you test your creative power on this level, the statement: *"Whatsoever you desire, believe you have received it and you will,"* will no longer be a great theory given lip service, but will be known from experience. Believe you are the man (or woman) you want to be. Catch the feeling that you have already arrived. Look at your world from that [[Assumption]], knowing its truth.   
+If you test your creative power on this level, the statement: *"Whatsoever you desire, believe you have received it and you will,"* will no longer be a great theory given lip service, but will be known from experience. Believe you are the man (or woman) you want to be. Catch the feeling that you have already arrived. Look at your world from that [Assumption](/Assumption), knowing its truth.   
   
-Now, believe your [[Assumption]] has its own appointed hour to flower. Persist in your belief and no power on earth can stop it from hardening into fact. This is Christianity!   
+Now, believe your [Assumption](/Assumption) has its own appointed hour to flower. Persist in your belief and no power on earth can stop it from hardening into fact. This is Christianity!   
   
 There is no limit to your creative power. The most horrible problem will be resolved if you will but conceive a solution in your mind's eye. Anyone can do it. It doesn't take an Einstein to imagine a problem is resolved. Do not limit your creative power by determining the ways and means for it to come about, for imagination has at its disposal ways that are past finding out.   
   
@@ -84,7 +70,7 @@ Do not be concerned as to how, when, or where - only the end. If you are in debt
   
 Every problem has a solution. Imagine the solution and assume it is true. What would you see and do were it true? How would you feel? Persist in that feeling and in a way no one knows the solution will come to pass.   
   
-There is nothing impossible to God, and God is crucified on you as your own wonderful human imagination! There never was another and there never will be another God, and all things are possible to him. If you can imagine the end, knowing all things are possible to imagination and remain faithful to that [[Assumption]] as though it were true, imagination will harden into fact.   
+There is nothing impossible to God, and God is crucified on you as your own wonderful human imagination! There never was another and there never will be another God, and all things are possible to him. If you can imagine the end, knowing all things are possible to imagination and remain faithful to that [Assumption](/Assumption) as though it were true, imagination will harden into fact.   
   
 Remember, creative power will not operate itself. Knowing what to do is not enough. You, imagination's operant power, must be willing to assume that things are as you desire them to be before they can ever come to pass.   
   

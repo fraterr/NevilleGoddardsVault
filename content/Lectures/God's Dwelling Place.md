@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God's Dwelling Place
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [God's Dwelling Place, God Becoming Man, The Risen Christ, Everything Exists in Imagination, The Journey of Awakening, Redeeming the Imaginal Acts, The Return to Glory]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"Why stand we here trembling all around calling on God for help and not ourselves in whom God dwells?"* God does not dwell in us as something other than ourselves, for God actually became as we are, that one day we may be as He is. I tell you: you are the Being who became man, the Being Blake refers to as God. You, human imagination, did not begin in your mother's womb and will not end in the grave. As a pre-existing Being, you emptied yourself of memory for a divine purpose. Tonight I will try to touch on that purpose.  
   
 In Paul's letter to the Philippians he speaks of God in action as *"Christ Jesus who, though he was in the form of God, did not consider it something to grasp, but emptied himself, took upon himself the form of a slave and was born in the likeness of men. Being found in human form he humbled himself and took upon himself the cross of death."* Your body of flesh is your cross of death which you took upon yourself when you who existed before the foundation of the world lost your memory. Now Paul continues as though he is speaking to another, saying: *"Therefore God has highly exalted him and bestowed on him the name that is above every name, that at the name Jesus every knee should bow on earth, in heaven, and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God."*   
@@ -22,7 +8,7 @@ Christ (Imagination's power and wisdom) is crucified and buried in man. When he 
   
 Everything you can think of is present, now. You cannot conceive of something that is not already worked out in detail; but it is a shadow if you do not dwell in it. It is just a possibility, but when you enter that shadow it seems the only substance. I have seen a world in my imagination that is not like this. Prior to my entrance it as a mere possibility, an image, but when I entered that world and allowed my consciousness to follow vision, it was more real than this room is now. At the moment I am in this room and it is real. When I depart, this will become a memory image, and wherever I am at that moment will be more real than this room or any part of my world. My home was real when I left it and will be real when I enter it again, but now it is a memory image. This room has reality to me because I am in it.  
   
-I tell you: everything exists and can be just as real as this room. The job you desire exists. The home of your [[Dreams]] exists. The man or woman who is perfect for you exists. You cannot conceive of a state that is not already worked out in detail, waiting for someone to occupy. As a desire it is only a dream, a mere image, but when the state is entered, it is the only reality.  
+I tell you: everything exists and can be just as real as this room. The job you desire exists. The home of your [Dreams](/Dreams) exists. The man or woman who is perfect for you exists. You cannot conceive of a state that is not already worked out in detail, waiting for someone to occupy. As a desire it is only a dream, a mere image, but when the state is entered, it is the only reality.  
   
 In order to come into this world you had to completely empty yourself of your creative power, your wisdom, and glory. The day will come when, having gone through the gamut, God in you (who is your very self) will rise in you. Then your memory will return and the divine name Jesus will be conferred upon you. And when this name is heard (in you) every knee shall bow in heaven, on earth, and under the earth, and every tongue confess that Jesus Christ is Lord to the glory of God, because you will know you are God. You have always been God, but in order to take on your garment of limitation you had to become limited. You could not pretend you were man; you had to take upon yourself this cross called man, with all of its weaknesses and limitations.  
   
@@ -49,7 +35,7 @@ You can move into any state, for all states are already completed. All you need 
   
 I tell you: the being who is aware of being you, now, was in the beginning with God and was God. You are God's power, wisdom, and glory suffering from amnesia, for you could not pretend to enter this graveyard called earth. The unnumbered bodies observed here are graves which your immortal presence animates. Your flesh-and-blood garment could not breathe without you, for you are its breath. Believing yourself to be the fleshly body you animate, you do not recognize your brothers when you see others. Rather, you war against the seeming others as though they were your enemy; yet you are told in the 2nd [chapter] of Philippians: "Let each of you think not only of his own interest, but also to the interests of others. Let this mind be in you, the mind which you have with Christ Jesus. It's the same mind. Paul couldn't have said it better. Your interest should be to the interest of all, because basically all are one. When these garments are finally taken off and we reenter the one body that fell, we will be that glorious being who is the Lord and Father of the entire journey.   
   
-I received a letter this week from a man who shared a series of [[Dreams]] which occurred one night. The final one is the clue to the [[Dreams]]. In it he saw a huge, horrible monkey which clung to his back. It felt unclean and strange, and when it began to make love to him he tore it off his back, and as he did, he awoke. This was a perfect vision. He saw the symbol of the misuse of his creative imagining.  
+I received a letter this week from a man who shared a series of [Dreams](/Dreams) which occurred one night. The final one is the clue to the [Dreams](/Dreams). In it he saw a huge, horrible monkey which clung to his back. It felt unclean and strange, and when it began to make love to him he tore it off his back, and as he did, he awoke. This was a perfect vision. He saw the symbol of the misuse of his creative imagining.  
   
 Everyone has such a dweller on his threshold of thoughts which is fed by imagining something unlovely. And everyone also has the complementary side as a glorious, angelic being whose beauty is beyond measure. She is the personification of every lovely imaginal act the individual has ever committed. One day they will be together.  
   

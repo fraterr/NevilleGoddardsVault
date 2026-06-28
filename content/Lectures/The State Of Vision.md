@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The State Of Vision
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Imagination and Vision, Isaac and Jacob, The Power of Hearing, Examples of Manifestation, Trusting Inner Senses, Raising Imagination to Vision, Exercising God-Given Talents]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"We have only to raise Imagination to the state of Vision and the thing is done."* (William Blake) Just imagine it! That is all you and I are required to do. No matter what it is we desire, we have only to raise imagination to the state of vision, and the thing is done! Now, when the prophets of old used the word vision in scripture, they meant all of the senses, either individually or in combination. The Book of Isaiah begins: *"The visions of Isaiah, the son of Amoz. Hear, O heavens and give ear O earth; for the Lord has spoken."* And the Book of Obadiah states: *"The visions of Obadiah. Thus sayeth the Lord God."* Here we find the visions are audio; but scripture records visions of sight, sound, scent, taste, and touch. The last chapter of the Book of Job reads: *"I have heard of thee with the hearing of the ear, but now my eye sees thee."* 
 
 Imagination must be raised to the sense of sight in order to see. The sense of sound seems to be the most popular in scripture, yet in the story of Jacob it is the sense of touch. Isaac, Jacob's father, was blind and could not see. His twin brother, Esau, was the first out of the womb. He was covered with hair and - because of his birth - had the right of inheritance by law. Jacob, who followed his brother, was a smooth-skinned lad, who deceived his father through the sense of touch. Killing one of his father's flock, he wrapped the skin around his arm, and when his father touched him, he felt its reality and gave Jacob the right of birth. 
@@ -64,7 +50,7 @@ Knowing what you ought to do is not good enough; you must raise your imagination
 
 Start now to exercise your God-given talents of sight, sound, touch, taste, and smell - together, or individually. The sense of touch is the strongest in me. If someone expresses their desire to me in a letter, I touch the paper they wrote, believing they are telling me of their desire's fulfillment. I know only one out of ten ever respond after I have granted their request, but that is all right. Having felt their letter and seen its contents, I know I have impregnated myself with the good fortunes they are desiring, and in so doing, my own captivity is being lifted. 
 
-Right now, give something to a friend without their knowledge or consent. You have your five senses! Exercise them by bringing the objective body of Jacob to the surface. Clothe him in external reality as the Esau you would like to replace, vanishes. What you have is your Esau. Your desire is Jacob. You are their father. Raise imagination to the state of vision and allow Jacob to supplant Esau. Then rest in that [[Assumption]] and watch the change which takes place in your wonderful world! 
+Right now, give something to a friend without their knowledge or consent. You have your five senses! Exercise them by bringing the objective body of Jacob to the surface. Clothe him in external reality as the Esau you would like to replace, vanishes. What you have is your Esau. Your desire is Jacob. You are their father. Raise imagination to the state of vision and allow Jacob to supplant Esau. Then rest in that [Assumption](/Assumption) and watch the change which takes place in your wonderful world! 
 
 
 

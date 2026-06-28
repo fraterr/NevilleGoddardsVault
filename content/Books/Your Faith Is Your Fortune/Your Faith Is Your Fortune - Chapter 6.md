@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: I Am He
-keywords: []
-bible_ref:
-  - John 8:24
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"For if ye believe not that I AM, ye shall die in your sins."* (John 8:24)
 
 *“All things were made by him; and without him was not anything made that was made.”* This is a hard saying for those trained in the various systems of orthodox religion to accept, but there it stands. All things, good, bad and indifferent, were made by God. *“God made man (manifestation) in his own image; in the likeness of God made he him.”* Apparently adding to this confusion it is stated, *“And God saw that his creation was good.”* What are you going to do about this seeming anomaly? How is man going to correlate all things as good when that which he is taught denies this fact? Either the understanding of God is erroneous or else there is something radically wrong with man’s teaching.

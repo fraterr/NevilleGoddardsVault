@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Whom Seek Ye?
-keywords: []
-bible_ref:
-  - John 18:6
-  - John 18:8
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"I have told you that I AM; if therefore ye seek me, let these go their way"* (John 18:8)
 
 *"As soon then as he had said unto them, I AM they went backward and fell to the ground."* (John 18:6)
@@ -101,7 +87,7 @@ Imagine yourself to be the Christ. Conception always precedes expression. Change
 
 ### Follow Me
 
-Turn from problems, claim the desired state, and continue in its [[Assumption]]. Then you will know your true Master.
+Turn from problems, claim the desired state, and continue in its [Assumption](/Assumption). Then you will know your true Master.
 
 
 

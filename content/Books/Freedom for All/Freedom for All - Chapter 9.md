@@ -1,25 +1,3 @@
----
-book: Freedom for All
-chapter: The Annunciation
-keywords: []
-bible_ref:
-  - Luke 1:30-37
-tags: book
-topics:
-  - The immaculate conception is self-impregnation
-  - Characters represent aspects of consciousness
-  - Define desire
-  - select a friend
-  - listen and feel
-  - Thrillingly feel the wish fulfilled
-  - Consciousness generates
-  - angel conveys
-  - mind receives
-  - Apply this to achieve any desire
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 The use of a friend’s voice to impregnate one’s self with a desirable state is beautifully told in the story of the Immaculate Conception.
 
 It is recorded that God sent an angel to Mary to announce the birth of His son. *"And the angel said unto her… thou shalt conceive in thy womb, and bring forth a son... Then said Mary unto the angel, How shall this be, seeing I know not a man? And the angel answered and said unto her, The Holy Ghost shall come upon thee, and the power of the highest shall over-shadow thee; therefore also that holy thing which shall be born of thee shall be called the son of God. For with God nothing shall be impossible"*. (Luke 1:30-37)

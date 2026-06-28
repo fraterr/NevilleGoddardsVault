@@ -1,34 +1,3 @@
----
-book: Seedtime and Harvest
-chapter: Be Ye Wise as Serpents
-keywords:
-  - Dreams
-bible_ref:
-  - Genesis 3:1
-  - Romans 8:20
-  - Romans 8:24-25
-  - I Corinthians 15:44
-  - John 14:2-3
-  - Ephesians 5:14
-  - I Corinthians 3:16
-  - John 12:32
-  - Psalms 82:6
-  - Matthew 10:16
-tags: book
-topics:
-  - Be Wise as Serpents
-  - Prepare an Inner Place
-  - Bridge Manifests the Place
-  - Awaken the Sleeping Spirit
-  - Lifting Up Draws All Men
-  - Patience from Understanding
-  - Shed Resentment
-  - Don Outer Forms
-  - Children of the Most High
-banner: Handles/img/banner seedtime and harvest.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"... be ye therefore wise as serpents, and harmless as doves."*
 (Matthew 10:16)
 
@@ -41,7 +10,7 @@ When he knows this truth, he will stop the futile struggle of self-contention an
 *"Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms."*
 (Tagore)
 
-In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his [[Dreams]] and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - Genesis 3:1 - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
+In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his [Dreams](/Dreams) and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - Genesis 3:1 - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
 
 *"...was made subject to vanity, not willingly, but by reason of him who hath subjected the same in hope... For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for it? But if we hope for that we see not, then do we have patience wait for it."*
 (Romans 8:20, 24, 25)

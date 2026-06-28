@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Christ Bears Our Sins
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Christ as our Imagination, Resistance to Awakening, Fulfilling Scripture, Personal Experiences, Testing God and Desire, Overcoming Death, Two Witnesses]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Peter tells us that Christ bears our sins in his body on the cross. And the prophet Isaiah said: *"He takes our infirmities and bears our diseases."*   
   
 Who is this being who bears our sins, our infirmities, and our diseases? Christ! Our wonderful human imagination! When you are in pain, or experiencing deep sorrow, your imagination is doing the suffering. If a friend tells you he is not feeling well, or is in great pain, and you tell him that his imagination - called Christ - is doing the suffering, your friend would not believe you, because he conceives Christ to be someone other than himself. But Christ is the human imagination, and until man discovers this for himself the Bible will make no sense to him whatsoever.   
@@ -69,7 +55,7 @@ We are told that when God took upon himself the sins of the world, he was a man 
   
 This lady said that she is very fond of the Book of John, as it seems to be more loving than any other book in the Bible. I will go along with that. She felt that the answer to the experience I just spoke of would come to her from the Book of John. I suggest she read the 10th chapter of John. In it Christ is called a man who has a devil and they question why listen to him. You, my dear, are that central figure, and you are also the crowd screaming at yourself; and you deny the existence of the Christ within, for there is no other. There is only God.   
   
-You can put God to the test, and if He proves himself in the testing then you will know God is your own wonderful human imagination. If you want the joy of marriage, a love affair, or a romance, you can test God by assuming the one you desire is with you now. And to the degree you persist in that [[Assumption]], it will be yours to experience. Do not be concerned as to how or when it will happen; simply persist in the [[Assumption]] that it has happened, and when it does you will know who God is.   
+You can put God to the test, and if He proves himself in the testing then you will know God is your own wonderful human imagination. If you want the joy of marriage, a love affair, or a romance, you can test God by assuming the one you desire is with you now. And to the degree you persist in that [Assumption](/Assumption), it will be yours to experience. Do not be concerned as to how or when it will happen; simply persist in the [Assumption](/Assumption) that it has happened, and when it does you will know who God is.   
   
 My wife woke too early to get up this morning, so she thought about what she wanted most, and that was for her husband and daughter to be blissfully happy. Thinking of what she could do to make it so, she realized that it was something they alone must decide. Then she fell asleep dwelling on their happiness and this is her dream: Seeing me lying on a couch she heard me say: *"I don't feel comfortable here,"* and she replied: "I know - you don't like to sleep on the first floor, but would rather be elevated and sleep above.”   
   

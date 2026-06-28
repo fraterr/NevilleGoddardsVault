@@ -1,24 +1,10 @@
----
-dg-publish: true
----
+In the 33rd chapter of the Book of Job we are told that God speaks to man in two ways, but man does not perceive them. It is said: *"In a dream, in a vision of the night when deep sleep falls upon men while they slumber on their beds, he opens the ears of men and seals their instructions."* Tell that to a psychiatrist and, because he separates the dreamer from God, he will tell you that all [Dreams](/Dreams) come from the individual dreamer and not from God. But I tell you: God’s eternal name is I AM, and if I asked who is dreaming the dream would the individual not say, *"I am?"* And are we not told that that is God’s name forever and ever? 
 
----
-book: 
-chapter: A Movement Of Mind
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [God Speaks in Dreams, Interpreting the Dream, No Motion in Waking, The Truth of Scripture, The Dream of Life, Awakening From Within, Accepting the Vision, No Need to Record All, A School of Educated Darkness, God Redeeming Himself, God Redeeming Himself]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
-In the 33rd chapter of the Book of Job we are told that God speaks to man in two ways, but man does not perceive them. It is said: *"In a dream, in a vision of the night when deep sleep falls upon men while they slumber on their beds, he opens the ears of men and seals their instructions."* Tell that to a psychiatrist and, because he separates the dreamer from God, he will tell you that all [[Dreams]] come from the individual dreamer and not from God. But I tell you: God’s eternal name is I AM, and if I asked who is dreaming the dream would the individual not say, *"I am?"* And are we not told that that is God’s name forever and ever? 
-
-You cannot separate the dreamer from God, and all [[Dreams]] proceed from Him. Some are simple and need no interpretation, while others are revealed in a symbolic language and need an interpreter, as told us in the story of Joseph. His true identity is revealed when he looked into the faces of those who had had a dream and saw they were disturbed, for he said: *"Do not interpretations belong to God? Tell me your dream."* Then he interpreted the [[Dreams]] of the butler, the baker, and even Pharaoh himself, and they all came to pass just as he had said they would. Now, if only God can interpret a dream, why tell Joseph? Because he is a personification of God. His name was changed from Joseph (meaning *"salvation"*) to Joshua, which means *"Jehovah is salvation."* 
+You cannot separate the dreamer from God, and all [Dreams](/Dreams) proceed from Him. Some are simple and need no interpretation, while others are revealed in a symbolic language and need an interpreter, as told us in the story of Joseph. His true identity is revealed when he looked into the faces of those who had had a dream and saw they were disturbed, for he said: *"Do not interpretations belong to God? Tell me your dream."* Then he interpreted the [Dreams](/Dreams) of the butler, the baker, and even Pharaoh himself, and they all came to pass just as he had said they would. Now, if only God can interpret a dream, why tell Joseph? Because he is a personification of God. His name was changed from Joseph (meaning *"salvation"*) to Joshua, which means *"Jehovah is salvation."* 
 
 Now back in 1954, I awoke from a dream hearing these words: *"You do not move in waking any more than you move on your bed in sleep. It is all a movement of mind. The intensity is determined by the strength of the vortex you create, which is just like a whirlwind with a center of perfect stillness. You only believe that you are moving when you are awake, as you think you move in sleep."* Well, I am a rational being and reason could not accept that statement, but I wrote it down and placed it in my Bible to await further revelation. 
 
-Psychiatrists would say this message came from myself. I will not deny that, but I do know that it came from a depth of my own being which my rational mind does not reach. Today our three astronauts returned from a trip of half a million miles. You and I came here tonight in our cars, and throughout my lifetime I have traveled all over the world in ships and planes. And like Blake, in my [[Dreams]] *"I have traveled through a land of men, a land of men and women, too. And heard and seen such dreadful things as cold earth wanderers never knew."* We have all traveled, yet I know what I heard and wrote down. I know that I have traveled in my [[Dreams]] and yet I know I have not physically left my room, for when I awoke in the morning I was still on the bed upon which I fell asleep. So I ask you: is this waking state no more than a dream? Is there a dreamer in the depths of my being who looks upon this world as a dream, just as I who - having gone to a little lower of the dream at night - awake to find I haven’t left my bed at dawn?
+Psychiatrists would say this message came from myself. I will not deny that, but I do know that it came from a depth of my own being which my rational mind does not reach. Today our three astronauts returned from a trip of half a million miles. You and I came here tonight in our cars, and throughout my lifetime I have traveled all over the world in ships and planes. And like Blake, in my [Dreams](/Dreams) *"I have traveled through a land of men, a land of men and women, too. And heard and seen such dreadful things as cold earth wanderers never knew."* We have all traveled, yet I know what I heard and wrote down. I know that I have traveled in my [Dreams](/Dreams) and yet I know I have not physically left my room, for when I awoke in the morning I was still on the bed upon which I fell asleep. So I ask you: is this waking state no more than a dream? Is there a dreamer in the depths of my being who looks upon this world as a dream, just as I who - having gone to a little lower of the dream at night - awake to find I haven’t left my bed at dawn?
 
  Paul tells us that *"We are born anew through the resurrection of Jesus Christ from the dead."* I remember that night, for I felt myself waking from a deep, deep sleep, feeling a vibration which, although centered in my head, it seemed to be coming from without. Then I awoke within the sepulcher - the skull - in which I was buried, to come out to find all of the symbolism of the Christian mystery surrounding me. I saw the infant wrapped in swaddling clothes and the three witnesses to the event. Although unseen, as I was spirit, the witnesses spoke of me as the father of the child - the sign that my savior was born, fulfilling scripture: *"This shall be a sign unto you, you shall find a child wrapped in swaddling clothes, lying in a manger."* 
 That night I awoke from a far deeper level of my being to find the symbolism of my waking from the dream of life, just as day after day I wake from the dream of the night. So, could it be that the revelation I heard back in 1954 is literally true? Reason questions it, reason doubts it, and reason rejects it. So if the vision is true then reason is rejecting Jesus Christ, for Jesus Christ defines himself as the truth, saying: *"I am the truth..."* If the revelation is true, and reason rejects it, is not reason Satan, the doubting one? 
@@ -35,12 +21,12 @@ This statement cannot be logically proved. Its truth must be experienced. I had 
 
  It is God who awakes in you. One man, containing all, fell into diversity as told us in the 82nd Psalm: *"I say, ‘You are gods, sons of the Most High, all of you; nevertheless, you shall die like men, and fall as one man, O princes."*’ (I have quoted the Revised Standard Version in the marginal setup which is the true translation of the Hebrew.) It takes all the sons who fell, to form God the Father; so we are gathered together one by one into that same body which fell into humanity. And from humanity, God extracts himself individually because we are all so unique. No one can be duplicated or lost, because God is buried in all and God is redeeming himself.
 
- Today I watched the exciting touchdown of the astronauts who had traveled to the moon and back. Then I reread what I had written back in 1954: *"You do not move in waking any more than you do on your bed in sleep."* Now, reason could not accept that statement. I saw the astronauts return. We have a record of their journey of a half-million miles, yet they did not move? Well, I must confess that I have traveled in my [[Dreams]], as I am sure you have; yet we always wake on our bed in the morning, do we not? Could there be a dreamer far deeper than the one who is dreaming this seeming waking state? And when he awakes from the dream of life, would he not look upon it as you look upon the dream of the night? 
+ Today I watched the exciting touchdown of the astronauts who had traveled to the moon and back. Then I reread what I had written back in 1954: *"You do not move in waking any more than you do on your bed in sleep."* Now, reason could not accept that statement. I saw the astronauts return. We have a record of their journey of a half-million miles, yet they did not move? Well, I must confess that I have traveled in my [Dreams](/Dreams), as I am sure you have; yet we always wake on our bed in the morning, do we not? Could there be a dreamer far deeper than the one who is dreaming this seeming waking state? And when he awakes from the dream of life, would he not look upon it as you look upon the dream of the night? 
 I know that when I awoke from within, I realized that I had been there for unnumbered centuries, dreaming violence, love, hate, concupiscence, and pain - dreaming everything to be real, just as I did in any dream. I awoke to discover that I had been in that skull for centuries, dreaming I was a man walking the earth, dying, being restored to life to die again. This I continued to do until that moment in time when I awoke in Golgotha, the sepulcher where I was buried in the beginning of time. That’s my Calvary.
 
- I seem to move here. I get up and shave in the morning, bathe, eat, make an effort to earn a dollar to pay the rent, and do all sorts of things; yet it’s all a dream, a dream with a purpose. God limited himself to the limit of contraction and opacity called man and began to dream this world into being. Now believing himself to be you, you can dream noble [[Dreams]] or ignoble ones. I urge you to dream noble [[Dreams]], because when you know you are the dreamer you can make all of your [[Dreams]] come true. 
+ I seem to move here. I get up and shave in the morning, bathe, eat, make an effort to earn a dollar to pay the rent, and do all sorts of things; yet it’s all a dream, a dream with a purpose. God limited himself to the limit of contraction and opacity called man and began to dream this world into being. Now believing himself to be you, you can dream noble [Dreams](/Dreams) or ignoble ones. I urge you to dream noble [Dreams](/Dreams), because when you know you are the dreamer you can make all of your [Dreams](/Dreams) come true. 
 
-A dream is a very fluid state. Knowing what you want to dream, bring your inner circle of friends before your mind’s eye and allow them to see you as you want to be seen. When you are self-persuaded this is now a fact, relax in the vision’s gestation period. There is an interval of time between impregnation and birth. Having seen the expressions on their faces and heard the sound of their voices, break the spell and wait for that impregnation to take place in the world of [[Dreams]], while you live in the world of Caesar awaiting its coming. 
+A dream is a very fluid state. Knowing what you want to dream, bring your inner circle of friends before your mind’s eye and allow them to see you as you want to be seen. When you are self-persuaded this is now a fact, relax in the vision’s gestation period. There is an interval of time between impregnation and birth. Having seen the expressions on their faces and heard the sound of their voices, break the spell and wait for that impregnation to take place in the world of [Dreams](/Dreams), while you live in the world of Caesar awaiting its coming. 
 
 I have told you that the story of Jesus Christ has unfolded itself within me. What I shared with you tonight is not recorded in scripture; but in the very last verse of the 21st chapter of John he makes this statement: *"Many other things Jesus did which are not recorded here. Were every one of them to be written, the world itself could not contain the books."* There was no need to record the words which were revealed to me; so it does fit in with the very last verse of the epilogue of John, for John ends on the 20th verse and the 21st is the epilogue. All of these things happened and many more, but only these were recorded that you may believe. 
 
@@ -65,15 +51,15 @@ Now let us go into the silence.
 
 ## Summary
 
-### God Speaks in [[Dreams]]
+### God Speaks in [Dreams](/Dreams)
 
-- God speaks to man in [[Dreams]] and visions from the depth of man's own being
+- God speaks to man in [Dreams](/Dreams) and visions from the depth of man's own being
 - The dreamer cannot be separated from God, for God's eternal name is I AM
 
 ### Interpreting the Dream
 
-- like Joseph, one must have the wisdom to interpret the symbolic language of [[Dreams]]
-- for only God can reveal the meaning of [[Dreams]]
+- like Joseph, one must have the wisdom to interpret the symbolic language of [Dreams](/Dreams)
+- for only God can reveal the meaning of [Dreams](/Dreams)
 
 ### No Motion in Waking
 
@@ -87,7 +73,7 @@ Now let us go into the silence.
 
 ### The Dream of Life
 
-- God crucified himself on the cross of man and [[Dreams]] life into being
+- God crucified himself on the cross of man and [Dreams](/Dreams) life into being
 - For man to realize he is God, the dreamer dreaming life into reality
 
 ### Awakening From Within

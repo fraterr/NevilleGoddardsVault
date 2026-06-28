@@ -1,18 +1,4 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: All That You Behold
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Outer Reflects the Inner, Discover God Within, Unless Born from Above, God Enters Death's Door, Let Go of This Dream, All are Redeemed, Persist in Assumption, Awakening Reveals Oneness, Awakening Reveals Oneness]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
-*"All that you behold, though it appears without it is within, of which this world of mortality is but a shadow."* If you will but enter a state in your imagination, and assume its truth, the outer world will respond to your [[Assumption]], for it is your shadow, forever bearing witness to your inner imaginal activity.
+*"All that you behold, though it appears without it is within, of which this world of mortality is but a shadow."* If you will but enter a state in your imagination, and assume its truth, the outer world will respond to your [Assumption](/Assumption), for it is your shadow, forever bearing witness to your inner imaginal activity.
 
 Test yourself, and if you prove this to your own satisfaction you will come to the same conclusion the apostles did in the 13th chapter of the Book of Acts. Then you, too, will say: *"I have found in David, the son of Jesse, a man after my heart who will do all my will."* If the world responds to your imaginal activity, is the world not David doing your will? If the Lord claimed that David always does his will, and you, by a simple imaginal act, command the outer world to respond - are you not the Lord?
 
@@ -44,9 +30,9 @@ Whether the response comes from a single person or unnumbered people, they are D
 
 Test yourself, and you will discover that your imaginal act was the cause of the response of the world relative to you. Then you will have found the Father and the son and your journey will be at its end, for you will have set yourself free from secondary causes in this world of death. Then your journey will fuse itself into a single youth called David. You will recognize him as he is, just as described in the Book of Samuel. You will see eternity, which God buried in your mind; and you will be enhanced by reason of the experience of creating these bodies for the stage, entering them, and playing their various parts.
 
-Your presence here tells me you have played them all, because no one comes unto me save my Father calls them, and I and my Father are one. Your consistent attendance and your interest in my words tell me you are at the end of the play. Having played the part of the well-known and the unknown, the wealthy and the poor, the disgraced and the proud, you have played everything, as it is all contained within you. Every conceivable part is now a reality in you, but you need not activate it. You can, however, enter a state and by the simple act of [[Assumption]], activate that state, and not one power in the world can stop its response. If it takes a dozen or thousands of men and women to respond to your [[Assumption]], they will, for humanity is David - a man after your heart who will do all your will.
+Your presence here tells me you have played them all, because no one comes unto me save my Father calls them, and I and my Father are one. Your consistent attendance and your interest in my words tell me you are at the end of the play. Having played the part of the well-known and the unknown, the wealthy and the poor, the disgraced and the proud, you have played everything, as it is all contained within you. Every conceivable part is now a reality in you, but you need not activate it. You can, however, enter a state and by the simple act of [Assumption](/Assumption), activate that state, and not one power in the world can stop its response. If it takes a dozen or thousands of men and women to respond to your [Assumption](/Assumption), they will, for humanity is David - a man after your heart who will do all your will.
 
-Everyone necessary to fulfill your [[Assumption]] must and will come to bear witness to that which you are entertaining, internally. Now, although Nicodemus was a member of the Sanhedrin and knew Hebrew thought concerning history, he could not comprehend the idea of a second birth. It was he who asked: *"How can a man who is old enter his mother's womb a second time and be born again?"* Then the answer came: *"You, a master of Israel, yet you do not know; except you are born from above you cannot enter the kingdom of heaven called the new age."*
+Everyone necessary to fulfill your [Assumption](/Assumption) must and will come to bear witness to that which you are entertaining, internally. Now, although Nicodemus was a member of the Sanhedrin and knew Hebrew thought concerning history, he could not comprehend the idea of a second birth. It was he who asked: *"How can a man who is old enter his mother's womb a second time and be born again?"* Then the answer came: *"You, a master of Israel, yet you do not know; except you are born from above you cannot enter the kingdom of heaven called the new age."*
 
 This is a drama of one being, expanding himself by first creating humanity, and then limiting himself to his creation. Humanity, although part of the structure of the universe, is dead. God, breathing upon it, possesses the body and Spirit, enters, and animates it. Now, in a body that is dead, God will go through the horrors of the journey, dreaming you and your experiences into being until he awakes where he began the dream - in Golgotha, his tomb, which is your skull. And when God awakes, you awake. As you emerge from it, you will look back to see that which you occupied for six thousand years. You will see the linen clothes which your mother wove in her womb, and you will leave the napkin which the body expels.
 
@@ -82,9 +68,9 @@ Imagination entered death's door (your skull) and is dreaming the world in which
 
 You will always find people eager to question what you think of this one or that one. I am quite sure if we all traced our ancestry back far enough we would find hippies, murderers, and thieves recorded there. In the beginning no one was born a king; someone had to feel that position and take it by force. You don't have to go back and change anyone or anything, but envy no one. If someone wants a thousand or a hundred thousand acres, let him have them. If you would like to live in a lovely apartment, claim you do. You may think you can't afford the one you want, but that thought is an imaginal act. I would suggest, instead of thinking you can't afford it, to simply sleep in that apartment tonight mentally, accepting the fact that you have all the funds necessary to pay for it.
 
-Persist and the world will respond. You will get the money needed to live there. The world does not cause, it only responds to your imaginal acts, for only God acts and God is in you as your own wonderful human imagination. Now, before you judge it, try it. If you do, you cannot fail, and when you prove imagination in the testing, share the good news with your brothers. Tell everyone you meet how the world works. You do not have to have a proper educational or social background to apply this principle; and you cannot fail, for an [[Assumption]], though false, if persisted in will harden into fact.
+Persist and the world will respond. You will get the money needed to live there. The world does not cause, it only responds to your imaginal acts, for only God acts and God is in you as your own wonderful human imagination. Now, before you judge it, try it. If you do, you cannot fail, and when you prove imagination in the testing, share the good news with your brothers. Tell everyone you meet how the world works. You do not have to have a proper educational or social background to apply this principle; and you cannot fail, for an [Assumption](/Assumption), though false, if persisted in will harden into fact.
 
-When you know what you want, assume you have it. Believe your [[Assumption]] is true. Look at your world mentally and see your fulfilled desire. Do this and you are calling forth a response to your thoughts, and in the not distant future you will find yourself physically occupying the state imagined. Now, after you realize your desire, don't go back to sleep and hold on to this dream that is now solidly real, while trying to project a desire through secular means. We are warned against doing this in the parable of the rich fool, who said: *"I have all that it takes, more than enough. I will pull down my barns and build bigger ones to store my grain and my goods. Then I will take my ease, eat, drink and be merry."*
+When you know what you want, assume you have it. Believe your [Assumption](/Assumption) is true. Look at your world mentally and see your fulfilled desire. Do this and you are calling forth a response to your thoughts, and in the not distant future you will find yourself physically occupying the state imagined. Now, after you realize your desire, don't go back to sleep and hold on to this dream that is now solidly real, while trying to project a desire through secular means. We are warned against doing this in the parable of the rich fool, who said: *"I have all that it takes, more than enough. I will pull down my barns and build bigger ones to store my grain and my goods. Then I will take my ease, eat, drink and be merry."*
 
 But the Lord said to him: *"Fool! This night your soul is required of you."* Don't hold onto anything on the outside; hold on only in your imagination. If something is taken from you, it is because at one time you assumed its loss and - for a moment - wondered what you would do if it were. You forgot the thought, but its message had already been released to fulfill itself. If you want to keep your possessions, you must hold onto them in your imagination and not build barns to house them.
 
@@ -100,7 +86,7 @@ Now let us go into the silence.
 ### The Outer Reflects the Inner
 
 - The outer world is but a shadow, reflecting your inner imagination
-- If your [[Assumption]] brings a response, you have found David doing your will
+- If your [Assumption](/Assumption) brings a response, you have found David doing your will
 
 ### Discover God Within
 
@@ -127,10 +113,10 @@ Now let us go into the silence.
 - In the end, even the so-called monsters will be redeemed
 - Brought to awareness of being God, creating from imagination
 
-### Persist in [[Assumption]]
+### Persist in [Assumption](/Assumption)
 
 - Assume what you wish. Ignore doubts. Imagine implies it is now so
-- Inner conviction hardens your [[Assumption]] into outer fact
+- Inner conviction hardens your [Assumption](/Assumption) into outer fact
 
 ### Awakening Reveals Oneness
 

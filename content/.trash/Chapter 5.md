@@ -1,14 +1,3 @@
----
-dg-publish: true
----
-
----
-book: ""
-chapter: ""
-topics: 
-bible references:
----
-
 =="Let every man be fully persuaded in his own mind."== **(Romans 14:5)**  
 
 PERSUASION IS an inner effort of intense attention.  

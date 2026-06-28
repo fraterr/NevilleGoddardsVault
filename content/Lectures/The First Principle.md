@@ -1,14 +1,3 @@
----
-book: 
-chapter: The First Principle
-keywords: [Revision, Assumption, Prayer]
-bible_ref:
-tags: lecture
-topics: [The First Principle, I am Statements of Scripture, Questioning and Testing, The Power of Imagination and Revision, Eternal Truths, Question Everything, Changing the Inevitable Ends, Experiencing Scripture, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 Do not accept any statement from scripture, the church, or an individual (including the speaker) as true until you have found God or a living truth in what is being said. What I tell you I know from experience, but I ask you not to accept my words without questioning them within yourself. It is silly to accept something simply because the church said it, or you read it in the Bible, or heard it from Neville. You must pursue the thought ceaselessly by questioning yourself.
 
 Why do I stress this? Because among the spirit world there are many Babel's where no two speak with the same tongue. One may tell you to give up meat, while another will tell you something entirely different. This we are told in the 11th chapter of the Book of Genesis. I am not speaking of multiple tongues as the many languages we have today. We can overcome those with an interpreter; but if someone tells you: *"This is the way,"* and another says: *"No. This is the way,"* and they don't agree - you are in Babel, a city of confusion in the pathway of the spirit.
@@ -27,7 +16,7 @@ These things I now know to be true from experience, therefore I speak with autho
 
 Relax. Be still and question yourself, saying: *"Are you really God?"* Address yourself as though you were two. *"If you are God and can do all things, prove it to me by giving me my desire so I can feel its presence now."* See if he will prove himself in performance and when he does, do it again. Keep on asking and when he proves himself here on this level, then let these things which can't be put to the test come through, for they will.
 
-Now, the Bible tells us that Christ is in us and that we are in Christ. On the surface it seems to mean the same thing, but there is all the difference in the world. Christ in us is our hope of glory. That's a universal [[Assumption]], for Christ has assumed the body of every child born of woman. But when you are in Christ you are a new creature. 
+Now, the Bible tells us that Christ is in us and that we are in Christ. On the surface it seems to mean the same thing, but there is all the difference in the world. Christ in us is our hope of glory. That's a universal [Assumption](/Assumption), for Christ has assumed the body of every child born of woman. But when you are in Christ you are a new creature. 
 
 Christ in you does not make you new. Christ in you is your life, for in him is life and his life is your consciousness of faith. But when you are in Christ you are called and incorporated into the body of the Risen Lord. Because Christ is in you, you are a son of God; but when you are elected - called into the presence of the Risen Lord and incorporated into his body - you are in Christ. There is all the difference in the world, for from then on scripture begins to fulfill itself within you.
 
@@ -35,7 +24,7 @@ If you question everything you hear from any pulpit, the speaker, or the Bible, 
 
 I tell you: although it is difficult to believe, we are living in a fabulous world of shadows. This past Thursday morning as I was returning to the surface, I saw the finish of the Triple Crown race at Belmont in detail. Now this was Thursday and the race was not to be run until Saturday, but I saw the finish so clearly that if I had a million dollars I would not have hesitated to bet it all on the one I knew to be the winner. In fact I knew the race could not be reversed. It was fixed and finished. Then I asked myself: *"What is this world? Is it not a school of educated darkness?"*
 
-Man thinks that in some strange way he is going to improve this world, but it is a schoolroom and will remain just that. The kingdom of heaven is not interested in improving this world; it is only interested in taking people out of this world by drawing them into itself - which is an entirely different world. But we can change the events in this schoolroom through the act of [[Revision]].
+Man thinks that in some strange way he is going to improve this world, but it is a schoolroom and will remain just that. The kingdom of heaven is not interested in improving this world; it is only interested in taking people out of this world by drawing them into itself - which is an entirely different world. But we can change the events in this schoolroom through the act of [Revision](/Revision).
 
 I had no desire to revise that race. I could have, and that which was completely finished, in detail, would have been changed. In scripture the word is *"repentance,"* which means *"a radical change in thinking."* Tomorrow morning as you come to the surface mind, observe and record what you are seeing, for you are observing that which will take place tomorrow or next week in this world of shadows. And if you don't like what you see, change it. Don't do as you normally do, by jumping out of bed, washing your face, and once again find yourself locked in this world of shadows; take a moment and observe your future.
 
@@ -83,7 +72,7 @@ I ask you to apply the law and change the seemingly inevitable ends - from withi
 
 In the 4th chapter of the Book of Luke, we read the statement made in the 61st chapter of Isaiah: *"The Spirit of the Lord God is upon me."* This statement I know to be true, yet I ask you not to accept my experiences, but to question them by questioning the one being who can give you all the answers. He will, when he feels himself in you. Then he will reveal himself to you in the first person singular in a present tense experience.
 
-Everyone is going to have these experiences, but when I do not know. Don't let anyone tell you that you have so many days, months, years, or lifetimes to come. Challenge it now! I have experienced scripture. Take my words and ask yourself to prove them to you now. Then let him unfold within you, and when he does, this world will lose its value to you. You will wonder what the fighting is all about. Why should anyone fight over shadows? Don't criticize anyone. If those who have a billion want two - so that they can be the richest dummy in the grave - pray for them by asking the only being who can grant your [[Prayer]], and that being is your own wonderful human imagination.
+Everyone is going to have these experiences, but when I do not know. Don't let anyone tell you that you have so many days, months, years, or lifetimes to come. Challenge it now! I have experienced scripture. Take my words and ask yourself to prove them to you now. Then let him unfold within you, and when he does, this world will lose its value to you. You will wonder what the fighting is all about. Why should anyone fight over shadows? Don't criticize anyone. If those who have a billion want two - so that they can be the richest dummy in the grave - pray for them by asking the only being who can grant your [Prayer](/Prayer), and that being is your own wonderful human imagination.
 
 Don't struggle doing it. Ask yourself who is hearing the good news you just heard and you will answer: *"I am."* That's God. That's the being who heard the request. Now grant it and let it happen. God heard it when you heard it because God is your own wonderful I Amness, and remember: all that you ask in your Father's name he will grant you and your Father's name is I AM.
 
@@ -112,9 +101,9 @@ Now let us go into the silence.
 - Everything should be proven through personal experience and testing.
 - Continuously question until finding God or the living truth within.
 
-### The Power of Imagination and [[Revision]]
+### The Power of Imagination and [Revision](/Revision)
 - The world is a school of educated darkness and will not be improved.
-- Change the events in the world through the act of [[Revision]].
+- Change the events in the world through the act of [Revision](/Revision).
 - Before sleep, imagine and sustain the feeling of having your desires.
 - Test the law on the level of shadows and have faith that it is true on all levels.
 - The Lord is one's own imagination, consciousness, and I AMness.

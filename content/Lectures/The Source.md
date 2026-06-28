@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Source
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Man's Search for the Source of Life, The Gypsy and the Well, The True Concept of God, Equating Genesis and John, God Within, Man as the Source of Life, Knowing God Through Experience, The Supernatural Discovery of God, Imagination Creates Reality, The Dream of Life, In the Head, God Created, The Power of Imaginal Acts, Telling the Story of Scripture, Remove Mountains with Imagination, Remove Mountains with Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Man is seeking the source, the cause, of the phenomena of life. In his search, he grows and outgrows his many concepts of God until he finds the one God he can never outgrow, and therefore can never lose. That is the God which he finds in a first person, present tense experience. 
 
 Here is a true story that verges on this truth. While a friend was shaving, his little girl watched, and questioning him, asked: *"Where does God really live?"* and he absent mindedly answered: *"In the well."* Laughing at his silly answer, the little girl ran to tell her mother. At breakfast that morning when his wife asked why he had made such a statement, he could not answer, but later that day he remembered. 

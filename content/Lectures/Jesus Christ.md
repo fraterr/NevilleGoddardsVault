@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Jesus Christ
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Jesus Christ is God's plan of salvation, not a man, The foreshadowing of Jesus Christ in the Bible, Jesus Christ is God's plan of salvation personified, Understanding the true nature of Jesus Christ, Knowing and experiencing God's plan of salvation, Understanding Jesus Christ as God's plan of salvation, Witnessing and sharing the truth of God's plan of salvation, The expansion and reunification with God through Jesus Christ, Faith, belief, and acceptance of God's plan of salvation, The perfect plan of God's power and creation, The perfect plan of God's power and creation]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Although only a few are teaching this wonderful principle at the present time, many others will follow; and because the Christian world believes in a man, this question will be asked over and over: *"Do you not believe that a man called Jesus Christ walked the earth?"* It is my hope that I will be able to clarify this point for you tonight. 
 
 Listen to these words from scripture: *"You will know the truth and the truth shall set you free. Thy Word is truth."* And speaking of Jesus Christ: *"His name shall be called the Word of God."* Here we see he has a name, so he is a person, yet he is the Word, the truth that sets man free. Confessing that he came into the world to do his Father's will, in the 6th chapter of the book of John he makes this statement: *"This is the will of my Father, that everyone who sees the Son and believes in him should have eternal life."* 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Bear Ye One Another'S Burdens
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Role of Simon and the Law of Christ, The Universal Christ and the Individual Christ, Imagination and the Power to Change, The Messianic Secret and the Pattern of Salvation, Simon's Role and the Joy of Giving, Faith and the Unseen Reality, Unveiling Scripture and Unity]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Bible is the most practical book in the world. In it we are told that one named Simon carried the cross behind Jesus. The word *"Simon"* means *"to hear with understanding and consent to what is heard."* And Jesus is your own wonderful human imagination.   
   
 The gospel tells what happens in the soul of Jesus. The events recorded there are seen and heard by none save but Him. Through these experiences He gains the certainty that He is not only the Son of God, but also God Himself. But when he tells his story few will accept it, as his experience of scripture differs greatly from its interpretation by the priests and rabbis. Simon, however, understands what he hears and, consenting to it, he carries the cross.   

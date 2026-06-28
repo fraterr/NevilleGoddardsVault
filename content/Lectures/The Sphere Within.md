@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Sphere Within
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Human Imagination and the Sphere Within, Purpose in the World of Sadness, God's Journey Through the Horrors of the World, Different Parts in the Body of God, The Manifestation of Love, Christ as the Sphere Within, Destiny and Preparation for the Highest Honor, The Practicality of Spiritual Understanding, The Reality of God's Love and the Eternal Nature of beings, The Eternal Nature of All Ages, The Eternal Nature of All Ages]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Entering this world of death, you brought all you have (or can have) with you. You are like a garden, already planted and sowed, for this world is too poor to produce one seed. Although William Blake was called a madman, he knew this great truth, and said: *"The Human Imagination is the Eternal Body of the Lord Jesus."* I tell you: the Lord Jesus is your own wonderful human imagination, who became as you are that you may become as he is. 
 
 Everything is housed in you, because Jesus is buried there, and it is from there that he will rise. You might think Paul was speaking of one external to himself, when he said: *"I have heard of your faith in Christ Jesus,"* but Paul was not. The preposition *"in"* designates Christ as the sphere within which faith lives, rather than an object of faith. So, if everything is within you, you may question why you are in this world of sadness, death, and sorrow; but I will tell you: you are here for a purpose. 

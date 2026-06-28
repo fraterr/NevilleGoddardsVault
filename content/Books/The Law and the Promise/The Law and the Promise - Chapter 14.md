@@ -1,25 +1,3 @@
----
-book: The Law and the Promise
-chapter: The Creative Moment
-keywords:
-  - Prayer
-  - Dreams
-bible_ref:
-  - 1Corinthians 2:14
-  - Isaiah 55:1
-  - 2Corinthians 6:2
-tags: book
-topics:
-  - A daily creative moment renews all moments
-  - God only acts in existing beings
-  - Woman imagined elderly lady's ride
-  - Test the inner God in the lion's den
-  - Half asleep - child's face filled her with light
-  - Imagining seeks recognition of its own oneness with God
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"The natural man does not receive the gifts of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."* (1Cor. 2:14.)
 
 *"There is a Moment in each Day that Satan cannot find, Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."* (William Blake)
@@ -33,7 +11,7 @@ Man is only reacting in his natural or Satan state; he never acts or creates, he
 Once more, we may say with Blake,
 *"God only Acts and Is, in existing beings or Men."* (The Marriage of Heaven and Hell", 1793)
 
-There is an imaginal past and an imaginal future. If, by reacting, the past is re-created into the present — so — by acting out our [[Dreams]] of fancy can the future be brought into the present.
+There is an imaginal past and an imaginal future. If, by reacting, the past is re-created into the present — so — by acting out our [Dreams](/Dreams) of fancy can the future be brought into the present.
 
 *"I feel now the future in the instant."* (William Shakespeare, Macbeth")
 
@@ -63,7 +41,7 @@ The fancy satisfied my feelings regarding the 'real' incident, and I immediately
 
 *"There is a Moment in each Day that Satan cannot find. Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."*
 
-"From the first time I read your 'Search', I have longed to experience a vision. Since you have told us of the 'Promise', this desire has been intensified. I want to tell you of my vision which was a glorious answer to my [[Prayer]]; but I am sure I would not have had this experience were it not for something that occurred two weeks ago.
+"From the first time I read your 'Search', I have longed to experience a vision. Since you have told us of the 'Promise', this desire has been intensified. I want to tell you of my vision which was a glorious answer to my [Prayer](/Prayer); but I am sure I would not have had this experience were it not for something that occurred two weeks ago.
 
 "It was necessary for me to park my car some distance from the University Building where I was scheduled to conduct my class. As I left my car, I was conscious of the stillness about me. The street was completely deserted; no one was in sight.
 
@@ -77,7 +55,7 @@ The fancy satisfied my feelings regarding the 'real' incident, and I immediately
 
 *"I was aglow and excited and thought 'this must be the Christos'; but something within me, without sound, said, 'No, this is you'. I feel I will never be the same again and some day I may experience the 'Promise'."* ...G.B.
 
-Our [[Dreams]] will all be realized from the time that we know that Imagining Creates Reality — and Act.
+Our [Dreams](/Dreams) will all be realized from the time that we know that Imagining Creates Reality — and Act.
 
 But Imagination seeks from us something much deeper and more fundamental than creating things: nothing less indeed than the recognition of its own oneness, with God; that what it does is, in reality, God Himself doing it in and through Man, who is All Imagination.
 

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Core Of Man
-keywords: []
-bible_ref:
-tags: lecture
-topics: [William Blake's Affirmation of Christianity, The Power of Imagination, Personal Experiences, The Revelation of Christ and Fulfillment of Scripture, The Oneness of Christ and Humanity, The Importance of Action and Testing Imagination, The Journey of Life and the Role of David, The Need for Experience and Awakening]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The last chapter of William Blake's poem, *"Jerusalem,"* (Plate 77), is addressed to the Christians. In it he says: *"Devils are false religions. I know of no other Christianity and no other gospel, than the liberty both of body and mind to exercise the divine arts of Imagination. Imagination, the real and eternal world of which this vegetable universe is but a faint shadow, and in which we shall live in our eternal or imaginative bodies when these vegetable, mortal bodies are no more. The apostles knew of no other gospel. What is that talent which is a curse to hide? What are the treasures of heaven which we are to lay up for ourselves? Are they any other than mental studies and performances?"*
 
 This is the only Christianity Blake could affirm. He never knew any other gospel, or Christ, other than his own wonderful human imagination! If you will accept your human imagination as Christ, and practice the divine art of imagining, called repentance, Christ will rise in you and you will experience scripture. When you repent, a radical change of thinking must occur. If life is bad, and you practice this divine art of imagining, you will think that life is good.

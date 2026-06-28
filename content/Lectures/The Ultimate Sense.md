@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Ultimate Sense
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Misinterpretation of Scripture, Understanding Scripture as Allegory, The Nature of Christ and Salvation]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In the Book of Nehemiah we are told that: *"They read from the book, from the law of God with interpretation and gave the sense so that the people understood the reading."* I wish that were true of today's preachers, but unfortunately they have mistakenly taken personifications for persons and the gross first sense for the ultimate sense intended.
 
 In today's paper I read where 325 graduate students of fifteen Catholic colleges were asked to name their ten heroes, in order, with no restrictions as to time. The late president Kennedy came in first, his brother Robert second, Martin Luther King third, with Jesus coming in fifth. Here are graduates of fifteen Catholic colleges who - seeing the Bible as secular history - place its primary character fifth in their heroic order when if read as literature (as many college students do) they would discover it is not secular history at all.
@@ -70,11 +56,11 @@ The name *"Isaac"* means *"he laughs."* Isaac was Abraham's promised son. He is 
 
 The word *"Moses"* means, *"to be born."* Moses could not enter the promised land because he had not yet been born. It is Moses who leads you up to the one being who is yourself. I have seen that one being and I know he contains the entire universe. From a distance he appeared as one man, but as I approached I saw he contained a multitude of nations, races, and people. Now I know that all that I behold, though it appears without it is within my imagination, of which this world of mortality is but a shadow. Truly the world is nothing more than yourself pushed out. And in the end you come out to discover you are that one Man who contains eternity - the one Being spoken of as the Lord Jesus Christ.
 
-I wish I could convince everyone that there is only one true gospel of Christ. Mankind is redeemed, not going to be. It is already done. If you are not there yet it doesn't mean you aren't going to get there. Nothing can prevent you from reaching your destination and having the experience, because the drama is over. It has been accomplished. Christ is risen, so mankind is already redeemed and no one can be lost. We are told that the Lord hardened Pharaoh's heart. If the Lord did it, Pharaoh had to do what he did, for it is a part of the play. On a certain level you can't understand, and like Job you will want to curse God and die, yet Job is your story. As an innocent being you are put through hell by the will of God, as told you in the 42nd chapter of Job: *"His friends came and comforted him for all the evil the Lord God had brought upon him."* No one else caused his sorrow. The dreamer puts himself through hell by his ignoble [[Dreams]], and that dreamer is God.
+I wish I could convince everyone that there is only one true gospel of Christ. Mankind is redeemed, not going to be. It is already done. If you are not there yet it doesn't mean you aren't going to get there. Nothing can prevent you from reaching your destination and having the experience, because the drama is over. It has been accomplished. Christ is risen, so mankind is already redeemed and no one can be lost. We are told that the Lord hardened Pharaoh's heart. If the Lord did it, Pharaoh had to do what he did, for it is a part of the play. On a certain level you can't understand, and like Job you will want to curse God and die, yet Job is your story. As an innocent being you are put through hell by the will of God, as told you in the 42nd chapter of Job: *"His friends came and comforted him for all the evil the Lord God had brought upon him."* No one else caused his sorrow. The dreamer puts himself through hell by his ignoble [Dreams](/Dreams), and that dreamer is God.
 
-Now that you are coming to the end, as it were, learn to alter the play. Make your world conform to your lovely concepts the same way the Father [[Dreams]] your life into being. Although you appear to be two, when he brings you to the climax you will be as one. God is your husband, your Maker who cleaves to you - his emanation, his wife - until you become one Being, one body, one Spirit, one Lord, one God and Father of all; for in the kingdom of heaven there is no room for two, only one.
+Now that you are coming to the end, as it were, learn to alter the play. Make your world conform to your lovely concepts the same way the Father [Dreams](/Dreams) your life into being. Although you appear to be two, when he brings you to the climax you will be as one. God is your husband, your Maker who cleaves to you - his emanation, his wife - until you become one Being, one body, one Spirit, one Lord, one God and Father of all; for in the kingdom of heaven there is no room for two, only one.
 
-Now, while you are still here you have needs which must be met and perhaps desires yet to be fulfilled, so I urge you to use the law by assuming that you have them, for your [[Assumption]] is the beginning of your dream. Although your reasonable mind and your outer senses deny it your persistence will harden your [[Assumption]] into fact. I have watched it happen unnumbered times. Your noble [[Dreams]] will not interfere with the basic dream that is taking place in you, so take your wonderful [[Dreams]] and persist in them. Walk as though they were true. Try to touch them and give them reality. If you can use the sense of odor try to detect it.
+Now, while you are still here you have needs which must be met and perhaps desires yet to be fulfilled, so I urge you to use the law by assuming that you have them, for your [Assumption](/Assumption) is the beginning of your dream. Although your reasonable mind and your outer senses deny it your persistence will harden your [Assumption](/Assumption) into fact. I have watched it happen unnumbered times. Your noble [Dreams](/Dreams) will not interfere with the basic dream that is taking place in you, so take your wonderful [Dreams](/Dreams) and persist in them. Walk as though they were true. Try to touch them and give them reality. If you can use the sense of odor try to detect it.
 
 One night a lady decided to test me by embracing a huge bouquet of roses. She caught the aroma of the rose and completely saturated herself with it, then she dropped the thought. This lady lived in the Waldorf Towers, and when she returned to her room the following evening she discovered three dozen roses had been placed there. It appeared that the Queen Mother was in New York City and had attended a banquet in her honor. Special roses were grown and [brought] there for her pleasure. The next day the maitre d' sent three dozen roses to this lady's room. She put her sense of smell to the test and within 24 hours her room was filled with roses.
 
@@ -99,7 +85,7 @@ Now let us go into the silence.
 ### Understanding Scripture as Allegory
 - The names in the Bible are personifications and should be understood symbolically.
 - Lewis Carroll's "Alice Through the Looking Glass" illustrates the possibility of seeing beyond the conventional reality.
-- The dreamer within is God, who [[Dreams]] the various parts of the play and is present in each character.
+- The dreamer within is God, who [Dreams](/Dreams) the various parts of the play and is present in each character.
 - The Bible is an allegory with divine origins, and experiencing it reveals its divinity.
 
 ### The Nature of Christ and Salvation
@@ -107,9 +93,9 @@ Now let us go into the silence.
 - The birth of Christ is a spiritual experience, and every child born has God's breath and the Christ seed.
 - The play of life involves moving through states until reaching the final state of Jesus Christ.
 - The play has a predetermined conclusion, and all of mankind is already redeemed.
-- Personal desires can be manifested through the use of imagination and [[Assumption]].
+- Personal desires can be manifested through the use of imagination and [Assumption](/Assumption).
 - The present moment is always advancing into the future to bring the fulfillment of desires.
-imagination and [[Assumption]].
+imagination and [Assumption](/Assumption).
 - The present moment is always advancing into the future to bring the fulfillment of desires.
 sires.
 

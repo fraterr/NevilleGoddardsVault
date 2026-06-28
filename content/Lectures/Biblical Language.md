@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Biblical Language
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Language of the Bible, The Imaginative World, Finding the Father, Scripture Comes Alive, Do Not Attempt to Change the World, The Power of Imagination, The One Father and One God, The Awakening of God within You, The Evocative Power of Scripture, The Evocative Power of Scripture]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"All are Men in Eternity. Rivers, Mountains, Cities, Villages,   
 All are Human, and when You enter into Their Bosoms,  
 You walk In Heavens and Earths;   
@@ -41,7 +27,7 @@ Have you ever reclined in a chair with your eyes closed as in sleep and pictured
   
 Taking upon himself all the weaknesses and limitations of the flesh, God became as you are, that you may become as he is. And when he awakens within you, you are he. If you will believe in your own wonderful, imaginative world, everything will be under your control - but everything! And you will know that everyone in your world is within you, to be contacted at will. That no one can escape you; and when you rise within yourself, everyone rises with you. That is the story of scripture.   
   
-While you are here you can test your creative power based upon your desires. You may desire something you think you cannot afford, or you don't have the time or the know-how to enjoy it. You can think of a thousand reasons why its possession is impossible; but - hearing that imagination creates reality - you can imagine you have it. But to imagine is not enough; you must have faith enough in your imaginal act to believe in its reality. When you imagine you are the person you want to be, you must firmly believe you already are it; then wait in faith for your [[Assumption]] to appear in your world, for that imaginal act has its own appointed hour. It will ripen and flower. If it seems long to you - wait, for it is sure and will not be late.   
+While you are here you can test your creative power based upon your desires. You may desire something you think you cannot afford, or you don't have the time or the know-how to enjoy it. You can think of a thousand reasons why its possession is impossible; but - hearing that imagination creates reality - you can imagine you have it. But to imagine is not enough; you must have faith enough in your imaginal act to believe in its reality. When you imagine you are the person you want to be, you must firmly believe you already are it; then wait in faith for your [Assumption](/Assumption) to appear in your world, for that imaginal act has its own appointed hour. It will ripen and flower. If it seems long to you - wait, for it is sure and will not be late.   
   
 The link between your imaginal act and its fulfillment is your faith, which is nothing more than your subjective appropriation of your objective hope. Hoping your desire - subjectively appropriated - is true, faith is your link to its objectivity. Act as God, and simply let it be so. God said: *"Let there be light, Let the sun appear. Let the moon appear."* After his imaginal act, God let everything appear, sustaining it by faith, knowing that without faith it is impossible to bring it to pass. *"Faith is the assurance of things hoped for, the evidence of things not yet seen."* If you have faith in the reality of your imaginal act, it must objectify itself in your world.   
   

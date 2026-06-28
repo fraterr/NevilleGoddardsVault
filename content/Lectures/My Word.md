@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: My Word
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Word and its Purpose, Indentured Labor and Redemption, Consciousness and Slavery, Eternity and David, The Play and the Role, The Nature of Wealth and Respect, God as the Playwright, Sarah's Vision and Mary's Experience, Awakening and the Power of Nature, Redemption and Unity, Imitating God and the Nature of Desires, Imitating God and the Nature of Desires]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"My word that goes forth from my mouth shall not return to me empty, but shall accomplish that which I purpose and prosper in the thing for which I sent it."* (Isaiah 55) This is the same word recorded in the Book of John as: *"In the beginning was the word and the word was with God and the word was God. The word became flesh and dwells in us."* (John 1) The Revised Standard Version of the Bible has mistranslated the preposition *"in"* to read *"among"* as the word, becoming flesh, dwells in us. Notice John used the plural "us', for it was not a person the word assumed, but the nature of being a person. The word assumed human nature, to become the mold upon which the pattern is molded. 
 
 In the beginning the word was with God and was God. The Greek word *"logos"* (translated *"word"*) means *"pattern, that which gives meaning, a plan."* In the beginning there was a plan called Jesus Christ. He is the pattern man, who took upon himself human nature to become the mold upon which our nature is being formed. The word did not become an individual called John, Neville, Peter, or Grace - but human nature, so that when his work is finished in an individual, he will say: *"I am He."*
@@ -37,7 +23,7 @@ But God, being protean, is playing every part. When Bennie saw the violence, he 
 
 If at the present time you are financially behind the eight-ball, assume the nature of wealth until you embody it. You must forget a person called Jesus, and think of him as God's word, which became flesh and dwells in you. He never assumed a person, but man's nature.
 
-In the state of Abraham, Imagination took upon himself the element of human nature before he took on a personality. Finding himself in human form, the word molds human nature upon himself until humanity becomes the very image of God. And on that day, he who began the good work in you will unveil himself, and you will know that you are God. Having written the play with all of its horrors, God plays all the parts. One day every son will know he is the author of the play. On that day his creative power and wisdom will be enhanced beyond his wildest [[Dreams]], because - as life itself - the word assumed the state of death and conquered it.
+In the state of Abraham, Imagination took upon himself the element of human nature before he took on a personality. Finding himself in human form, the word molds human nature upon himself until humanity becomes the very image of God. And on that day, he who began the good work in you will unveil himself, and you will know that you are God. Having written the play with all of its horrors, God plays all the parts. One day every son will know he is the author of the play. On that day his creative power and wisdom will be enhanced beyond his wildest [Dreams](/Dreams), because - as life itself - the word assumed the state of death and conquered it.
 
 Now, a lady recently shared a perfectly marvelous experience with me, saying: *"I saw myself come out of myself as an old woman, holding a child in her arms. Although I saw her as another, I knew her as myself."* This is a perfect vision of the 18th chapter of Genesis. Sarah was an old woman. It had long since ceased to be with her after the manner of women, yet she brought forth the promised child. In this chapter God speaks to Abraham, and as he tells him of the promise, it turns from the first into the third person. It is said that Sarah laughed because she and Abraham were old. At the time she did not recognize the Lord; but when the one speaking of him in the third person says: *"Is anything too hard for the Lord?"* Sarah recognized him and doubted no more. This lady had the vision of Sarah, and will now have the experience of Mary and bear the promised child. That same night, as she closed her eyes, she saw a huge ear, a hammer, and a spike. As she watched, invisible hands drove the spike through the ear. Although she knew the ear was hers, it did not hurt. By that act, this lady fulfilled the 40th chapter of the Book of Psalms, for if you read the footnote you will see that ears will be bored for you. This is done for you to hear the word, coming uninterrupted from within.
 

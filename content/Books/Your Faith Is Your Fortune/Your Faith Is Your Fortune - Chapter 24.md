@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Clairvoyance
-keywords: []
-bible_ref:
-  - Mark 8:18
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Having eyes, see ye not? and having ears, hear ye not? and do ye not remember?"* (Mark 8: 18)
 
 True clairvoyance rests, not in your ability to see things beyond the range of human vision, but rather in your ability to understand that which you see.

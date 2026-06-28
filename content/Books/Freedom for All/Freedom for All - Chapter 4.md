@@ -1,28 +1,3 @@
----
-book: Freedom for All
-chapter: The Secret of Feeling
-keywords: []
-bible_ref:
-  - Genesis 27:1-35
-  - Genesis 27:21
-  - Genesis 27:35
-  - Genesis 27:37
-  - Matthew 18:19
-  - John 14:2-3
-  - Isaiah 61:1
-  - Luke 4:18
-tags: book
-topics:
-  - Jacob steals Esau's blessing via feeling
-  - Characters as symbolic states
-  - The conscious state determines the objective world
-  - Agree through feeling to realize desires
-  - Steps to apply the law
-  - Examples
-banner: Handles/img/banner freedom for all.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 The secret of feeling or the calling of the invisible into visible states is beautifully told in the story of Isaac blessing his second son Jacob by the belief, based solely upon feeling, that he was blessing his first son Esau (Genesis 27:1-35).
 
 It is recorded that Isaac, who was old and blind, felt that he was about to leave this world and wishing to bless his first son Esau before he died, sent Esau hunting for savory venison with the promise that upon his return from the hunt he would receive his father’s blessing.

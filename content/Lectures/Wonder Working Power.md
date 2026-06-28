@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Wonder Working Power
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Wonder Working Power, God and Self-Identity, Inner Penetration and Imagination, Reality and Feeling, Subjective State and Objective Fulfillment, Identity and Wonder Working Power, Adjusting Consciousness and Moving Between States, Conscious Use of Imagination and Belief, Desire, Power, and Illumination, Interconnectedness and Giving, Recreating the Story and Redemption, Interconnectedness and Giving, Recreating the Story and Redemption]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 You have within you a wonder working power! To understand this power, let us turn to the Book of Joshua, where we are told: *"Wherever the sole of your foot shall tread, I have given you."* The Hebrew form of the word *"Joshua"* is Yad He Vav [corr. Yod Hey Vav Shin Hey, pron. Ye-ho-SHOO-ah] and means, *"Jehovah saves"*. So you see, Joshua is not promising another, but himself!
 
 Jehovah leads the dance of life. We are his dancers, yet his very self; for God and his eternal name is one I AM. There is no place you can go and not know that you are! You may suffer from amnesia and not know who you are or where you are, but you know that you are; so without voicing it you are saying I AM! That's God. There is no place where God is not and there is nothing that God is not; for if there is something, it has to be God!

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: He Is My Resurrection
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Mystery of the Gospel, Vision of the Train, Our Pre-existence and Detachment from God, Vision of the Black Robe and Umbrella, Vision of the Thirty Minutes, The Imagination and the Law of Assumption, The Ouija Board and Neurotic Sin, The Reality of Our Imagination, The Future State of Immortality, The Use of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The gospel, which appears to be a little secular story, is truly a mystery to be known only by revelation.  
   
 In the 16th chapter of John we are told: *"I came out from the Father and came into the world. Again I leave the world and I return to the Father."* In these four short phrases we find the pre-existence of Christ, his incarnation, his death, and his ascension. I could put this in the first person, plural sense and say: *"We came out from the Father"* for we are told in the 1st chapter of Ephesians: *"He chose us in him before the foundation of the world."* So all of us were chosen in him. That is why I can say, *"We came out from the Father and came into the world. Again we are leaving the world and are going to the Father."*  
@@ -48,7 +34,7 @@ This lady has conceived of the Holy Spirit and is now waiting - not minutes, mil
   
 We came out from the Father, containing within ourselves the ovum (all that is necessary to become the Father). Walking through the centuries we have carried our egg, awaiting that moment in time when the egg is fertilized. One who is a Son of God by nature, having been born for that purpose, will be used in that capacity so that others may become sons of God by grace. It is all supernaturally done. Some remember when the union took place, but it is not experienced on this level at all.  
   
-In the meanwhile don't neglect the law of God which is: An [[Assumption]] will harden into fact. If an [[Assumption]] creates its own reality then there is no such thing as fiction. I may forget what I assumed today and when it appears I may not recognize my own harvest, but it could not enter my world had I not brought it in by an imaginal act.  
+In the meanwhile don't neglect the law of God which is: An [Assumption](/Assumption) will harden into fact. If an [Assumption](/Assumption) creates its own reality then there is no such thing as fiction. I may forget what I assumed today and when it appears I may not recognize my own harvest, but it could not enter my world had I not brought it in by an imaginal act.  
   
 Tonight some unknown author is writing a story in order to pay the rent. The story may not sell, but for a moment he will lose himself in its creation, and when his story comes to pass in the tomorrows, those whose lives will be touched will not recognize his harvest. Tonight the movie, *"A Night to Remember"* will be shown on television. Although the movie was recently made, it is based upon the sinking of the Titanic in 1912, which duplicated a book called Futility, written in 1898. In the novel, a ship filled with the rich and complacent was on its maiden voyage, when it sank on an iceberg in the Atlantic. Fourteen years later the White Star Line built a duplicate of the imaginary ship described in the book, filled it with the rich and complacent, where it sank on its maiden voyage on an iceberg in the Atlantic. And people say there is fiction? No, there is no fiction.  
   
@@ -79,7 +65,7 @@ In the 5th chapter of 2 Corinthians, Paul is speaking to those he addressed when
   
 I tell you: throughout the night I move through sections of time, for I have other sheep that are not of this body. I must gather them all into one fold before I can return to the Father as the Father. This is my story.  
   
-You dwell upon it and don't neglect the principle of your wonderful imagination. Use it lovingly on behalf of everything, for when you do, you are using it on yourself, as there is no other. The world is yourself pushed out. Imagine and then drop it. You don't have to burst a blood vessel, call the *"right"* people, or do the *"right"* thing in order to succeed. All you need do is assume you are now what you want to be. Remain faithful to that [[Assumption]] and in a way that no one knows you will become it. Then try it again and again, and while you are about your Father's business working this principle, another work, unknown to the world, is taking place in you, preparing you for the fullness of time when the egg you have been carrying throughout the centuries is fertilized. Then, thirty years later, it erupts and all that is said of Christ is experienced in a personal, most intimate manner.  
+You dwell upon it and don't neglect the principle of your wonderful imagination. Use it lovingly on behalf of everything, for when you do, you are using it on yourself, as there is no other. The world is yourself pushed out. Imagine and then drop it. You don't have to burst a blood vessel, call the *"right"* people, or do the *"right"* thing in order to succeed. All you need do is assume you are now what you want to be. Remain faithful to that [Assumption](/Assumption) and in a way that no one knows you will become it. Then try it again and again, and while you are about your Father's business working this principle, another work, unknown to the world, is taking place in you, preparing you for the fullness of time when the egg you have been carrying throughout the centuries is fertilized. Then, thirty years later, it erupts and all that is said of Christ is experienced in a personal, most intimate manner.  
   
 Now let us go into the silence.
 
@@ -116,7 +102,7 @@ Now let us go into the silence.
 - In reality, she is waiting for the fulfillment of her spiritual pregnancy, which will take thirty years.
 - Despite uncertainties, she is richer than anyone for being chosen to receive the gift of God.
 
-### The Imagination and the Law of [[Assumption]]
+### The Imagination and the Law of [Assumption](/Assumption)
 - Our imagination is Jesus Christ, the Son of God within us.
 - Whatever we imagine and assume becomes our reality.
 - Fiction does not exist as everything is created and influenced by imagination.

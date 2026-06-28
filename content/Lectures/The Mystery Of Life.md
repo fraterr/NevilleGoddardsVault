@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Mystery Of Life
-keywords: [Meditation, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Mystery of Life Unfolded by One, Salvation History and the Son of Perdition, Everyone is a Son of God, The Experience of Awakening, Remembrance and Unity, The Continuous Awakening of Jesus, The Mystery of Christmas, The Ultimate Form, The Invitation to Reflect]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The words of one in whom the great mystery of life unfolded, are enigmatic. And the evangelist who wrote the gospels, kept that great mystery as it was told. In the 17th chapter of the Book of John, he is speaking to God the Father, the depth of himself, saying: *"Now I am no more in the world, but they are in the world and I am coming to thee. Holy Father, keep in thy name that which thou hast given to me that they may be one, even as we are one."* (The only name that can bind us together and make us one is Father. When you and I discover that we really are the Father, we will understand the mystery of life.) Now he makes this statement: *"I have guarded them and none is lost but the son of perdition that the scripture might be fulfilled."* 
 
 Bear in mind, this is not secular history, but salvation history; so who is this son of perdition that is lost? Scholars claim it is one called Judas, but that is not true. If you want to get close to the answer, read the 18th Psalm, which is repeated in the 22nd chapter of 2 Samuel. This is a hymn David sings, praising the Lord for saving him from death and destruction. And the word *"perdition"* means *"death and destruction."* 
@@ -57,7 +43,7 @@ In the world the One is fragmented into the many. Regardless of the pigment of y
 
 I lived in a basement apartment on 75th Street in New York City, not knowing where the next dollar was coming from. I did not despair, however, but sat in the silence and quietly closed my eyes. I was not thinking of anything in particular, just resting with my eyes shut, watching the golden clouds which always come, as all the dark convolutions of the brain grow luminous. As I contemplated this golden, liquid light, a quartz approximately 20" in diameter suddenly appeared, then fragmented itself into numberless parts. As I watched, they gathered themselves together into a human form seated in the lotus posture. Startled, I realized that I was looking at myself - but a self containing such majesty of face and beauty of features, that I could never have believed possible. There was nothing I could have added to that perfection to improve it. 
 
-I was looking at myself in deep [[Meditation]], not as a piece of clay, but a living statue. Then it began to glow and increased in luminosity until it reached the intensity of the sun and exploded; and I awoke to find myself still seated in my chair in my little basement apartment in New York City. Turning to scripture, I read the 32nd chapter of Deuteronomy: *"Of the Rock that begot you, you are unmindful and of the God who gave you birth you are unaware."* 
+I was looking at myself in deep [Meditation](/Lectures/Radio Lectures/Meditation), not as a piece of clay, but a living statue. Then it began to glow and increased in luminosity until it reached the intensity of the sun and exploded; and I awoke to find myself still seated in my chair in my little basement apartment in New York City. Turning to scripture, I read the 32nd chapter of Deuteronomy: *"Of the Rock that begot you, you are unmindful and of the God who gave you birth you are unaware."* 
 
 Then in the 10th of 1 Corinthians, I read: *"They drank from the spiritual Rock which followed them, and the Rock was Christ."* Now I know that within all is Christ, the Rock that never fails. 
 
@@ -79,7 +65,7 @@ Then the imagery of scripture, as told in the 2nd chapter of the Book of Luke, s
 
 God is the savior of the world as told us in the 43rd and 45th chapters of the Book of Isaiah. *"I am the Lord your God, the Holy One of Israel, your Savior and besides me there is no savior."* The savior's name is I am. 
 
-It is God who awoke when I awoke in my skull. In the Book of Psalms, God is told to *"Rouse thyself, why sleepest thou, O Lord."* It is God who sleeps and [[Dreams]] the dream of life, animating the world of death until he awakes within the skull of man where he first entered. His departure from that tomb is the birth we now celebrate on the 25th day of December. 
+It is God who awoke when I awoke in my skull. In the Book of Psalms, God is told to *"Rouse thyself, why sleepest thou, O Lord."* It is God who sleeps and [Dreams](/Dreams) the dream of life, animating the world of death until he awakes within the skull of man where he first entered. His departure from that tomb is the birth we now celebrate on the 25th day of December. 
 
 This is followed by the great revelation of remembrance, for on that day God's son David reveals your fatherhood. After this revelation you will understand the words of Robert Grave's poem which I have quoted, because only then will you know true unity. If I am the father of your son, and one you know other than the speaker is the father of our son, are we not one father? So in the end there is only one body, one Lord, one Spirit, one God and Father of all. 
 

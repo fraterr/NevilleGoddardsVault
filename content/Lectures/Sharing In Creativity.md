@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Sharing In Creativity
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Sharing in Divine Creative Activity, Faith in the Pattern of Christ, Birth from Above and Union with God, Departing from False Beliefs and Institutions, Sharing in Divine Creative Power, The Unveiling of Christ from Within, Building God's Living Temple, Embracing Silence, Embracing Silence]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 There is no greater thrill than sharing in divine creative activity! This activity, however, cannot be earned, for it is given by grace. When someone proclaimed: *"I am of Paul and I am of Apollo,"* Paul asked, *"Who is Paul and who is Apollo? I have planted and Apollo has watered, but God gives the growth."* An idea is a seed which can be planted in the mind; but having no life in itself, the thought will remain dormant unless God gives it birth.
 
 Speaking of a remnant, Paul said: *"When Elijah petitioned God against Israel because they had killed his prophets and destroyed his altars, and I alone am left, what did God say? He said: 'I have seven thousand men who have not bent their knee to Baal."* Then Paul added this thought: *"So, too, at this time there is a chosen remnant, chosen by grace; and if it is by grace, then it is not based on works - otherwise, grace would no longer be grace."* (Romans 11) The remnant is chosen by grace, yet no one knows the secret of God's selective love, and therefore cannot boast if he is elected. I, like Paul, say that at this time also a remnant has been chosen.

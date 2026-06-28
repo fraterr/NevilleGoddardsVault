@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Heavenly Vision
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Paul's Faithfulness to the Heavenly Vision, Paul's Understanding of Christ, Scripture as a Mystery, The Creative Act of God and Christ's Power, The Vision of the Heavenly State, Allegorical Nature of Scripture, The Promise and Destiny of All, Transformed Values and Interpretation of Scripture, Redemption through Christ's Resurrection, Redemption through Christ's Resurrection]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The most that can be expected of any man is that he be true to the vision he has seen. Paul, the greatest and possibly the most influential figure in the history of Christianity, was such a man. When brought in chains before the king, he said: *"Here I stand on trial for hope in the promise made by God to our fathers. Why is it thought incredible by any of you that God raises the dead? O King Agrippa, I was not disobedient to the heavenly vision. Here I stand testifying, saying only what the prophets and Moses said would come to pass.' As he made his defense Festus said, 'Paul, you are mad; your great learning is turning you mad.' But Paul said, 'I am not mad. I am speaking the sober truth. I will not venture to speak of anything except what Christ has wrought in me.'"* 
 
 Paul knew no physical Christ, but defined him as the power of God and the wisdom of God, telling us: *"From now on I regard no one from a human point of view; even though I once regarded Christ from a human point of view, I regard him thus no longer. I know only Christ and him crucified."* Paul urged us to always bear in mind that scripture was a mystery - a shocking mystery. It is told so beautifully, unless you take the trouble to look up the words as you read them you will accept their surface meaning, as one billion Christians do. Tonight, if I used the word, *"crucified"*, the average Christian would see a man impaled upon a wooden cross, or maybe hanging on a tree, but that is not what Paul meant when he used the word, *"crucified."*

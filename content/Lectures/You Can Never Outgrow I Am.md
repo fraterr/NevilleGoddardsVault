@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: You Can Never Outgrow I Am
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [1. The God of First Person, Present Tense Experience, 2. Believing in the I AM, 3. Finding God Within, 4. Testing and Experiencing God's Power, 5. Fulfillment of Scripture and Personal Experiences, 6. Knowing God and Embracing Oneness, 7. Finding God as the Ultimate Goal, 8. God Awakens Within and the Unveiling of Christ, 9. Faith, Loyalty, and the Tree of Knowledge, 10. The Eternal Self and the Illusion of Birth and Death]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 A man can never outgrow or lose the God he knows in a first person, present tense experience. And when he finds this God he tells his brothers, saying: *"If I had not come and spoken to you, you would have no sin, but now you have no excuse for your sins."* God reveals himself to man as his eternal contemporary, saying: *"Unless you believe that I am he, you will die in your sins,"* but man finds it almost impossible to keep the tense. He thinks of God in the third person, addresses him in the second person, but can only know God in a first person, present tense experience. Just imagine - no one can sin until God reveals himself to the individual in a first person, present tense experience. Only then can man have no excuse for his sin. And when one who finds God tells his brothers, he receives no greater reception than the first one did, because they see him as a man of flesh and blood, and cannot see this invisible being who says: *"I came down from heaven."* Man is looking for Christ to come from without, but his revelation is whispered from within.
 
 *"I tell you: I have been crucified with Christ. It is not I who lives, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me."* In that act he, whose name is I AM, became me. And if I do not believe that my I amness is he, I will die in my sin.
@@ -74,7 +60,7 @@ Remember, you can only sin against that self of you who is God. And any time you
 
 Before descending into the land of forgetfulness you made yourself a promise that one day your memory would return and you would realize you were the creator of it all, for God gave you himself. He actually became you, as told in the story of Melchizedek. He had no father, no mother, no beginning, and no end. In the end you become a priest after the order of Melchizedek, knowing the whole vast infinite universe was created by and sustained by you. Now, this is really incredible. I recently read that the great Einstein said: *"I rejoice in the discovery of the uniformity of the laws of nature and whoever is behind it that we call the Lord. But that man should survive the disintegration of the brain, to me is unthinkable."* If a man as wonderful as Einstein feels that the story of the gospel is unthinkable, then condemn no one. You can't deny Einstein's greatness. He was tender, kind and sincere; but in spite of that gentility he was quite satisfied to dwell in the uniformity of the laws of nature and whoever is behind it.
 
-I tell you there is one behind it all. He so loved you he became you and the day is coming when you will know that you are he. You will know you are not the creation of the city, but its creator. You are not the made, but the maker. Whether you are male or female, you are the emanation of the Lord yet his wife till the sleep of death is past. Then you will awake to know you never left your heavenly home, you were never born and never die, save in your [[Dreams]].
+I tell you there is one behind it all. He so loved you he became you and the day is coming when you will know that you are he. You will know you are not the creation of the city, but its creator. You are not the made, but the maker. Whether you are male or female, you are the emanation of the Lord yet his wife till the sleep of death is past. Then you will awake to know you never left your heavenly home, you were never born and never die, save in your [Dreams](/Dreams).
 
 Now let us go into the silence.
 

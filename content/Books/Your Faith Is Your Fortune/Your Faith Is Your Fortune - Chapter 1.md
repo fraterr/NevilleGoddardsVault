@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: Before Abraham Was
-keywords: []
-bible_ref:
-  - John 8:58
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Verily, verily, I say unto you before Abraham was, I AM."* (John 8: 58)
 
 

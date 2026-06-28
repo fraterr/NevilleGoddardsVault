@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Blake On Religion
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Blake's Vision of Reality, Unity and Interconnectedness, Evolution and Animal World, Imagination and Divine Mercy, The Virginity of the Virgin, Forgiveness and Reverence, Blake's Impact]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When you are discussing Blake you are discussing one of the greatest spiritual giants of all time. You might just as well discuss St. Paul, for they had the identical visions, the vision of reality. Tonight we can cover only a portion of his gift to the world. In his *"Auguries of Innocence"* he says:  
   
 *“To see a World in a Grain of Sand  

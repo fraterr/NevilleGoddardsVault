@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Spirit Within
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Names in the Bible represent states of consciousness, Understanding the state of Satan, True judgment does not have to conform to external facts, Jesus as the Spirit of Truth, The Messiah as the top and foundation stone, The plan of salvation within each individual, Realization of the Word of God within oneself, The fulfillment of scripture in oneself, The power of imagination as the cause of creation, Understanding the personifications in scripture, The realization of being one with God, Understanding the personifications in scripture, The realization of being one with God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When reading the Bible always bear in mind that the persons Abraham, Isaac, Jacob, Jesus, Peter, Paul, (or any name appearing there) are states of consciousness. The names only identify the states represented. If you see the characters as persons, you misunderstand scripture, for the names are simply personifications of eternal states which will be revealed to you, mortal man, in a series of divine revelations.
 
 Satan, for instance, personifies the state of complete unbelief. In the state of Satan you cannot accept a thing as real unless you can touch it or see it. Blake tells us: *"Satan believes that sin is displeasing to God. He ought to know that nothing displeases God but unbelief and eating of the Tree of Knowledge of Good and Evil. The Combat of Good and Evil is eating of the Tree of Knowledge. The Combat of Truth and Error is Eating of the Tree of Life. These are not only Universal, but Particular. Each are Personified."* Here he speaks of Satan as an eternal state into which anyone may fall when a state is denied because it is not in harmony with the outer senses.

@@ -1,16 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: A Formula for Victory
-keywords: []
-bible_ref:
-  - Joshua 1:3
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Every place that the sole of your foot shall tread upon, that have I given unto you."* (Joshua 1:3)
 
 The majority of people are familiar with the story of Joshua capturing the city of Jericho. What they do not know is that this story is the perfect formula for Victory, under any circumstances and against all odds.

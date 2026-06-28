@@ -1,19 +1,3 @@
----
-book: The Power of Awareness
-chapter: Renunciation
-keywords: []
-bible_ref: null
-tags: book
-topics:
-  - Resist Not Evil
-  - Renounce It
-  - Control Imagination For Good
-  - Become A Tree of Righteousness
-  - Prune Imagination For Happier Life
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 There is no coal of character so dead that it will not glow and flame if but slightly turned.
 
 Resist not evil.

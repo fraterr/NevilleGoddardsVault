@@ -1,14 +1,3 @@
----
-book: 
-chapter: Release Barabbas And Crucify Jesus
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Art of Living, The Microcosm of the Soul Within, The Story of Jesus and Barabbas, "Case Study: Manifesting a Dream", The Power of Imagination, Living in the Wish Fulfilled, Forgiveness and Change of Consciousness, Expanding Consciousness and Exploring Other Realms, Closing Thought, Closing Thought]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 As you know, we feel that life should be a perpetual increase of the things you love! That, to me is the art of living. In man's ability to live in the end, to live in the feeling of the wish fulfilled, lies man's capacity to live the more abundant life. I do not care what your objective is; feeling that you have it is living a more, abundant life.
 
 First, tonight, let us turn to three who were awake, and by three I mean three men. The whole purpose of life is to awaken and join the chorus of awakened humanity, which is God. We will turn to a great poet, one who passed from this sphere only within the last two or three years, Walter de La Mare.
@@ -16,7 +5,7 @@ First, tonight, let us turn to three who were awake, and by three I mean three m
 "So flows experience, the vast without.
 It is the microcosm of the soul within,
 The day-distracted eye may doubt,
-But no longer as the [[Dreams]] begin."
+But no longer as the [Dreams](/Dreams) begin."
 
 
 Think of it! This vast *"without"* is the microcosm of the soul within. The day-distracted eye cannot believe it, but you take this and expand it to the nth degree and see that the *"vast without"* is only the microcosm of the soul within. How can man believe it?
@@ -59,7 +48,7 @@ The two factors which are most important in my world, I would say, are my person
 
 Can you forgive a man by mumbling some words and saying you have forgiven him? You can only forgive to the degree that *"complete"* change of consciousness takes place. When I think of you, I should see a different you, a new you. If I do not see a different you then I have not forgiven you. This lady I told you of tonight *"forgave"* her friend, for she saw her happily married. And that marriage was consummated.
 
-I tell you that no matter what your dream is it can be realized, you will enact the crucifixion. If you think the *"resurrection is past already, you have departed from the truth"* (Second Timothy 2:18) It must be going on eternally. It is up to you what you do now. Everyone can do it. That is the purpose of this platform - so that you may not only realize your [[Dreams]] here, but that you awaken and slip into other worlds. There are worlds within this world, and worlds within worlds. I know - I have seen them and I have been in them. It does not matter what people say to me about whether I can do it or not. I know I can do it, and I do it. I know that I live in a home in West L.A. and come here on Monday and Thursday nights. You might as well tell me that I do not come here, as to say that I cannot enter some other sphere. I cannot take you with me, for the world only calls *"reality"* what can be shared. But it was not a subjective illusion; it was real.
+I tell you that no matter what your dream is it can be realized, you will enact the crucifixion. If you think the *"resurrection is past already, you have departed from the truth"* (Second Timothy 2:18) It must be going on eternally. It is up to you what you do now. Everyone can do it. That is the purpose of this platform - so that you may not only realize your [Dreams](/Dreams) here, but that you awaken and slip into other worlds. There are worlds within this world, and worlds within worlds. I know - I have seen them and I have been in them. It does not matter what people say to me about whether I can do it or not. I know I can do it, and I do it. I know that I live in a home in West L.A. and come here on Monday and Thursday nights. You might as well tell me that I do not come here, as to say that I cannot enter some other sphere. I cannot take you with me, for the world only calls *"reality"* what can be shared. But it was not a subjective illusion; it was real.
 
 There are many things that cannot be shared at the time, for the background of the other is not such that they are ready to receive it. But that does not make it less real. In time all will come to it.
 
@@ -106,7 +95,7 @@ Now let us go into the silence.
 - Change of consciousness is the key to forgiveness and self-transformation
 
 ### Expanding Consciousness and Exploring Other Realms
-- The purpose of the teachings is to help individuals realize their [[Dreams]] and expand their consciousness
+- The purpose of the teachings is to help individuals realize their [Dreams](/Dreams) and expand their consciousness
 - There are worlds within this world, and exploring other realms is possible
 - Personal experiences and realities may not be shareable at the time but are still valid and real
 

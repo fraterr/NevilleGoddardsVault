@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Experience Scripture
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Unraveling the Mystery of Christ, The Identity of the Son of Man, The Son of Man Lifted Up, The End of the World, The Temple Within Us, The Mount of Olives and Birth from Above, The Fiery Serpent and the Skull, The Revealment of Scripture in Each Individual, The End of the Journey and the Oneness with God, The Fulfillment of Scripture, The Fulfillment of Scripture]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 To unravel the mystery of Christ from all the interpretations put upon it is quite a different task. We are up against all kinds of misunderstandings of the mystery. Most people believe that it is secular history, and the story has something to do with some historical occasion; and it isn’t. It is salvation history. The whole thing is taking place in you, the individual. It’s not taking place on the outside at all. But how to convince men that this is true? Well, tonight we will try. I will try to explain what I know from my own experience. The story is told of Christ; and the term called *"Son of Man"* is a term used most to describe the Christ, the Messiah.
 
 We are told in the Book of Daniel: *"And on like a son of man came to the Ancient of Days, and was presented before him, and he was given dominion and glory and kingdom."* [Daniel 7:13]

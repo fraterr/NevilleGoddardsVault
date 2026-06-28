@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: One Thousand Two Hundred Sixty Days
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Introduction, Daniel's Vision and the 1,260 Days, The Woman Clothed with the Sun and the 1,260 Days, The Manner of Jesus' Birth and Understanding Christ's Identity, The Author's Personal Experiences and the 1,260 Days, The Ancient Calendar and the Pattern of 1,260 Days, Fulfilling Scripture and the True Identity of Christ, The End of the Age and the Unity of God's Body, The Vision of the Sacrificed One and the Arm of the Lord, Believing in oneself as Jesus Christ and the Fulfillment of Scripture, Believing in oneself as Jesus Christ and the Fulfillment of Scripture]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 According to a rabbinical principle, what is not written in the Old Testament does not exist. The life of Jesus follows this principle. He made no attempt to change the world of Caesar or its social order, but left it just as it is, for man to make mistakes and live as he desires. Urging man to render unto Caesar the things that are Caesar's and unto God the things that are God's, Jesus comes into our lives for one purpose and that is to fulfill scripture. Tonight I want to show you how this is done in 1,260 days.
 
 Daniel confesses in the last chapter of his book that he did not understand the vision, when: *"A man stood clothed in linen, above the water, who said to me, 'The words are closed and sealed until the time of the end.' I asked him how long shall it be to the end of these wonders and he said, 'A time, two times, and half a time.'"* In Hebrew thought, a time is a year or 360 days; so we have three years of 360 days each and a half year of 180 days, which equal 1,260 days. Daniel was not told when the signs would begin, only that it would take 1,260 days to complete them.

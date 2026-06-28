@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Rock
-keywords: [Assumption, Meditation, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Perfect Rock, The Sons of God, Personal Experience, Population and Economy, Awakening and Perfection, Personal Transformation, The Perfect Rock as Foundation, Assumption and Fulfillment]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 In the 32nd chapter of the Book of Deuteronomy, we are told: *"The rock, his work is perfect."* Then this question is asked: *"Is he not your father who created you? Separating the sons of men, he fixed bounds to the people according to the number of the Sons of God."* Today there is much talk about curtailing the population explosion. This we will never do, for the bounds are already recorded.
 
 Not one child could be born were it not for a son of God giving it life. For it is the sons of God who become the perfect Rock. In the Book of Psalms, it is said: *"I will behold thy face in righteousness and I will be satisfied when I awaken with thy likeness."* Although it is hard to believe that the Rock could be God, it is true, for the Rock is the only foundation, and no other foundation can anyone lay than that which is made, which is Christ.
@@ -46,10 +32,10 @@ I tell you a truth! Although you are unmindful of this rock and have forgotten t
 
 As far as I am concerned, individually, I have awakened. For me the dream of life is over and I know from experience that scripture is true from beginning to end. I know that we are the sons of God who collectively form the only God, and there is no other!
 
-Now, there is no other foundation than that which is laid, which is Jesus Christ. That foundation is the Rock who is now forming itself into a beautiful youth. Christ is breathing in you, making your body alive. It is Christ who [[Dreams]] your every dream, even the most horrible ones. He inspires every vision, as well as all of your actions. And when you are perfect in his eyes so that you can be superimposed upon him with a perfect fit, his work will be finished and He will awaken as you!
+Now, there is no other foundation than that which is laid, which is Jesus Christ. That foundation is the Rock who is now forming itself into a beautiful youth. Christ is breathing in you, making your body alive. It is Christ who [Dreams](/Dreams) your every dream, even the most horrible ones. He inspires every vision, as well as all of your actions. And when you are perfect in his eyes so that you can be superimposed upon him with a perfect fit, his work will be finished and He will awaken as you!
 God, desiring to make man into the perfection that he is, clothed himself in mortal flesh to dream this dream of life. We agreed to dream this world into being in order to become more luminous, more expanded, and greater than we were when we descended. And this we will do.
 
-A friend recently shared this experience with me. A few years ago his friend was about to give up the theater, believing it was too difficult for him - a black man - to succeed. My friend loaned him my book, Out Of This World, in which I stated that an [[Assumption]], though false, if persisted in, would harden into fact. His friend read the book but could not believe this statement.
+A friend recently shared this experience with me. A few years ago his friend was about to give up the theater, believing it was too difficult for him - a black man - to succeed. My friend loaned him my book, Out Of This World, in which I stated that an [Assumption](/Assumption), though false, if persisted in, would harden into fact. His friend read the book but could not believe this statement.
 
 Then one day I autographed a book for this gentleman with these words of Blake: *"If the fool will persist in his folly he will become wise."* This gentleman's name is David Moses. When he received that book it did something to him, for he began to persist in the folly of claiming success even though the evidence of his senses denied it.
 
@@ -63,7 +49,7 @@ I have seen that breathing, living figure. I knew it was myself, yet I could not
 
 *"Beloved, it does not yet appear what we shall be, but we know that when He appears we shall be like him and see him as He is!"* When He appeared to me I saw my own face. No longer a rock, I was a living, pulsing, breathing man meditating me, and *"I was satisfied when I awoke with his likeness."* (Psalms 17)
 
-Everyone, when awake, will have the likeness of perfection. No one can fail, but will be perfect as our Father in heaven is perfect. I mean no one! Hitler cannot fail, for the son of God [[Dreams]] Hitler is his very self, and will awaken to see Hitler's face raised to the nth degree of perfection. The same thing is true for Stalin. On this level we cannot understand how this could be, but I tell you that is exactly what is going to happen.
+Everyone, when awake, will have the likeness of perfection. No one can fail, but will be perfect as our Father in heaven is perfect. I mean no one! Hitler cannot fail, for the son of God [Dreams](/Dreams) Hitler is his very self, and will awaken to see Hitler's face raised to the nth degree of perfection. The same thing is true for Stalin. On this level we cannot understand how this could be, but I tell you that is exactly what is going to happen.
 
 We knew each other before we came down, for we are the sons of God, who as one man proclaimed: *"I say, 'Ye are gods, sons of the Most High, all of you; nevertheless, you will die like men and fall as one man, O princes."*'
 
@@ -91,7 +77,7 @@ Because all things are possible to imagine, you can be anything you want to be. 
 
 Everything is ordered and correct, and in the end you will awake to discover you are one with the infinite beauty who is your own being. Until you see your true self you can only speculate as to your beauty and strength of character. When I saw myself, I could hardly believe I was looking at the being I know as Neville, for the being I saw was glorious!
 
-I saw Neville as a breathing, pulsing being. His eyes were closed in deep, deep [[Meditation]] and I knew he was meditating me. I also knew that when his work was finished, I would be as perfect as he is. Then he would awake and we would be one.
+I saw Neville as a breathing, pulsing being. His eyes were closed in deep, deep [Meditation](/Lectures/Radio Lectures/Meditation) and I knew he was meditating me. I also knew that when his work was finished, I would be as perfect as he is. Then he would awake and we would be one.
 
 The perfect Rock is not something out in space, but our redeemer, who is the Lord. We are redeemed by the limit of contraction called *"the Rock"*. Although it could have been a diamond, the rock I saw was quartz, dull in color. It exploded into many pieces which quickly gathered themselves together to form this perfect being looking just like me. Then it began to glow, and reaching the limit of luminosity it exploded as I awoke in my room.
 
@@ -99,7 +85,7 @@ Now I know that although the wise men of our day speculate on how to curtail the
 
 I am always amused to hear these wise men who, although they can speak many languages, their words reveal their lack of the knowledge of the word of God. Read the 52nd chapter of the Book of Deuteronomy: *"He has fixed the bounds of the people according to the number of the sons of God who are more numerous than the stars in the heaven and greater than the sands of the sea."* Every child, when born, is the mortal clothing of the son of God who is within him, or the child could not breathe. And although God has unnumbered sons, there is a limit known only to the collective one, who is God. You are loved as an individual and you are known by name, for the son of God speaks to you individually and loves you beyond measure.
 
-If God has put bounds to the people according to the number of the sons of God, and his sons are clothing themselves in mortal flesh, how can any man stop it? I am one of ten children. We are the result of God's sons [[Meditation]], and no one can stop God's sons from coming in for the experiment.
+If God has put bounds to the people according to the number of the sons of God, and his sons are clothing themselves in mortal flesh, how can any man stop it? I am one of ten children. We are the result of God's sons [Meditation](/Lectures/Radio Lectures/Meditation), and no one can stop God's sons from coming in for the experiment.
 
 Dwell upon the fact that you are the perfect son of God. Live in the consciousness of that perfection and one day you will see your face woven into the likeness of the Father in you, who is Jesus Christ. And remember: all things are possible to him. Do not turn to anyone on the outside, turn only to the son of God within you who is your human imagination!
 
@@ -154,7 +140,7 @@ Now let us go into the silence.
 - They emphasize that all things come out of the individual's imagination and urge people to entertain noble concepts of themselves to manifest their desires.
 - The author advises against seeking outside solutions and emphasizes the power of individual imagination.
 
-### [[Assumption]] and Fulfillment
+### [Assumption](/Assumption) and Fulfillment
 - The author teaches that all things are possible to imagine and encourages readers to assume the feeling of their wishes fulfilled.
 - They stress that the being within individuals knows the way to fulfill their desires and that individuals should not try to dictate the methods.
 - The author emphasizes the importance of walking and living as though the desired reality already exists and letting the son of God within manifest it.

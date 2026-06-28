@@ -1,28 +1,3 @@
----
-book: The Law and the Promise
-chapter: There is no Fiction
-keywords:
-  - Dreams
-bible_ref:
-  - Daniel 2:28
-  - Numbers 11:29
-  - Acts 14:11
-  - John 14:29
-tags: book
-topics:
-  - Imagining Creates Reality
-  - Causation is Mental
-  - Attitudes Cause Vision
-  - Predetermine Any Future
-  - Share Knowledge to Multiply It
-  - Fiction is Future Fact
-  - The Gods Remember
-  - Scriptures Support It
-  - Test Your Power
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"The distinction between what is real and what is imaginary is not one that can be finally maintained... all existing things are, in an intelligible sense, imaginary."* — John S. MacKenzie
 
 There is no fiction. If an imaginal activity can produce a physical effect, our physical world must be essentially imaginal. To prove this would require merely that we observe our imaginal activities and watch to see whether or not they produce corresponding external effects. If they do, then we must conclude that there is no fiction. Today's imaginal drama — fiction — becomes tomorrow's fact.
@@ -80,7 +55,7 @@ Imaginative writers communicate not their vision of the world but their attitude
 
 *"Prophets”, wrote Blake, "* in the modern sense of the word, have never existed. Jonah was no prophet in the modern sense, for his prophesy of Nineveh failed. Every honest man is a prophet; he utters his opinion both of private & public matters. Thus: If you go on So, the result is So. He never says, such a thing shall happen let you do what you will. A Prophet is a Seer, not an Arbitrary Dictator." The function of the Prophet is not to tell us what is inevitable, but to tell us what can be built up out of persistent imaginal activities.
 
-The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your [[Dreams]] and the visions of your head as you lay in bed"* (Daniel 2:28). *"Would that all the Lord's people were prophets"* (Numbers 11:29) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
+The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your [Dreams](/Dreams) and the visions of your head as you lay in bed"* (Daniel 2:28). *"Would that all the Lord's people were prophets"* (Numbers 11:29) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
 
 *"...The mind can make Substance, and people planets of its own with beings brighter than have been, and give a breath to forms which can outlive all flesh..."* (Lord G. Byron) "
 
@@ -116,7 +91,7 @@ There is no fiction. Imagining fulfills itself in what our lives become.
 
 The Greeks were right: *"The Gods have come down to us in the likeness of men!"* (Acts 14:11). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
 
-*"Real are the [[Dreams]] of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
+*"Real are the [Dreams](/Dreams) of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
 
 E.B., an author, is fully aware that *"today's fiction can become tomorrow's fact"*. In this letter, she writes
 

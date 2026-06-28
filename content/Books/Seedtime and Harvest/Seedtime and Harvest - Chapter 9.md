@@ -1,32 +1,3 @@
----
-book: Seedtime and Harvest
-chapter: A Mystical View
-keywords:
-  - null
-bible_ref:
-  - Mark 4:33
-  - 34
-  - Matthew 10:10
-  - Zechariah 8:17
-  - Matthew 25:40
-  - Philippians 4:8
-  - Song of Solomon 3:9
-  - 10
-  - Mark 15:17
-tags: book
-topics:
-  - Bible's Parables Reveal Mind's Laws
-  - No Shoes Means No Intermediary
-  - Imagining For Another Affects Christ
-  - Imagine Good
-  - Don't Just Avoid Evil
-  - Make Yourself a Chariot
-  - 4 Parts Controlled by Solomon
-  - Love Transforms Man to God
-banner: Handles/img/banner seedtime and harvest.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *“And with many such parables spake he the word unto them, as they were able to hear it. But without a parable spake he not unto them: and when they were alone, he expounded all things to his disciples.”*  
 (Mark 4:33, 34)
 

@@ -1,9 +1,3 @@
----
-banner: Handles/img/banner bible references.png
-sticker: emoji//271d-fe0f
-dg-publish: true
----
-
 # Acts
 ```dataview
 TABLE book AS "Book Title", chapter AS "Chapter Title", type AS "Type", bible_ref AS "Bible Ref."

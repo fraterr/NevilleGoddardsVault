@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Walk On The Water
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination and Faith, The Art of Walking on Water, The Power of Imagination in Manifestation, Imagining the Desired Reality, Faith and Experimentation, The Power of Belief and Limitless Possibilities, Removing Limiting Beliefs and Reaping Satisfying Results, Removing the Stone of Facts, The Art of Mediating God to Others, Everyone's Birth into a Spiritual World, The Power of Imagination and Sharing Results, Embracing Our Identity and Manifesting Desired Reality, Embracing Our Identity and Manifesting Desired Reality]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Bible is addressed to the Man of Imagination, he who is immortal and cannot die. *"The Eternal Body of Man is the Imagination. That is God Himself. The Divine Body, Jesus, we are his members."* (William Blake)
 
 Ted Kennedy recently gave a eulogy for his brother, in which he quoted a passage from George Bernard Shaw. The thought was this: *"Some men see things as they are and say, Why? I dream of things that never were and say, Why not?"* When you think of your birth into this world as an act of God, can anything be impossible to God? Not knowing how or why you are here, you sin against the Holy Ghost when you dare to put a limit on the power that brought you here! There is no sin against the Holy Ghost other than man's belief that something is impossible to his own wonderful human imagination! I want you to go all out! To put no limit on God's creative power. To imagine that which is unimaginable and to walk on the water, through faith. 
@@ -89,7 +75,7 @@ Now let us go into the silence.
 ### Imagining the Desired Reality
 
 - Imagining creates reality, so what we hear is a result of our imagination.
-- The friend experienced a planting activity that he had previously dreamed, realizing the connection between [[Dreams]] and reality.
+- The friend experienced a planting activity that he had previously dreamed, realizing the connection between [Dreams](/Dreams) and reality.
 - We should use imagination for everything that is lovely and loving.
 
 ### Faith and Experimentation

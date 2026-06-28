@@ -1,38 +1,3 @@
----
-book: Out of this World
-chapter: Power Of Imagination
-keywords:
-  - Assumption
-  - Meditation
-  - State akin to sleep
-bible_ref:
-  - Philippians 4:8
-  - 1 Samuel 16:7
-  - Proverbs 23:7
-  - Romans 4:17
-  - Deuteronomy 30:15
-  - Job 33:15-16
-  - 1Corinthians 1:23
-  - 1Corinthians 1:28
-  - 1Corinthians 1:31
-  - 2Corinthians 10:17-18
-  - Jeremiah 9:24
-  - John 15:1
-  - John 15:5
-  - Joel 3:10
-  - John 11:25
-  - John 8:32
-tags: book
-topics:
-  - Truth Need Not Conform to External Reality
-  - Imagination Shapes Reality More Than Reason
-  - Desire and Imagination Call Forth Their Affinities
-  - Mold the Future By Desire and Imagination
-  - Consciousness Alone Is God
-banner: Handles/img/banner out of this world.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"Ye shall know the truth and the truth shall make you free"* – (John 8:32)
 
 Men claim that a true judgment must conform to the external reality to which it relates. This means that if I, while imprisoned, suggest to myself that I am free and succeed in believing that I am free, it is true that I believe in my freedom; but it does not follow that I am free for I may be the victim of illusion.
@@ -53,17 +18,17 @@ I stayed for hours imagining myself to be other than that which my reason and my
 
 Man’s imagination is the man himself, and the world as imagination sees it is the real world, but it is our duty to imagine all that is lovely and of good report (Philippians 4:8). *"For the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart"* (1 Samuel 16:7). *"As a man thinketh in his heart so is he"* (Proverbs 23:7).
 
-In [[Meditation]], when the brain grows luminous, I find my imagination endowed with the magnetic power to attract to me whatsoever I desire. Desire is the power imagination uses to fashion life about me as I fashion it within myself.
+In [Meditation](/Lectures/Radio Lectures/Meditation), when the brain grows luminous, I find my imagination endowed with the magnetic power to attract to me whatsoever I desire. Desire is the power imagination uses to fashion life about me as I fashion it within myself.
 
 I first desire to see a certain person or scene, and then I look at though I were seeing that which I want to see, and the imagined state becomes objectively real. I desire to hear, and then I listen as though I were hearing, and the imagined voice speaks that which I dictate as though it had initiated the message.
 
 I could give you many examples to prove my arguments, to prove that these imagined states do become physical realities; but I know that my examples will awaken in all who have not met the like or who are not inclined towards my arguments, a most natural incredulity. Nevertheless, experience has convinced me of the truth of the statement, *"He calleth those things which be not as though they were."* Romans 4:17
 
-For I have, in intense [[Meditation]], called things that were not seen as though they were, and the unseen not only became seen, but eventually became physical realities.
+For I have, in intense [Meditation](/Lectures/Radio Lectures/Meditation), called things that were not seen as though they were, and the unseen not only became seen, but eventually became physical realities.
 
 By this method – first desiring and then imagining that we are experiencing that which we desire to experience – we can mold the future in harmony with our desire. But let us follow the advice of the prophet and think only the lovely and the good, for the imagination waits on us as indifferently and as swiftly when our nature is evil as when it is good. From us spring forth good and evil. ―I have set before thee this day life and good, and death and evil. (Deuteronomy 30:15)
 
-Desire and imagination are the enchanter’s wand of fable and they draw to themselves their own affinities. They break forth best when the mind is in a [[State akin to sleep]].
+Desire and imagination are the enchanter’s wand of fable and they draw to themselves their own affinities. They break forth best when the mind is in a [State akin to sleep](/State-akin-to-sleep).
 
 I have written with some care and detail the method I use to enter the dimensionally larger world, but I shall give one more formula for opening the door of the larger world.
 
@@ -73,7 +38,7 @@ In dream we are usually the servant of our vision rather than its master, but th
 
 In dream, as in mediation, we slip from this world into a dimensionally larger world, and I know that the forms in dream are not flat two-dimensional images which modern psychologists believe them to be. They are substantial realities of the dimensionally larger world, and I can lay hold of them. I have discovered that, if I surprise myself dreaming, I can lay hold of any inanimate or stationary form of the dream – a chair – a table – a stairway – a tree – and command to awake, while firmly holding on the object of the dream, I am pulled through myself with the distinct feeling of awakening from dream. I awaken in another sphere holding the object of my dream, to find that I am no longer the servant of my vision but its master, for I am fully conscious and in control of the movements of my attention. It is in this fully conscious state, when we are in control of the direction of thought, that we call things that are not seen as though they were. In this state we call things by wishing and assuming the feeling of our wish fulfilled.
 
-Unlike the world of three dimensions where there is an interval between our [[Assumption]] and its fulfillment, in the dimensionally larger world there is an immediate realization of our [[Assumption]]. The external reality instantly mirrors our [[Assumption]]. Here there is no need to wait four months till harvest (see John 4:35). We look again as though we saw, and lo and behold, the fields are already white to harvest.
+Unlike the world of three dimensions where there is an interval between our [Assumption](/Assumption) and its fulfillment, in the dimensionally larger world there is an immediate realization of our [Assumption](/Assumption). The external reality instantly mirrors our [Assumption](/Assumption). Here there is no need to wait four months till harvest (see John 4:35). We look again as though we saw, and lo and behold, the fields are already white to harvest.
 
 In this dimensionally larger world ―Ye shall not need to fight, set yourselves, stand ye still and see the salvation of the Lord with you, (2Chronicles 20:17). And because that greater world is slowly passing through our three-dimensional world, we can by the power of imagination mold our world in harmony with our desire.
 
@@ -95,7 +60,7 @@ Your answer determines the part you play in the world’s drama. Your answer –
 
 Look back over the good resolutions with which many past new years are encumbered. They lived a little while and then they died. Why? Because they were severed from their root. Assume that you are that which you want to be.
 
-Experience in imagination what you would experience in the flesh were you already that which you want to be. Remain faithful to your [[Assumption]], so that you define yourself as that which you have assumed.
+Experience in imagination what you would experience in the flesh were you already that which you want to be. Remain faithful to your [Assumption](/Assumption), so that you define yourself as that which you have assumed.
 
 Things have no life if they are severed from their roots, and our consciousness, our *"I AM-ness"* is the root of all that springs in our world.
 
@@ -126,7 +91,7 @@ That man who is accustomed to call up at will whatever images he pleases, will b
 
 ### Desire and Imagination Call Forth Their Affinities
 
-- In [[Meditation]], imagination attracts what is desired when the brain grows luminous.
+- In [Meditation](/Lectures/Radio Lectures/Meditation), imagination attracts what is desired when the brain grows luminous.
 - We must first desire, then look and listen as if we have it. Imagined states become physical reality.
 - By calling things that are not as though they are, the unseen becomes seen.
 

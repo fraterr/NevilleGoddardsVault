@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Trust In God
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Believing in God and Trusting in His Name, The Power of Imagination and Love, Symbolic Journeys and Inner Realizations, Awakening and Trusting in the Imagination, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Ask any religious person if he believes in God, and he will say yes. But if you ask him who God is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
 
 Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, I AM has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be I AM, the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
@@ -34,7 +20,7 @@ Scripture tells us to love God because he first loved us, and that we should imi
 
 God uses man to express love and hate, for man is the agent to express the qualities of I AM. There is no other God! You will find other characteristics of God, but those who know his name put their trust in I AM! 
 
-Put your trust in God's name. Knowing what you want, believe that your [[Assumption]] will make it a fact. Believe that you need no one on the outside to aid you, for all things are possible to God. Assume things are as you want them to be, for an [[Assumption]], persisted in will harden into fact! 
+Put your trust in God's name. Knowing what you want, believe that your [Assumption](/Assumption) will make it a fact. Believe that you need no one on the outside to aid you, for all things are possible to God. Assume things are as you want them to be, for an [Assumption](/Assumption), persisted in will harden into fact! 
 
 Another lady found herself, in dream, with her sister, mother, brother-in-law, and a man she knew to be her first husband. Having agreed to cross the desert on foot and return, they began their journey as the sun blistered her body and the sand burned her feet. At one point she fell, struck her head on a rock, and knew excruciating pain. But at the journey's end she found her Father. Then she returned to the group and they began their journey home. 
 
@@ -68,7 +54,7 @@ Do not be concerned with the horrors of the world; simply remember that all is o
 
 *"Man is all imagination, and God is Man. He exists in us and we in him. The eternal body of Man is the imagination and that is God Himself."* (William Blake). Fall in love with the state you now desire to occupy and to the degree that you are self-persuaded, you will enter it. 
 
-Don't believe in anyone outside of your own wonderful human imagination! Every coin is inscribed with the statement: *"In God we trust"* yet I wonder how many trust in God - and not the coin! If you really believe in God, you can be penniless, yet walk in the [[Assumption]] of wealth and be wealthy. Learn to trust your own wonderful human imagination, for he is the only God. Do that and you will never go wrong! 
+Don't believe in anyone outside of your own wonderful human imagination! Every coin is inscribed with the statement: *"In God we trust"* yet I wonder how many trust in God - and not the coin! If you really believe in God, you can be penniless, yet walk in the [Assumption](/Assumption) of wealth and be wealthy. Learn to trust your own wonderful human imagination, for he is the only God. Do that and you will never go wrong! 
 
 Now let us go into the silence.
 
@@ -87,7 +73,7 @@ Now let us go into the silence.
 - God uses humans as conduits to express love and hate, and therefore trusting in God's name means trusting in oneself as the agent of God's qualities.
 
 ### Symbolic Journeys and Inner Realizations
-- [[Dreams]] and visions can hold spiritual significance, symbolizing personal journeys and realizations.
+- [Dreams](/Dreams) and visions can hold spiritual significance, symbolizing personal journeys and realizations.
 - The Biblical story of Abram's descendants being oppressed for four hundred years holds symbolic meaning, representing the journey of hardship and eventual return to love.
 - God is the husband of humanity, and regardless of physical appearance or gender, humans are symbolically God's wives.
 - The journey in life is a dream, and true realization comes when one recognizes their divine identity.

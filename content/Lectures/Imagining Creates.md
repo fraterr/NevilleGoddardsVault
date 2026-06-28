@@ -1,14 +1,3 @@
----
-book: 
-chapter: Imagining Creates
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [Imagination as the Creator, The Power of Imagination, The Importance of Being Imaginative, "Example: Transforming Despair into Success", The Potency of Imagination, The Role of Forgiveness, Planting Positive Thoughts, The Mysteries of Imagination, Rejecting Intermediaries, The Power of Imagination, The Power of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 The creator of the world works in the depth of your soul, underlying all of your faculties, including perception and streams into your surface mind least disguised in the form of creative fancy. Watch your thoughts, and you will catch Him in the act of creating, for He is your very Self. Every moment of time you are imagining what you are conscious of, and if you do not forget what you are imagining and it comes to pass, you have found the creative cause of your world. 
 
 Because God is pure imagination and the only creator, if you imagine a state and bring it to pass, you have found Him. Remember: God is your consciousness, your
@@ -37,7 +26,7 @@ The word translated *"potter,"* means imagination, and we are told that the Lord
 
 Remember the day your boss criticized you, and you are molding an image of yourself based upon what he said. Being undesirable, that image is misshapen. Unable to discard yourself, go down to the potter's house by taking the same scene and reshaping yourself by remembering the day your boss congratulated you on your accomplishments. Will this act change your world? Yes! I tell you: the God of the universe is shaping you morning, noon, and night, as you accept words, actions, and events from seeming others. 
 
-I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the [[Assumption]] they are true and - because no power can thwart God - what He is imagining, you will experience. 
+I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the [Assumption](/Assumption) they are true and - because no power can thwart God - what He is imagining, you will experience. 
 
 You are not someone apart from God, for I AM cannot be divided. The Lord, our God, is one I AM, not two! If God's I AM and your I AM is the same I AM, define what you would like to be. Then believe you are the Lord! Be like the lady who transformed a streetcar into a cruise. Lose yourself in your new state, while your world on the outside remains, momentarily, the same. 
 
@@ -65,7 +54,7 @@ You can not only rework your concept of self into a new one, but you can rework 
 
 There must be action, for an idea alone produces nothing. You must act within yourself by entering the idea. When someone calls or makes a request of you, you must act upon it by producing a motor element within yourself. It may be the sound of their voice telling you it has already happened. Or you may feel the touch of his hand. Whatever you do, it must be something that takes the desire from being an idea and moves it into the creative state of fulfillment. 
 
-The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of [[Assumption]], there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
+The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of [Assumption](/Assumption), there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
 
 I know this doesn't make sense, but as Douglas said: *"The secret of imagining is the greatest of all problems, to the solution of which every mystic aspires, for supreme power, supreme wisdom, and supreme delight lie in the solution of this far-off mystery."* 
 

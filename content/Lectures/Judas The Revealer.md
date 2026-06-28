@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Judas The Revealer
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Living as though a dream is already a fact, Occupying a state, Discrimination and falling into states, The Bible and states of consciousness, Knowing God through self-realization, Dreaming nobly and manifesting desires, Moving into another state, The nature of death and immortality, Influencing others through dream and imagination, The play of life and the realization of God, The play of life and the realization of God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Every fact is a dream made visible, so I invite you to live as though your dream were already a fact! I am convinced that every dream (desire) I have dared to live in the now has gradually and unnoticed blossomed into fact in my life.
 
 I also know, not only from personal experience but from eternal vision, that the spiritual states of the soul are eternal. That like a traveler, individual man passes through states but the states remain forever.
@@ -30,7 +16,7 @@ A friend recently wrote, saying: "Not understanding why I read the Bible but nev
 
 My friend was shown how discriminating one must become. The moment you contemplate something you become the very thing you behold. Entertaining a state in sympathy, my friend entered it. That night her heavenly Father taught her a great lesson. That no matter how awake one may be in this world, no one is exempt from falling into a state.
 
-Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly [[Dreams]] of good and evil, when it left paradise following the serpent."* The serpent, the wisest of God's creations, is the personification of God's wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
+Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly [Dreams](/Dreams) of good and evil, when it left paradise following the serpent."* The serpent, the wisest of God's creations, is the personification of God's wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
 
 Entering a world of death, you will seem to die to those who cannot follow you - but not to yourself. Instead, you are restored to an unaccountably young body. You may leave an old body with missing hair and teeth, to find yourself in a healthy, new body with your hair and teeth intact. This I know to be true, for my vision is open and I have seen those who have departed this life. I know they are not gone, but are restored to wear a new, young, and healthy body.
 
@@ -85,7 +71,7 @@ In your night dream you take everything for granted - until you begin to become 
 
 When this happens don't get panicky, as you will come back. Instead, if you have any red blood in you investigate the world you find yourself in, and you will discover the people there are just as stupid, just as ambitious, and just as sound asleep as they are here. I have been shut out of this world many times, to return to find this body cataleptic for maybe twenty or twenty-five seconds before I could animate it again. If sometime I do not get back, the doctors will cut up the body to see why I died. They will come to some conclusion; but if they are honest with themselves, they will know that there was no physical reason for my death. I simply left and did not return.
 
-But while you are here, why not live well? I think we will all agree that it is easier living when we have wealth than when we are poor. I have no desire to have lots of things, but if anything can be mine by the simple act of [[Assumption]], why not assume it? No power on earth can stop you from imagining. The morning paper records what happened, but they do not tell you the cause. Who knows who is dreaming what is happening today?
+But while you are here, why not live well? I think we will all agree that it is easier living when we have wealth than when we are poor. I have no desire to have lots of things, but if anything can be mine by the simple act of [Assumption](/Assumption), why not assume it? No power on earth can stop you from imagining. The morning paper records what happened, but they do not tell you the cause. Who knows who is dreaming what is happening today?
 
 Two years ago I watched the Kentucky Derby on television. Willie Shoemaker was riding a horse which was favored to win. The night before the race, the owner of the horse had a dream in which he saw Shoemaker - leading by lengths - misjudge the finish line and ride the saddle to ease the horse too soon.
 
@@ -95,7 +81,7 @@ You do not have to have a dream of the night to influence the behavior of others
 
 You can sit quietly and enter a glorious dream. If it's shadowy, you are not in it. Persist until you enter it, and it will become the only reality. Live in the state of your fulfilled desire now, knowing that in a way unknown and unnoticed by you it will erupt to become an objective fact.
 
-Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your [[Assumption]] and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
+Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your [Assumption](/Assumption) and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
 
 One day you will leave this play, knowing you are God the Father who conceived it all. Beginning as the one God, we fell as the gods. But we will return to the one God, for it takes all of us to form the Lord. *"Hear O Israel, the Lord our God, is one Lord."*
 
@@ -157,7 +143,7 @@ Now let us go into the silence.
 
 ### Influencing others through dream and imagination
 - Dreaming during the day can influence the behavior of others.
-- Everyone is contained within oneself, and their permission is not needed to externalize [[Dreams]].
+- Everyone is contained within oneself, and their permission is not needed to externalize [Dreams](/Dreams).
 - Persist until entering a dream and it will become the only reality.
 - Dare to believe in the fulfillment of desires, even if reason and senses deny it.
 

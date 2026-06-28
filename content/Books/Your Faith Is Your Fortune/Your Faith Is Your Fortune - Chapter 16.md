@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: The Triune God
-keywords:
-  - Meditation
-bible_ref:
-  - Genesis 1:26
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"And God said:, Let us make man in our image, after out likeness."* (Gen. 1:26)
 
 Having discovered God to be our awareness of being and this unconditioned changeless reality (the I AM) to be the only creator, let us see why the Bible records a trinity as the creator of the world. In the 26th verse of the first chapter of Genesis it is stated, *“And God said, Let us make man in our image.”* The churches refer to this plurality of Gods as God the Father, God the Son and God the Holy Spirit. What is meant by *“God the Father, God the Son and God the Holy Spirit”* they have never attempted to explain for they are in the dark concerning this mystery.
@@ -30,7 +16,7 @@ This receptive attitude is the state of consciousness that you must assume befor
 
 As you contemplate being and possessing that which you have decided to be and to have, you will notice that with every inhalation of breath a joyful thrill courses through your entire being. This thrill increases in intensity as you feel more and more the joy of being that which you are claiming yourself to be. Then in one final deep inhalation your whole being will explode with the joy of accomplishment and you will know by your feeling that you are impregnated by God, the Father. As soon as the impression is made, open your eyes and return to the world that but a few moments before you had shut out.
 
-In this receptive attitude of yours, while you contemplated being that which you desired to be, you were actually performing the spiritual act of generation; so you are now on your return from this silent [[Meditation]] a pregnant being bearing a child or impression, which child was immaculately conceived without the aid of man.
+In this receptive attitude of yours, while you contemplated being that which you desired to be, you were actually performing the spiritual act of generation; so you are now on your return from this silent [Meditation](/Lectures/Radio Lectures/Meditation) a pregnant being bearing a child or impression, which child was immaculately conceived without the aid of man.
 
 Doubt is the only force capable of disturbing the seed or impression; to avoid a miscarriage of so wonderful a child, walk in secrecy through the necessary interval of time that it will take the impression to become an expression. Tell no man of your spiritual romance. Lock your secret within you in joy, confident and happy that some day you will bear the son of your lover by expressing and possessing the nature of your impression. Then will you know the mystery of *“God said, Let us make man in our image.”*
 

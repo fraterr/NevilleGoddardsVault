@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Love Endureth
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Love Endureth, The Literal Fulfillment of Scripture, A Story of Ignoring the Truth, The Three Precious Coins, Night after Night Scripture Unfolds, Love Endures, Falling in Love as God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is 'Love Endureth'
 
 We are told, 'He who has not loved does not know God, for God is love.' This is not a conclusion that the prophet reached after years of philosophic study, but an act of God in self-revelation. If God never revealed himself to man, I doubt that man would ever know that God is love. But, in spite of all the horror of the world, I know from experience that God is love.
@@ -98,7 +84,7 @@ Now let us go into the Silence.
 ### Night after Night Scripture Unfolds
 
 - Personal experiences of scripture coming alive and being fulfilled.
-- The subjective and objective nature of [[Dreams]] and reality.
+- The subjective and objective nature of [Dreams](/Dreams) and reality.
 - Christ is the Father, and experiencing Christ is experiencing the Father.
 
 ### Love Endures

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: God Speaks To Man
-keywords: [Assumption, Meditation, Dreams]
-bible_ref:
-tags: lecture
-topics: [God Speaks to Man, The Rock, The Power of Love, The Foundation of Imagination, Adding Life to Years]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* (Job 33)   
   
 Tonight you may find yourself in a terrestrial world like this one, and you feel just as real to yourself as you do here. And when you return with its memory you may think it was a dream, but it was a vision. You are dreaming right now, for this world is the dream you and I agreed to complete. Its end will appear when we turn around through a series of visions.   
@@ -30,7 +16,7 @@ This is a very significant dream, whose single jet of truth is the rock. It's no
   
 We are told: *"You are unmindful of the Rock that begot you and have forgotten the God who gave you birth."* (Deuteronomy 32) This passage of scripture tells us that the Rock is equated with God. And in the New Testament it is said: *"They drank from the supernatural Rock that followed them and the Rock was Christ."*   
   
-This gentleman is now standing on that Rock. Since all [[Dreams]] are egocentric, he conjured me from within himself Containing the whole vast world within him, he called forth those he chose to play a part he wrote for himself. This he did without our knowledge or consent. My friend has now reached that foundation stone upon which he will build his house. No longer will he build on shifting sands, where the winds and storms destroy the structures, but upon the Rock who is Christ; and Christ is God who is the Human Imagination.   
+This gentleman is now standing on that Rock. Since all [Dreams](/Dreams) are egocentric, he conjured me from within himself Containing the whole vast world within him, he called forth those he chose to play a part he wrote for himself. This he did without our knowledge or consent. My friend has now reached that foundation stone upon which he will build his house. No longer will he build on shifting sands, where the winds and storms destroy the structures, but upon the Rock who is Christ; and Christ is God who is the Human Imagination.   
   
 The central figure of Christianity is the Human Imagination. When you accept this as the first principle of religion, then all governments, rituals, and external worship will have heard the trumpets of Joshua. All of the buildings that are of any structure than that Rock - which is your own wonderful Human Imagination - will fall. This gentleman had a wonderful experience. He is on the Rock, but he may move from it. He may turn his back and forget that the cause of all of the phenomena of his life is the Human Imagination. It is my hope that he will not.   
   
@@ -44,11 +30,11 @@ Another friend shared this vision with me. (I call this a vision rather than a d
   
 That's what I mean when I tell you to carry Imagination to the extreme point and feed the world. Although my friend did not feed the man in her vision, she did so in her Imagination, knowing she was feeding Christ. She knows that when she does this to the least of one of these, she is doing it to Christ. And when she does not do it, she is not doing it to Christ - who is her very self. My friend has learned her lesson, and is at the end of her journey. Having a vivid memory of what had transpired, she carried through her intention and fed the man in her Imagination.   
   
-All of this may seem insane to the world, because they do not understand this great mystery. In 1946 I wrote a little booklet called The Search. I ended it on this note: *"The universe which we study with such care is a dream and we the dreamers, dreaming non-eternal [[Dreams]]. One day, like Nebuchadnezzar, we shall awaken from our nightmare in which we fought with demons, to discover that we have never really left our eternal home; that we were never born and have never died - save in our dream."*   
+All of this may seem insane to the world, because they do not understand this great mystery. In 1946 I wrote a little booklet called The Search. I ended it on this note: *"The universe which we study with such care is a dream and we the dreamers, dreaming non-eternal [Dreams](/Dreams). One day, like Nebuchadnezzar, we shall awaken from our nightmare in which we fought with demons, to discover that we have never really left our eternal home; that we were never born and have never died - save in our dream."*   
   
-Since that time nothing has happened to cause me to change one word in that little book for, like Nebuchadnezzar, I have awakened from this dream of life. Now when I close my eyes in [[Meditation]], I sometimes have a little dream; or other times I enter a world just like this, where I am totally awake and aware of what is happening.   
+Since that time nothing has happened to cause me to change one word in that little book for, like Nebuchadnezzar, I have awakened from this dream of life. Now when I close my eyes in [Meditation](/Lectures/Radio Lectures/Meditation), I sometimes have a little dream; or other times I enter a world just like this, where I am totally awake and aware of what is happening.   
   
-You see, one day the being that is really dreaming your life will awaken, and you will be enhanced beyond your wildest [[Dreams]] because of your experiences.   
+You see, one day the being that is really dreaming your life will awaken, and you will be enhanced beyond your wildest [Dreams](/Dreams) because of your experiences.   
   
 You never descended in body, but in consciousness. Descending in your dream, you entered this world called eternal death to see things appear, wax, wane, and vanish. They appear to die, yet you are dreaming their death. One day you will discover that you have never gone anywhere, save in your dream.   
   
@@ -60,7 +46,7 @@ Man thinks in terms of millions and millions of years; yet one generation could 
   
 I'm not saying this is true. I am only giving you something to think about. If you do, you will change your mind about having an ape for an ancestor.   
   
-As God, you started your dream by coming down in consciousness to the level called man. You died in order for humanity to be made a living soul. Now, bound by what you took upon yourself, you are dreaming a predetermined, horrible dream; yet the results of these experiences will transcend your wildest [[Dreams]]. The story of Jesus Christ is your story, which you will fulfill - in vision - in a three-dimensional world.   
+As God, you started your dream by coming down in consciousness to the level called man. You died in order for humanity to be made a living soul. Now, bound by what you took upon yourself, you are dreaming a predetermined, horrible dream; yet the results of these experiences will transcend your wildest [Dreams](/Dreams). The story of Jesus Christ is your story, which you will fulfill - in vision - in a three-dimensional world.   
   
 Now, I used the word mutation for a purpose. We are told that at the end: *"In the twinkle of an eye, our lowly bodies will be changed to be one form with His glorious body."* This does not take time. The moment you are embraced by the Risen Lord, your lowly body is transformed to be one form with His glorious body of light, of love, and wisdom. These bodies of flesh and blood cannot inherit the kingdom of God. You need an entirely different body to function in that age. That body is a mutation, as it comes suddenly.   
   
@@ -80,7 +66,7 @@ One day you will know that the visions of the day are no more real than those of
   
 The world and all of its conflicts appear to show us that Imagination can and does run amok. Imagination is the only foundation. It is the Rock upon which one builds his house. No matter what happens, blame no one, but remain on that Rock; for Christ (your own wonderful Human Imagination) is He, and the only cause of the phenomena of life. Accept this truth and you will have a firm foundation upon which to build.   
   
-As you dwell upon this power vested in you, you will discover it will help you far beyond your wildest [[Dreams]]. You will realize that you do not need the help of anyone. All you need do is assume you have what you want. Then dare to walk in that [[Assumption]]; and if it takes a thousand people to aid its birth, they will appear and play their parts, not knowing why or what they do. They will do it without their permission or consent, just as I did in my friend's dream.   
+As you dwell upon this power vested in you, you will discover it will help you far beyond your wildest [Dreams](/Dreams). You will realize that you do not need the help of anyone. All you need do is assume you have what you want. Then dare to walk in that [Assumption](/Assumption); and if it takes a thousand people to aid its birth, they will appear and play their parts, not knowing why or what they do. They will do it without their permission or consent, just as I did in my friend's dream.   
   
 Man prays to an outside Jesus and believes in an outside God, because he has forgotten the God who gave him birth. Scripture tells us that when Moses revealed the true God as I AM, he hadn't been gone more than moments when the people once more turned and worshipped the golden cow as the cause of their fortunes, good or bad. They started worshipping things made with the human hand in violation of the eighth commandment: *"Make no graven image unto me,"* either with your hands or in your mind!   
   
@@ -122,7 +108,7 @@ Now let us go into the silence.
 - Love is the greatest creative power.
 - Awakening from the dream of life, we will realize that we are love.
 - In the end, we will collectively form one Man, one Spirit, one Body.
-- Visions in [[Meditation]] are as real as visions in waking life.
+- Visions in [Meditation](/Lectures/Radio Lectures/Meditation) are as real as visions in waking life.
 - Only when we remember our true nature and use the same technique, we can awaken in our eternal bodies.
 
 ### The Foundation of Imagination

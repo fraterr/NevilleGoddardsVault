@@ -1,25 +1,10 @@
----
-book: Your Faith Is Your Fortune
-chapter: No Other God
-keywords:
-  - Prayer
-bible_ref:
-  - Isaiah 44:6
-  - Deuteronomy 5:6-7
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"I am the first, and I am the last; and beside me is no God."* (Isaiah 44:6)
 
 *"I am the Lord thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* (Deut. 5:6, 7)
 
 *“Thou shalt have no other God beside me.”* As long as man entertains a belief in a power apart from himself, so long will he rob himself of the being that he is. Every belief in powers apart from himself, whether for good or evil, will become the mold of the graven image worshiped.
 
-The beliefs in the potency of drugs to heal, diets to strengthen, moneys to secure, are the values or money changers that must be thrown out of the power he can then unfailingly manifest that quality. This understanding throws out the money changers Temple. *“Ye are the Temple of the Living God,”* a Temple made without hands. It is written, *“My house shall be called of all nations a house of [[Prayer]], but ye have made it a den of thieves.”*
+The beliefs in the potency of drugs to heal, diets to strengthen, moneys to secure, are the values or money changers that must be thrown out of the power he can then unfailingly manifest that quality. This understanding throws out the money changers Temple. *“Ye are the Temple of the Living God,”* a Temple made without hands. It is written, *“My house shall be called of all nations a house of [Prayer](/Prayer), but ye have made it a den of thieves.”*
 
 The thieves who rob you are your own false beliefs. It is your belief in a thing not the thing itself that aids you. There is only one power: I AM He. Because of your belief in external things you think power into them by transferring the power that you are to the external thing. Realize you yourself are the power you have mistakenly given to outer conditions. The Bible compares the opinionated man to the camel who could not go through the needle’s eye. The needle’s eye referred to was a small gate in the walls of Jerusalem which was so narrow that a camel could not go through it until relieved of its pack. The rich man, that is the one burdened with false human concepts, cannot enter the Kingdom of Heaven until relieved of his burden any more than could the camel go through this small gate.
 

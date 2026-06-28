@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Freedom
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Greatest Commandment, The Incarnation, Understanding the Dream, The Universal Diffused Individuality, The Acts of Creation, The Awakening, The Power of Imagination, The Ultimate Commandment, Personal Responsibilities, The Path to Freedom, Liberation from Secondary Causes, The Unfolding of Scripture, The Unfolding of Scripture]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When asked: *"What is the greatest of all the commandments?"* God answered: *"Hear O Israel, the Lord our God, the Lord is one."* Accept this commandment! Live by it and you will be free from all secondary causes. There is only one God. He is the father of us all who is above all, through all, and in all. He is a universally diffused individuality whose name forever and ever is I AM. You may not be aware of who you are, what you are, or where you are; but by being aware, you are mentally saying I am. Every conscious being says I am; and if there is only one I am, then I am one individual - diffused! I am the sole cause of all that is. All things were made through imagining, and without awareness was not anything made that was made.   
   
 In the 8th chapter of Matthew, one of the miracles of scripture is recorded as an acted parable. It is said that when he entered the boat, he fell asleep and a great storm arose; so they woke him saying: *"Lord we perish, save us."* And he said: *"Why are you afraid, O men of little faith?"* Then he rose and rebuked the wind and the sea, and there was a great calm. If there is only one cause, then he who quelled the wind and the sea is the one who caused the storm. There cannot be another. If there is confusion in your life, and you resolve it in your imagination, and the world bears witness to what you have done - you caused the change. And since there is no other cause, then did you not cause the confusion also? There is only one God and Father of us all who is above all, through all, and in all. If He is in every being who says I am, and there is only one God, no one can accuse another; for God's name is not he is, but I am. No matter what appears on the outside, I am its cause. Assume full responsibility for the things you observe, and if you do not like what you see, know you have the power to change them. Then exercise that power and you will observe the change you caused. If you are truly willing to assume that responsibility, you are set free.   
@@ -46,9 +32,9 @@ Matthew tells the story of his awakening in dramatic form. Claiming *"they"* awo
   
 In the Book of Samuel, Saul (the demented king) made a promise to anyone who would bring down the giant opposition to Israel that he would set his father free. (This is done by discovering the father of the son.) So Saul asks David to identify his father, and David says: *"I am the son of Jesse, the I AM."* So the father is set free when David brings down the giant, who - in your sleep of death - opposes you, and your memory returns as to who you really are.   
   
-Although I answer to an earthly name and sign my checks with it, I know who I am! I can tell you who I am in the hope that you will believe me; but in truth, I am only addressing myself, for I am in you and you are in me, and we are one. Everyone will have the same experience and in the end we will all return to the one body, one Spirit, one Lord, and one God and Father. We will all return from the victorious march through death as the same God, but expanded beyond our wildest [[Dreams]] because of this excursion of the mind into a world of death which seemed so final. I cannot promise that, if you accept this one hundred per cent you will not have a headache tomorrow, or that the boss will not fire you. But if you accept this, you will know that your boss had no choice in the matter. You will know that you caused the firing. Maybe your [[Dreams]] transcended your present limited position in that business, and only by being fired could they be realized.   
+Although I answer to an earthly name and sign my checks with it, I know who I am! I can tell you who I am in the hope that you will believe me; but in truth, I am only addressing myself, for I am in you and you are in me, and we are one. Everyone will have the same experience and in the end we will all return to the one body, one Spirit, one Lord, and one God and Father. We will all return from the victorious march through death as the same God, but expanded beyond our wildest [Dreams](/Dreams) because of this excursion of the mind into a world of death which seemed so final. I cannot promise that, if you accept this one hundred per cent you will not have a headache tomorrow, or that the boss will not fire you. But if you accept this, you will know that your boss had no choice in the matter. You will know that you caused the firing. Maybe your [Dreams](/Dreams) transcended your present limited position in that business, and only by being fired could they be realized.   
   
-One day I was fired from J. C. Penney Co. Working for a year and a half, running their elevator and being their errand boy, making $22. a week and paying $5. room rent, I could not understand it when they let me go. But my [[Dreams]], my desires, transcended my position there, so they had to do what they did in order for my desires to be realized. Believe me, you are the cause of the phenomena of your life - be it good, bad or indifferent. If, to you the news is distasteful, you are the dreamer of that distasteful storm. But the day will come when you will awake to discover that the storm is over. That there is only one cause, and that is awareness! I know it is easier to give advice and show the other person where he is wrong, than it is to acknowledge that he is only reflecting the wrong in you. It is difficult to accept the concept that the world is bearing witness to your thoughts, but it is true. If you do not like something or someone, do not look at it or them; look within to the one who is causing the image.   
+One day I was fired from J. C. Penney Co. Working for a year and a half, running their elevator and being their errand boy, making $22. a week and paying $5. room rent, I could not understand it when they let me go. But my [Dreams](/Dreams), my desires, transcended my position there, so they had to do what they did in order for my desires to be realized. Believe me, you are the cause of the phenomena of your life - be it good, bad or indifferent. If, to you the news is distasteful, you are the dreamer of that distasteful storm. But the day will come when you will awake to discover that the storm is over. That there is only one cause, and that is awareness! I know it is easier to give advice and show the other person where he is wrong, than it is to acknowledge that he is only reflecting the wrong in you. It is difficult to accept the concept that the world is bearing witness to your thoughts, but it is true. If you do not like something or someone, do not look at it or them; look within to the one who is causing the image.   
   
 There is only one God, one cause of all life. He is not only above all and through all; he is in all. The universally diffused individuality is in each one of us in his fullness. Dwelling in each individual bodily, the father sleeps until the storm is over. Then he awakens and rebukes the storm that he created during his sleep, and there is a great calm. If you will accept this as your philosophy of life, and not turn to the left or the right, but claim you are solely responsible for the phenomena of your life, you will find it much easier to live. But if, at times, life seems too hard to bear, and you find a secondary cause, you have created a devil. Devils and satans are formed from man's unwillingness to assume the responsibility of his life. To see another other than self, is to build a golden image. Asking a priest for forgiveness. Calling him father in spite of being told to call no man on earth father. Seeing him as an authority, man goes whoring after a man-made false image.   
   
@@ -76,7 +62,7 @@ Now let us go into the silence.
 
 ### Understanding the Dream
 - God, symbolized as being asleep in a boat, represents humanity itself.
-- Our [[Dreams]] are created by our imagination, and we are the cause of every experience and conflict we encounter in our lives.
+- Our [Dreams](/Dreams) are created by our imagination, and we are the cause of every experience and conflict we encounter in our lives.
 - When we awaken and recall our dream, we recognize our power and responsibility for everything that occurs.
 
 ### The Universal Diffused Individuality
@@ -97,7 +83,7 @@ Now let us go into the silence.
 ### The Power of Imagination
 - Imagination is the source of all creation, and everything is made through awareness.
 - Our thoughts and beliefs shape our reality, and there is no other creator to hinder our desires.
-- Accepting our role as creators empowers us to manifest our [[Dreams]] and desires.
+- Accepting our role as creators empowers us to manifest our [Dreams](/Dreams) and desires.
 
 ### The Ultimate Commandment
 - The ultimate commandment is the recognition that the Lord is one and that we are the rulers as God.

@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Creator
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Creator, Motion and Imagination, Faith and Achievement, Trust and Surrender, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 You will find tonight to be a very practical and yet a very spiritual hour, for I am going to speak to you of the Creator.
 
 In Paul's letter to the Romans he said: *"All the invisible things of God are clearly seen, being understood by the things that are made."* Man is called upon to look at the made, in order to discover the invisible God. 
@@ -36,7 +22,7 @@ Everything is within you and can be brought into being by this simple technique.
 
 I knew exactly what I had done, and I believe that all things are made by God and without him is not a thing made that is made; so I have found God to be my human imagination. Now, am I going to fall into the trap and not honor him as God but turn to an image resembling a human being and say he was the cause of my trip? Am I going to give credit to my brother who sent me the draft and notified the steamship company to issue me a ticket? Or am I going to remember the God that I discovered? This is what Paul is asking everyone who reads his letter. Having found God, are you going to honor him as God? Or are you going to exchange the truth about God for a lie?
 
-Nothing has ever happened to you that you did not set in motion in your imagination. I tell you: you can be anything you want to be, but when you voice your request, your desire must be genuine. You must so want it that you are willing to remain faithful to your change in position. You cannot assume you have your desire for one little moment and then return to your former state, for if you do you are a double-minded man and will not receive anything from the Lord (as told us in the Book of James). If you want to be successful in business, you can. I don't care how many creditors you owe, or what the bank says you have; if you assume success and persist in that [[Assumption]] you cannot fail. This is the law by which everyone lives.
+Nothing has ever happened to you that you did not set in motion in your imagination. I tell you: you can be anything you want to be, but when you voice your request, your desire must be genuine. You must so want it that you are willing to remain faithful to your change in position. You cannot assume you have your desire for one little moment and then return to your former state, for if you do you are a double-minded man and will not receive anything from the Lord (as told us in the Book of James). If you want to be successful in business, you can. I don't care how many creditors you owe, or what the bank says you have; if you assume success and persist in that [Assumption](/Assumption) you cannot fail. This is the law by which everyone lives.
 
 Take my message to heart. The God spoken of in scripture is seated right here. He is in everyone as their wonderful human imagination. When you say, *"I am,"* that's God. If, right now you are assuming that you are other than what reason says you are and I ask you, *"Who is imagining?"* you would say, *"I am."* 
 
@@ -61,7 +47,7 @@ In the Book of Romans, the 4th chapter, the 17th verse, Paul tells us: *"God cal
 
 Now, if I move from that I am into what I would like to be, you will still be my friend; so in my imagination I let you see me as you would have to see me if things were as I want them to be, and there I remain. I can't be double-minded and let you see me in my former state, but must persist in my new state until it becomes natural and outpictures itself in my world.
 
-This is true of everything you do, I don't care what it is. If you want to be known, you will be, regardless of the fact that you start your [[Assumption]] with nothing to support your claim. Simply dare to assume that you are, for your assumptions - although denied by your senses - if persisted in will become externalized facts in your life.
+This is true of everything you do, I don't care what it is. If you want to be known, you will be, regardless of the fact that you start your [Assumption](/Assumption) with nothing to support your claim. Simply dare to assume that you are, for your assumptions - although denied by your senses - if persisted in will become externalized facts in your life.
 
 A friend recently told me that he started his little restaurant in Oahu with only $180 in the bank and many debtors. This was just a few years ago. Tonight the estimated value of his business is over $100,000, and he is contemplating expanding into San Francisco. I know this gentleman well. Born and raised an ardent Catholic, in his mind he is still a Christian, but he does not follow Catholicism any more. When he heard my words he believed them, applied them, and things worked. Then he forgot and remembered again and forgot again. 
 
@@ -121,7 +107,7 @@ Now let us go into the silence.
 - God is capable of all actions, both positive and negative.
 
 ### Faith and Achievement
-- Genuine desire, genuine [[Assumption]], and fixed attitude are required for successful manifestation.
+- Genuine desire, genuine [Assumption](/Assumption), and fixed attitude are required for successful manifestation.
 - One must not be double-minded but remain faithful to the desired state.
 - Everything is possible to the one who knows who they are and honors their imagination as God.
 - The world is a reflection of one's imaginal acts and desires.

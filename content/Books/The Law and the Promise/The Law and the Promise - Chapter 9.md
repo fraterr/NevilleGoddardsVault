@@ -1,33 +1,9 @@
----
-book: The Law and the Promise
-chapter: Enter Into
-keywords:
-  - Dreams
-bible_ref:
-  - Psalms 118:22
-tags: book
-topics:
-  - Enter the images of imagination
-  - Entering the image makes it a womb
-  - Enter and impregnate the state
-  - These images are the only substances
-  - Woman moved into desired home in imagination
-  - Events follow where man is imagining
-  - Imaginal occupancy gives substance
-  - Woman fell asleep in England and went there
-  - The rejected stone is now the cornerstone
-  - Inheritance painted home; occupied wish
-  - Assemble imagery with meaning
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"If the Spectator would Enter into these Images in his Imagination, approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
 (William Blake)
 
 Imagination it seems will do nothing that we wish until we enter into the image of the wish fulfilled.
 
-Does not this entering into the image of the wish fulfilled resemble Blake's *"Void outside of Existence which if enter'd into Englobes itself & becomes a Womb?"* Is this not the true interpretation of the mythical story of Adam and Eve? Man and his emanation? Are not man's [[Dreams]] of fancy his Emanation, his Eve in whom *"He plants himself in all her Nerves, just as a Husbandman his mould; And she becomes his dwelling place and garden fruitful seventy fold?"* (William Blake, *"The Mental Traveller"*)
+Does not this entering into the image of the wish fulfilled resemble Blake's *"Void outside of Existence which if enter'd into Englobes itself & becomes a Womb?"* Is this not the true interpretation of the mythical story of Adam and Eve? Man and his emanation? Are not man's [Dreams](/Dreams) of fancy his Emanation, his Eve in whom *"He plants himself in all her Nerves, just as a Husbandman his mould; And she becomes his dwelling place and garden fruitful seventy fold?"* (William Blake, *"The Mental Traveller"*)
 
 The secret of creation is the secret of imagining — first, desiring and then assuming the feeling of the wish fulfilled until the dream of fancy, 'the Void outside existence', is enter'd and 'englobes itself and becomes a womb, a dwelling place and garden fruitful seventy fold'. Note well that Blake urges us to enter into these images. This entering into the image makes it 'englobe itself and become a womb'.
 
@@ -96,7 +72,7 @@ Approach on thought's fiery chariot and make them friends. Then you'll arise Ima
 
 ### Entering the image makes it a womb
 
-Like Adam entering Eve, enter the wish fulfilled. Your [[Dreams]] emanate and you implant yourself.
+Like Adam entering Eve, enter the wish fulfilled. Your [Dreams](/Dreams) emanate and you implant yourself.
 
 ### Enter and impregnate the state
 

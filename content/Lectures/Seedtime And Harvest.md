@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Seedtime And Harvest
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Mystical Interpretation of the Bible in "Seedtime and Harvest", Understanding the Promise of Seedtime and Harvest, The Power of Attitude in Seedtime and Harvest, The Fable of the Fox and the Grapes, The Power of Selective Creation in Seedtime and Harvest, Responsibility for Others and the Power of Imagination, The Importance of Wise Planting and Deliberate Attitude Changes, The Infinite Nature of God and the Endless Possibilities, The Call to Plant Wisely and Blossom in the World]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 As you have been told, this morning's subject is Seedtime and Harvest.
 
 Although it bears the same title as my latest book, it is not to be found in that book, for that book is an attempt to interpret some of the more difficult passages of the Bible. I have given you in the nine chapters a mystical view, and also a certain approach how you yourself may approach the interpretation of the Bible, for, as you know, it is not a book of history. And so, when I became aware of deeper meanings in the passages than those normally assigned to them, I began to see them or to apprehend them mystically, and so I have given you a mystical interpretation of many of the darker passages.
@@ -66,7 +52,7 @@ Do you recall seeing on TV, a dramatized version of the sinking of the Titanic? 
 
 Now that man wrote a book either to get something off his chest because he disliked the rich and the complacent, or he thought it might sell or he thought this is the means of bringing him a dollar as a writer. But, whatever was the motive behind his book which, by the way, he called *"Futility"* to show the utter futility of accumulated wealth, but the identical ship was built 14 years later and carried the same kind of a passenger list and went down in the same manner as the fictional ship.
 
-Is there any fiction? There is no fiction! Tomorrow's world is today's fiction. Today's world was yesteryear's fiction - the [[Dreams]] of men of yesteryear. Wouldn't it be wonderful if I could talk with someone across space and just use a wire? And I couldn't see that one: it would be a mile away beyond the range of my voice - then maybe five miles and maybe a thousand miles - fantastic [[Dreams]] - then they came true. When they came true, suppose I could do it without the means of a wire. And it came true; suppose now I could do it not just in an audio sense but in a video sense. Suppose I could be seen? And that came true, but when they were conceived, they were all fictional, all unreal.
+Is there any fiction? There is no fiction! Tomorrow's world is today's fiction. Today's world was yesteryear's fiction - the [Dreams](/Dreams) of men of yesteryear. Wouldn't it be wonderful if I could talk with someone across space and just use a wire? And I couldn't see that one: it would be a mile away beyond the range of my voice - then maybe five miles and maybe a thousand miles - fantastic [Dreams](/Dreams) - then they came true. When they came true, suppose I could do it without the means of a wire. And it came true; suppose now I could do it not just in an audio sense but in a video sense. Suppose I could be seen? And that came true, but when they were conceived, they were all fictional, all unreal.
 
 There is nothing unreal, because God is infinite, and God has finished creation. You cannot conceive of something that your Father has not only done and conceived of it, it is worked out in detail, in all its ramifications. You and I are only becoming aware of increasing portions of that which already is. We are not making a thing - we are discovering God's wonderful world. But now in this church - at least here it should be done, for this is a church of the mind: this is Science of Mind, where there is a science to planting and you do it in a certain scientific manner. You just don't walk the street and reflect; read the papers and reflect - you go out a more positive person than people who gather in similar areas, for the simple reason they go just to hear a service and to be told how bad the world is.
 
@@ -135,7 +121,7 @@ Now my time is up.
 - God is infinite, and creation is complete.
 - All possibilities exist within God.
 - Individuals are discovering and becoming aware of increasing portions of what already is.
-- The [[Dreams]] and fiction of yesterday become the reality and fact of today.
+- The [Dreams](/Dreams) and fiction of yesterday become the reality and fact of today.
 
 ### The Call to Plant Wisely and Blossom in the World
 - The purpose is to discover how to use the mind and imagination to bring forth the positive in the world.

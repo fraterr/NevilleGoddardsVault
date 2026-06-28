@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Mystery Of Baptism
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Baptism as a Symbolic Representation of Being God the Father, Immersion in the Body of Water, The Sequence of Baptism in Paul's Eulogy, Individual Experience and Redeemed Humanity, The Crucifixion, Incubation, and Resurrection, Jesus as the One Body and the Symbolism of the Dove, Personal Experience of Baptism and Love, Symbolic Representation of Baptism and Fulfilling Scripture, The Authenticity of Stories of Jesus and Baptism, The True Baptism and the Kingdom of God, The Purpose of Baptism and Sharing Experiences, The Fulfillment of Scripture and Baptism's Transformation, The Personal Revelation and the Unveiling of Jesus Christ, Judgment and Mercy in the Baptism Experience, Hope for the Future and the Unveiling of God, Judgment and Mercy in the Baptism Experience, Hope for the Future and the Unveiling of God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Baptism on this level is a symbolic representation of being raised to the realization of being God the Father. In his letter, Paul tells the Ephesians that there is only one baptism. This occurs prior to the realization of being God the Father. And in Paul's letter to the Romans he states: *"We are buried with Christ by a baptism into death, so that as Christ was raised from the dead by the glory of the Father, we also may walk in newness of life."* 
 
 Baptism implies complete immersion. It is said that when Jesus rose out of the water the heavens opened, and the Spirit, in the form of a dove, descended upon him. 
@@ -80,7 +66,7 @@ Now is the time to set your hope fully upon the true baptism, when the heavens o
 
 Throughout the letters of Paul, much is said of this baptism. In the third chapter of Galatians, Paul tells that baptism removes all human divisions of race, class, or sex. That after the baptism we are in Christ and are neither Greek nor Jew, slave nor free, male nor female. Having resurrected from division, we are baptized into the one Risen Lord who is one with every race and every creed; for the Risen Lord is above all divisions. 
 
-After baptism you will no longer see people in your [[Dreams]], for everything changes. Your little body will remain limited and weak, however, until you are relieved of it. Having fought the good fight and finished the race, you will have kept the faith and received the crown of righteousness and the wreath of the victor. So set your hope upon this - the final of the seven eulogies. 
+After baptism you will no longer see people in your [Dreams](/Dreams), for everything changes. Your little body will remain limited and weak, however, until you are relieved of it. Having fought the good fight and finished the race, you will have kept the faith and received the crown of righteousness and the wreath of the victor. So set your hope upon this - the final of the seven eulogies. 
 
 The great confession of Israel, *"Hear O Israel, the Lord our God, the Lord is One,"* parallels the Christian creed as the one body, one Spirit, one Lord, one baptism, found in the 4th chapter of Ephesians. 
 
@@ -157,7 +143,7 @@ Now let us go into the silence.
 
 ### The Fulfillment of Scripture and Baptism's Transformation
 - Baptism removes human divisions and unifies individuals in Christ.
-- After baptism, people may no longer appear in [[Dreams]], and everything changes.
+- After baptism, people may no longer appear in [Dreams](/Dreams), and everything changes.
 - The element of immersion in water is essential for baptism's transformative power.
 
 ### The Personal Revelation and the Unveiling of Jesus Christ

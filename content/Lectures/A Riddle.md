@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: A Riddle
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Greatest Riddle, Hardened Hearts and Blinded Eyes, I Am In the Father, My Own Experience, The Unfolding Riddle, Sifted Like Wheat, Prodigal Son Turns Around, Predestined Awakening]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight I will call this, *"A Riddle,"* for every creative mind rises to the challenge of a riddle. Now a riddle is defined in the dictionary as *"an imperial object or person; that which is difficult to understand."* It is also *"a sieve to separate the chaff from the wheat, or a puzzling question."*
 
 Now I ask you: who is the greatest of the great of earth, who was never mortal born, or lived - as you and I understand the term - in this secular world? I could use the plural and say *"they"* who were never mortal born, but tonight I will confine myself to the greatest of the great of earth, the one that is worshiped by all. As far as I am concerned, he is Jesus Christ.

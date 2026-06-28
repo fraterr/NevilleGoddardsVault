@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Yours For The Taking
-keywords: [Prayer, Meditation]
-bible_ref:
-tags: lecture
-topics: [The Power of God's Imagination, The Role of Desire and Faith in Manifestation, Stories of Manifestation, The Nature of God and the Power of Imagination, The Search for God, Embracing the Law, The Ultimate Reality, Everything is Yours for the Taking, Everything is Yours for the Taking]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 There is only one cause for the phenomena of life. That cause is God. Housed in you, God is a person in the most literal sense of the word. Believe me, for I know this from experience. God, the only creator, is pure imagination working in the depth of your soul. God began a good work in you and He will bring it to completion on the day God's creative power is unveiled in you! God's creative power and wisdom is defined in scripture as Christ. When Christ unveils himself in you, you will know you are God's power and God's wisdom. 
 
 God, your own wonderful human imagination, underlies all of your faculties, including perception, and streams into your surface mind least disguised in the form of creative, productive fantasy. When you ask yourself what you can do to transcend your present limitation of life, you are dwelling upon the means. God does not ask you to consider the means, but to define the end. Speaking to you through the medium of desire, God asks the question: *"What wantest thou of me?"* Then he tells you not to be concerned with the ways and means, for his ways are unsearchable. They are inscrutable and past finding out. This statement you will find in the 11th chapter of the Book of Romans. So don't be concerned as to how God will fulfill the end, only know that He will. Can you believe your desire is fulfilled? Can you believe it is true? If you can, it is yours for the taking, for nothing is impossible to one who believes. 
@@ -20,9 +6,9 @@ Now, let me share with you three stories which came to me during the summer. The
 
 Scripture tells us, *"He who is not with me is against me."* There is no neutral ground, for *"I have not come to bring peace, but a sword. To set a man against his father and a daughter against her mother."* Why? Because a man's enemies are within him. Everyone must eventually take the stand that imagining creates reality and swim or sink with this concept. 
 
-Now, a few days later while in [[Meditation]], Bennie felt himself being held from behind by three men. As they raised him, he watched the sun rise and heard the words: 'Look! Behold!' and 'Recognition!' And he remembered a passage from my book, Your Faith Is Your Fortune: *"Recognition of this truth will transform you from one who tries to make it so, into one who recognizes it to be so."* 
+Now, a few days later while in [Meditation](/Lectures/Radio Lectures/Meditation), Bennie felt himself being held from behind by three men. As they raised him, he watched the sun rise and heard the words: 'Look! Behold!' and 'Recognition!' And he remembered a passage from my book, Your Faith Is Your Fortune: *"Recognition of this truth will transform you from one who tries to make it so, into one who recognizes it to be so."* 
 
-Soon after this, a friend asked Ben to pray for him. He wanted to be the property manager of the company he worked for. Although he had been passed by year after year, Bennie told him what to do, and imagined hearing the friend tell him the job was now his. A few months later the job was vacated and his friend was given the position with an increase in salary and greater responsibility, just as he had imagined. What did Bennie do? He imagined! To whom did he pray? To his own wonderful human imagination! God, the creator of all life, is like pure imagining in you, underlying all of your faculties - including perception. He streams into your surface mind least disguised in the form of productive fantasy. Bennie took a stand. He prayed for his friend and believed his [[Prayer]] was answered. He tested himself, and the windows of heaven opened and poured forth blessings for all to see. Now Bennie knows that with God all things are possible. 
+Soon after this, a friend asked Ben to pray for him. He wanted to be the property manager of the company he worked for. Although he had been passed by year after year, Bennie told him what to do, and imagined hearing the friend tell him the job was now his. A few months later the job was vacated and his friend was given the position with an increase in salary and greater responsibility, just as he had imagined. What did Bennie do? He imagined! To whom did he pray? To his own wonderful human imagination! God, the creator of all life, is like pure imagining in you, underlying all of your faculties - including perception. He streams into your surface mind least disguised in the form of productive fantasy. Bennie took a stand. He prayed for his friend and believed his [Prayer](/Prayer) was answered. He tested himself, and the windows of heaven opened and poured forth blessings for all to see. Now Bennie knows that with God all things are possible. 
 
 God is your mightier self. Emptying himself, God took on the form of a slave and is now found in the likeness of man. Abdicating his power, Pure Imagination took upon himself the limitations of flesh, thereby becoming human. It is God who weaves your every desire into cubic reality, waiting upon you effectively and swiftly, regardless of whether your desire is for evil or for good. The one who conjures thoughts in the mind of a Hitler or Stalin is the same power as the one conjuring thoughts in the mind of a pope or the Arch Bishop of Canterbury. There aren't two Gods. There is only one! 
 

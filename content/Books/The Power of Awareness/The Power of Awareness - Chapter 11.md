@@ -1,19 +1,3 @@
----
-book: The Power of Awareness
-chapter: Interference
-keywords: []
-bible_ref:
-  - Ephesians 3:20
-tags: book
-topics:
-  - You Can Choose Your Self-Concept
-  - Your Imagination Can Do All
-  - Imagination Made the World
-  - Christ in You is Imagination
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 You ARE free to choose the concept you will accept of yourself. Therefore, you possess the power of intervention, the power which enables you to alter the course of your future. The process of rising from your present concept to a higher concept of yourself is the means of all true progress.
 
 The higher concept is waiting for you to incarnate it in the world of experience.

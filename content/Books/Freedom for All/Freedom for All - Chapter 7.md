@@ -1,13 +1,3 @@
----
-book: Freedom for All
-chapter: Desire, the Word of God
-keywords: []
-bible_ref: [Isaiah 55:11, Isaiah 65:24, Isaiah 42:16, Revelation 1:8,]
-Revelation 22:13, Romans 14:14, Romans 2:11, Romans 11:33, Acts 10:34, Matthew 7:21, Mark 14:13, Luke 22:10
-tags: book
-topics: [God speaks through your basic desires, Do not add conditions to your desires, Desires reflect your self-conception, Give others only what you want back, Your world reflects you and unaccepted gifts, Passover turns from limitation to freedom]
-dg-publish: true
----
 *"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– Isaiah 55:11)
 
 God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.

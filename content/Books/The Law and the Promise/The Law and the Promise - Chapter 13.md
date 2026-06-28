@@ -1,25 +1,3 @@
----
-book: The Law and the Promise
-chapter: All Trivia
-keywords:
-  - Dreams
-bible_ref:
-  - Isaiah 55:1
-tags: book
-topics:
-  - Happiness is in particulars - not generalities
-  - Life is kindergarten for image-making
-  - Woman imagined wearing a hat
-  - Move from dreams to things by imagination
-  - Man fed birds in imagination
-  - Heart must be in the wish fulfilled scene
-  - Couple kept picturing desired painting
-  - Luck comes by persisting in the imaginal end
-  - Trifles produced via imagination - not means
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"General knowledge is remote knowledge; It is in particulars that wisdom consists. And happiness too."* (William Blake)
 
 We must use our imagination to achieve particular ends, even if the ends are all trivia. Because men do not clearly define and imagine particular ends the results are uncertain, while they might be perfectly certain. To imagine particular ends is to discriminate clearly. *"How do we distinguish the oak from the beech, the horse from the ox, but by the bounding outline?"* (William Blake, Human Form Divine)
@@ -37,7 +15,7 @@ She writes:
 
 *"The following week I met some friends for luncheon and one of them was wearing 'the' hat. We all admired it. The very next day, I received a parcel by special delivery messenger. 'The' hat was in the parcel. The friend who had worn it the day before had sent the hat to me with a note saying she did not particularly care for the hat and didn't know why she had bought it in the first place, but for some reason she thought it would look well on me — and would I please accept it!"* ...G.L.
 
-Movement from '[[Dreams]] to things' is the power driving humanity.
+Movement from '[Dreams](/Dreams) to things' is the power driving humanity.
 
 We must live wholly on the level of Imagination. And it must be consciously and deliberately undertaken.
 
@@ -99,7 +77,7 @@ Size doesn't matter. Distinct, sharp images are more alive. Leave this out and y
 
 Just once. Soon a friend who'd bought it sent it, feeling it would suit her better.
 
-### Move from [[Dreams]] to things by imagination
+### Move from [Dreams](/Dreams) to things by imagination
 
 Deliberately undertake conscious imagining. Test getting little *"toys"* this way.
 

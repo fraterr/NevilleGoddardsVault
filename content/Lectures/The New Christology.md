@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The New Christology
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Truth of God's Law, The Need for a New Christology, The Power of Imagination, The Role of Faith and Belief, The Shepherd and the Sheep, The Importance of Knowing and Using Imagination, The Power to Rise]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 You will find this a very practical night, for I feel that the truth of the working of God's law should be looked upon as intensely as anything in this world. So tonight I want to show you quite clearly how God's law operates.
 
 We are told in the 14th chapter of John: 'Let not your heart be troubled, you believe in God, believe also in me. In my Father's house are many mansions; if it were not so would I have told you that I go to prepare a place for you? When I go and prepare a place for you, I will come again and receive you to myself that where I am there you may be also.' You may think some man is speaking to a group of men as I am here; but these words were spoken by the human Imagination, who - having come out from the Father, came into the world. Now leaving the world, human imagination is going to the Father's house. He is returning to discover the source, the cause, of the phenomena of life. 

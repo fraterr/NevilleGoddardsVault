@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Spirit Of Truth
-keywords: []
-bible_ref:
-tags: lecture
-topics: [Principle Personified, Personification in Literature, The Evangelists' Theology, The Teachings of Theologians, Metaphysicians and Scripture, The Unfolding of Truth, The Spirit of Truth, The Fulfillment of God's Word, The Spirit of Truth Within, The Author and God, True Judgment and External Facts, The Power of Imagination, Applying the Teachings, Jesus as the Spirit of Truth, Destiny and Journey, Psalm 22 and Triumph, The Spirit of Truth Within You, Psalm 22 and Triumph, The Spirit of Truth Within You]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When I speak of Jesus or any other character of scripture, I am speaking of a personification of a principle, not of a person as you are or I am. The Bible records vision, and makes no reference to persons or events which occurred on earth. Unfortunately, man has mistakenly taken personifications spoken of there for persons - the vehicle that conveyed the instruction for the instruction, and the gross first sense for the ultimate sense intended. It is difficult to discuss a principle without personifying it and giving it words to speak. This the evangelists have done; but to see Jesus as an historical character, is to see truth tempered to the weakness of the human soul, unable to bear the strong light of revelation. 
 
 In the very first scene of *"Hamlet"*, Shakespeare personifies the morning as *"Morn, in russet mantle clad, walks o'er the dew of yon high eastward hill."* Here Shakespeare has given the morning feet, and clothed in russet it walks over the dew on eastern hill. I love it! Shakespeare was a master of the English tongue. Like Blake, he had an inflamed imagination and personified everything. Blake tells us: *"Cities, mountains, valleys, rivers, all are human. When you enter into their bosoms you enter into heaven and earth, just as you enter your own heaven and earth. And all that you behold, though it appears without, it is within, in your imagination of which this world of mortality is but a shadow."* 

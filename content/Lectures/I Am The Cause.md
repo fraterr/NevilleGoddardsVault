@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: I Am The Cause
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Principle of Scripture, The Author's Interpretation, Scripture and the Son of God, The Prophecy of the Child, Awakening from Sleep, The Four Titles and their Meanings, Understanding the Bible and One's Role, Imagination and Creation, Taking Responsibility for One's Reality, The True Meaning of Jesus Christ, Awakening and the Fulfillment of Scriptures, The Importance of Awakening All, The Importance of Awakening All]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 According to a rabbical principle, that which is not written in scripture is non-existent. The story of Jesus Christ follows this principle.
 
 The unknown author of the Book of Luke (like all the others) wrote only of his own experiences. Turning to his disciplined mind in self contemplation, he is Jesus turning to his disciples and saying: *"'Scripture must be fulfilled in me. All that is written about me must be fulfilled.' Beginning with Moses and the prophets, and the psalms he interpreted to them in all the scriptures the things concerning himself. And they said to one another, 'Did not our hearts burn while he opened to us the scriptures?' Then he said to them, 'Everything written about me in the law of Moses and the prophets and the psalms must be fulfilled.' Then he opened their minds to understand the scriptures."* Luke is speaking of the Christ in you, for any Christ coming from without is a false Christ, taught by false teachers.
@@ -70,9 +56,9 @@ The story of Christ is not what the world is talking about. He isn't going to ch
 
 The principle of the rabbis is true, so let me repeat it: What is not written in scripture is non-existent. The presidents, kings, and dictators of the world are not recorded in scripture; therefore they are nonexistent. They are merely parts God is playing as he passes through states. The part of a president, a king, or a dictator is a state, and when entered it is animated. It seems so real to its occupant and to those who observe it, but it is only a state.
 
-You can play any part - be it a rich man or a poor man, a beggar or a thief, the known or unknown - once you know they are only parts, only states of consciousness. But if you don't know this, and are not willing to give up your present state, you will remain there, looking at your desire and not from it. You can become what you would like to be in the twinkle of an eye by the simple act of [[Assumption]]. 
+You can play any part - be it a rich man or a poor man, a beggar or a thief, the known or unknown - once you know they are only parts, only states of consciousness. But if you don't know this, and are not willing to give up your present state, you will remain there, looking at your desire and not from it. You can become what you would like to be in the twinkle of an eye by the simple act of [Assumption](/Assumption). 
 
-And the day you dare to remain faithful to your [[Assumption]], it will begin to externalize itself. And when it does you may return to sleep, just as you do in your night [[Dreams]]. Becoming possessed by the dream you created in your sleep, you observe your own creation; and if it is a noble dream, you can become so puffed up in your own concept that you forget its creator. Or you can create something ignoble and become so immersed in it you believe in its reality. Anything can be created by a mere [[Assumption]]. When I dared to assume I was the man I wanted to be, I did not discuss it with others; I simply persisted in my [[Assumption]] and watched it harden into fact. That persistent act taught me that this world was a dream.
+And the day you dare to remain faithful to your [Assumption](/Assumption), it will begin to externalize itself. And when it does you may return to sleep, just as you do in your night [Dreams](/Dreams). Becoming possessed by the dream you created in your sleep, you observe your own creation; and if it is a noble dream, you can become so puffed up in your own concept that you forget its creator. Or you can create something ignoble and become so immersed in it you believe in its reality. Anything can be created by a mere [Assumption](/Assumption). When I dared to assume I was the man I wanted to be, I did not discuss it with others; I simply persisted in my [Assumption](/Assumption) and watched it harden into fact. That persistent act taught me that this world was a dream.
 
 My oldest brother at the age of 18 had no money and no prospects of getting any. But he had a dream. He dreamed of owning a building which housed the family business. Twice a day, on his way to work and return, he would stop opposite a building which occupied an entire block at the widest area of the main street, and there he would imagine seeing the words: Goddard and Sons" on its marquee. 
 
@@ -86,9 +72,9 @@ Learn to use your imagination consciously, for it will not fail you on this leve
 
 The ministers of this world are talking about His coming, trying to interpret signs on the outside. But I tell you, Jesus does not come at the end of human history, for he comes individually. Tonight one of you could experience his coming. No one knows but the Father in you. Ever since that Father fell asleep all things have continued as they were from the beginning of creation. So don't look for any change on the outside. 
 
-When the politicians promise change, don't argue; smile as you have through the centuries, knowing they aren't going to change anything. The world is made up of infinite states which man falls into unwittingly - or deliberately, as my brother did. He was a poor boy who deliberately moved into the state of wealth. Not knowing how it was going to come about, he simply persisted in his [[Assumption]] and it hardened into fact.
+When the politicians promise change, don't argue; smile as you have through the centuries, knowing they aren't going to change anything. The world is made up of infinite states which man falls into unwittingly - or deliberately, as my brother did. He was a poor boy who deliberately moved into the state of wealth. Not knowing how it was going to come about, he simply persisted in his [Assumption](/Assumption) and it hardened into fact.
 
-Do you like what the mirror reflects back to you and your background tells you? If it is not what you would like to live with, don't accept it. Rather, look into the mirror of your mind and assume that you are what you would like to be. Declaring that you are now it, don't look away and forget the image reflected there, but persist in your [[Assumption]]. Live in that awareness morning, noon and night as though it were true, and no power can stop you from experiencing its truth.
+Do you like what the mirror reflects back to you and your background tells you? If it is not what you would like to live with, don't accept it. Rather, look into the mirror of your mind and assume that you are what you would like to be. Declaring that you are now it, don't look away and forget the image reflected there, but persist in your [Assumption](/Assumption). Live in that awareness morning, noon and night as though it were true, and no power can stop you from experiencing its truth.
 
 This is a world of effects, as told us in the Book of James. If you look into the mirror and, seeing yourself, you turn away and forget what manner of man you look like, you will continue to perpetuate your unlovely state. But if you look into the mirror of your mind and - seeing what you desire to see, continue thinking from that state, you will see it reflect itself in your world. Then one day you will depart the world and return to the world from which you descended, for you are the Elohim, the God spoken of in the scriptures.
 
@@ -154,7 +140,7 @@ Now let us go into the silence.
 ### Imagination and Creation
 
 - One's imagination can create one's reality.
-- Persistent [[Assumption]] and belief in one's desired state can manifest it.
+- Persistent [Assumption](/Assumption) and belief in one's desired state can manifest it.
 
 ### Taking Responsibility for One's Reality
 

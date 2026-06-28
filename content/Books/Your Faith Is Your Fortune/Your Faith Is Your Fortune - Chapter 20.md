@@ -1,15 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: The Breath of Life
-keywords: []
-bible_ref: null
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 Did the Prophet Elijah really restore to life the dead child of the Widow? This story, along with all the other stories of the Bible, is a psychological drama which takes place in the consciousness of man. The Widow symbolizes every man and woman in the world; the dead child represents the frustrated desires and ambitions of man; while the prophet, Elijah, symbolizes the God power within man, or man’s awareness of being.
 
 The story tells us that the prophet took the dead child from the Widow’s bosom and carried him into an upper room. As he entered this upper room he closed the door behind them; placing the child upon a bed, he breathed life into him; returning to the mother, he gave her the child and said, *“Woman, thy son liveth.”*

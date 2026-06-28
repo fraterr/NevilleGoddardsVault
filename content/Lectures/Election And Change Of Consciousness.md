@@ -1,20 +1,6 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Election And Change Of Consciousness
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Dreams, The Dream of Election, Symbolism in Dreams, Everyone is Chosen, Transforming Consciousness, Embracing the Promise]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Election is an act of God, not based upon any inherent superiority of those elected, but grounded in the love and grace of God and in his promises to the Father. Let no one boast who is called. Let no one boast who is elected, for all will be called, but in God's own predetermined time. So tonight my subject is 'Election and Change of Consciousness'.  
   
-God speaks to Man through the medium of dream and reveals himself in vision, and we are past masters of misinterpreting his words. A dream is a parable containing a single jet of truth. Don't try to give meaning to every word or event of the dream. Perhaps there will be several [[Dreams]], several stories in a single dream - then each story contains its own jet of truth. Let me share one such dream of a friend. Her dream is in three parts. It is a wonderful dream on the higher level.  
+God speaks to Man through the medium of dream and reveals himself in vision, and we are past masters of misinterpreting his words. A dream is a parable containing a single jet of truth. Don't try to give meaning to every word or event of the dream. Perhaps there will be several [Dreams](/Dreams), several stories in a single dream - then each story contains its own jet of truth. Let me share one such dream of a friend. Her dream is in three parts. It is a wonderful dream on the higher level.  
   
 The lady states: 'I found myself in an old, comfortable farmhouse. Outside an old horse grazed in the sun and an old dog slept under a tree. Suddenly a man appeared at my door and said: 'You have been chosen and must leave this place.' For a moment I panicked. What would I do about the house and the animals outside? Perhaps I could sell them or give them away. Then the man, having read my thoughts, said: 'No, you cannot sell them or give them away. You must leave them as they are, and your leaving must be voluntary.'  
   
@@ -77,18 +63,18 @@ Now let us go into the silence.
 
 ## Summary
 
-###  The Power of [[Dreams]]
-- [[Dreams]] are a means for God to communicate with humans.
-- [[Dreams]] contain symbolic truths and should not be over-analyzed.
+###  The Power of [Dreams](/Dreams)
+- [Dreams](/Dreams) are a means for God to communicate with humans.
+- [Dreams](/Dreams) contain symbolic truths and should not be over-analyzed.
 
 ###  The Dream of Election
-- A woman [[Dreams]] of being chosen to leave her comfortable state of consciousness.
+- A woman [Dreams](/Dreams) of being chosen to leave her comfortable state of consciousness.
 - She cannot sell or give away her current state, but must voluntarily leave it.
 - She enters a different world and must complete three games.
 - She reaches the top of a mountain and discovers her accomplishments turned into golden nuggets, symbolizing wisdom.
 - She finds a child lying in a crib, symbolizing transformed creative power.
 
-###  Symbolism in [[Dreams]]
+###  Symbolism in [Dreams](/Dreams)
 - A house represents the state of consciousness.
 - A horse represents the mind and comfortable thinking.
 - A dog represents faith.

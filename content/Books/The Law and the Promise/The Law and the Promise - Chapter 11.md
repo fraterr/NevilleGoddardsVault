@@ -1,32 +1,3 @@
----
-book: The Law and the Promise
-chapter: The Potter
-keywords: []
-bible_ref:
-  - Jeremiah 18:2-4
-  - Isaiah 64:8
-  - 1Corinthians 3:16
-  - Romans 8:9
-  - Romans 8:11
-  - James 4:5
-  - 2Corinthians 13:5-6
-  - John 1:3
-tags: book
-topics:
-  - Go down to the Potter's house
-  - We are the clay - imagination is the Potter
-  - Imagination radically creates
-  - Woman imagined her art show
-  - Test imagination to know the God within you
-  - Diamond and graphite show one substance - two forms
-  - Desire awarenesses drive solutions
-  - Woman saw show in imagination
-  - We are the shuttle - imagination the weaver
-  - Man imagined big order and money appeared
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* (Jeremiah 18:2-4)
 
 The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an awakened imagination refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* (Isaiah 64:8)

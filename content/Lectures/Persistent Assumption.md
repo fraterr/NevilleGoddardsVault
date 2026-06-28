@@ -1,32 +1,18 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Persistent Assumption
-keywords: [Assumption, Brazen impudence, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination, Being Persistent, You Are God, Expanding Imagination's Creative Power, God is One and Within You, Believing in Yourself, Awakening to Godhood, Applying the Principle and Cushioning Others]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 I tell you a truth: There is nothing greater than your own wonderful human imagination! It is he who inspired Blake, Shakespeare, and Einstein, for there is only one spirit in the universe! *"Hear, O Israel, the Lord our God, the Lord is One."* That one spirit is the human imagination! When Blake was asked what he thought of the divinity of Christ he answered: *"Christ is the only God, but so am I and so are you."* Don't think of Christ as someone greater than yourself. He is the only God, but so am I and so are you! Don't consider yourself less than Christ, for there is only God, who is your own wonderful human imagination.
 
-Daring to assume that all things are possible to imagine, put this one reality to the extreme test by assuming you are the person you would like to be. Your reasonable mind and outer senses may deny it; but I promise you: if you will persist, you will receive your [[Assumption]]. Believe me, you are the same God who created and sustains the universe, but are keyed low; so you must be persistent if you would bring about a change.
+Daring to assume that all things are possible to imagine, put this one reality to the extreme test by assuming you are the person you would like to be. Your reasonable mind and outer senses may deny it; but I promise you: if you will persist, you will receive your [Assumption](/Assumption). Believe me, you are the same God who created and sustains the universe, but are keyed low; so you must be persistent if you would bring about a change.
 
-In the Book of Luke, the story is told of a man who came to a house at the midnight hour, and said: *"A friend has arrived who is hungry. Would you let me have three loaves of bread?"* The man upstairs replied: *"It is midnight. My children are in bed asleep and I cannot come down and give you what you want."* Then this statement is made: *"But because of the man's importunity, he was given all that he desired."* The word 'importunity' means *"[[Brazen impudence]]."* Having a desire, the man would not take no for an answer!
+In the Book of Luke, the story is told of a man who came to a house at the midnight hour, and said: *"A friend has arrived who is hungry. Would you let me have three loaves of bread?"* The man upstairs replied: *"It is midnight. My children are in bed asleep and I cannot come down and give you what you want."* Then this statement is made: *"But because of the man's importunity, he was given all that he desired."* The word 'importunity' means *"[Brazen impudence](/Brazen-impudence)."* Having a desire, the man would not take no for an answer!
 
 When you know what you want, you don't ask God as though he were another; you ask your individual self to bring about your desire, for you are he! And God - your own wonderful human imagination - will respond when you will not take no for an answer, as your denial is spoken from within and there is no other. It is within your own being that you persist in assuming you have received what you want. The story is, even though it was midnight and the family was asleep, the father came down and gave what was needed.
 
 The God of a Blake, a Shakespeare, or an Einstein, does not differ from the God housed in you, as there is only one human imagination. There cannot be two. He is not a dual God. You and your imagination are not less than anyone, but you must learn to be persistent. 
 
-A friend recently shared a vision with me, in which I appeared and said: *"The story of Jesus is persistent [[Assumption]]."* If this is true, and we are told to imitate him as a dear child, I must dare to assume I am the being I want to be. I must continue in that [[Assumption]] until that which I have assumed is objectively realized. And if I am one with everyone, how can anyone be greater than I? Do not believe that someone is greater than you because of some influx of spirit or validity. Your imagination is the only God, and there is no other being greater than He! Claim you are what you want to be. Persist in that [[Assumption]]. Continue to assume that role until that which you have assumed is reflected in your world.
+A friend recently shared a vision with me, in which I appeared and said: *"The story of Jesus is persistent [Assumption](/Assumption)."* If this is true, and we are told to imitate him as a dear child, I must dare to assume I am the being I want to be. I must continue in that [Assumption](/Assumption) until that which I have assumed is objectively realized. And if I am one with everyone, how can anyone be greater than I? Do not believe that someone is greater than you because of some influx of spirit or validity. Your imagination is the only God, and there is no other being greater than He! Claim you are what you want to be. Persist in that [Assumption](/Assumption). Continue to assume that role until that which you have assumed is reflected in your world.
 
 Although the churches teach that another, greater than yourself, said: *"Unless you believe that I am he, you will die in your sins"* - these words were spoken by the human imagination! And because imagination is one, and you can't get away from that oneness, don't think of another. Accept these words in the first person, present tense; for unless you believe that you already are what you want to be, you will die in your sins by leaving your desire unfulfilled. If you do not believe you are all imagination, you will continue in your former belief, worshipping a God on the outside and not within.
 
-On this level, we are fragmented, but we are all that one imagination. The word *"Elohim"* is a compound unity of one made up of others. Although we seem to be many, in the most intimate manner possible, we are one! On this level, you and I are keyed low for purposes beyond our wildest [[Dreams]], yet called upon to make the effort to rise above it. This is done in a physical, scientific, and artistic sense, as we begin to discover and express our human imagination. We rise above this level through the act of [[Assumption]]; for an [[Assumption]], though false, if persisted in will harden into fact. As William Blake said: *"If the fool will persist in his folly he will become wise."*
+On this level, we are fragmented, but we are all that one imagination. The word *"Elohim"* is a compound unity of one made up of others. Although we seem to be many, in the most intimate manner possible, we are one! On this level, you and I are keyed low for purposes beyond our wildest [Dreams](/Dreams), yet called upon to make the effort to rise above it. This is done in a physical, scientific, and artistic sense, as we begin to discover and express our human imagination. We rise above this level through the act of [Assumption](/Assumption); for an [Assumption](/Assumption), though false, if persisted in will harden into fact. As William Blake said: *"If the fool will persist in his folly he will become wise."*
 
 There is nothing God cannot do! Do not think that one who is fabulously rich has an influx of spirit which differs from yours. He is imagining wealth, either wittingly or unwittingly; but you can do it knowingly. If he does not know what he is doing, he can lose his wealth and not know how to recover it. I am asking you, regardless of your financial situation, to assume wealth, knowingly. If, tomorrow you would again return to your former state, bring wealth back by claiming *"I am wealthy,"* for there is only one God. He who creates poverty also creates wealth, as there is no other creator.
 
@@ -53,13 +39,13 @@ I am telling you what I have done, what I have seen, and what I have experienced
 
 God the Father is dreaming in the depth of your soul. It is he who began a good work in you, and it is he who will bring it to completion at the day of Jesus Christ. On that day you will be brought to the same perfection as the Father in you, for God is dreaming himself into a greater image of himself and you, the dreamer, are dreaming yourself into the image of yourself.
 
-While you are here, you can assume any desire for yourself and those you love. Then you can dare to believe in what you have assumed. And if you continue your [[Assumption]], you will express it. But you must believe, or you will die in your sins. Always talking to yourself, you are telling yourself that unless you believe you are the man you want to be, you will remain being the man you don't want to be, thereby dying in your sins.
+While you are here, you can assume any desire for yourself and those you love. Then you can dare to believe in what you have assumed. And if you continue your [Assumption](/Assumption), you will express it. But you must believe, or you will die in your sins. Always talking to yourself, you are telling yourself that unless you believe you are the man you want to be, you will remain being the man you don't want to be, thereby dying in your sins.
 
 To believe in another - whether he appear as a Blake, a Shakespeare or an Einstein - you have a false God. You must believe in yourself or die in your sins! You must believe that God actually became you that you may become God - for he did. His name is I am and unless you say within yourself: *"I am what I want to be"* and believe it, you will remain saying within yourself: *"I wish I were what I want to be"* and die in your frustration (your sin). I urge to you learn how to believe in yourself. It may appear to be difficult at first, but not when you are willing to go out on a limb and try it.
 
 I admire the great, inspired poets. Shakespeare is marvelous. Blake is altogether wonderful, and Einstein truly great in his field. These were inspired men; but they did not have any influx of spirit that made them greater than your human imagination, for their imagination and your imagination are one grand, divine imagination, imagining! Their work did not come from something outside of themselves, but from their own imagination, awakening. That same imagination is yours because there is only one spirit. The spirit of man is one with the spirit of the universe and there is no other!
 
-Start now to capture the feeling of being this one spirit. Fall asleep in the feeling that you are God, and as you come hurtling back from the depth of unconsciousness toward this level, you will have numberless crazy little [[Dreams]] based upon this person you are coming through. You will give importance to these [[Dreams]]; but oh, what depths you will reach in that which is unconscious relative to this level!
+Start now to capture the feeling of being this one spirit. Fall asleep in the feeling that you are God, and as you come hurtling back from the depth of unconsciousness toward this level, you will have numberless crazy little [Dreams](/Dreams) based upon this person you are coming through. You will give importance to these [Dreams](/Dreams); but oh, what depths you will reach in that which is unconscious relative to this level!
 
 Let no one frighten you, for you are an immortal being who cannot die. Although I have awakened to my Godhood before you, I am no better because I got there first, for there is no such thing as being first. Everyone is moving toward that level, and no one can fail. And when all have returned, what joy will be expressed as we form the one body, the one spirit, the one Lord, the one God and Father of all! Everyone will have the vision and prove to himself that he is God the Father.
 
@@ -90,7 +76,7 @@ Now let us go into the silence.
 ### Expanding Imagination's Creative Power
 - Recognize that there is only one human imagination, and it is the same within Blake, Shakespeare, Einstein, and yourself.
 - The purpose of the play of life is to expand imagination's creative power.
-- Rise above limitations through the act of [[Assumption]] and allow your assumptions to become facts.
+- Rise above limitations through the act of [Assumption](/Assumption) and allow your assumptions to become facts.
 
 ### God is One and Within You
 - Understand that there is only one God, your own wonderful human imagination.
@@ -108,12 +94,12 @@ Now let us go into the silence.
 - Everyone is moving towards Godhood, and when we all return, we will form the one body, spirit, and God.
 
 ### Applying the Principle and Cushioning Others
-- Apply the principle of [[Assumption]] to protect yourself from life's challenges.
+- Apply the principle of [Assumption](/Assumption) to protect yourself from life's challenges.
 - Be understanding and supportive of others who may not believe in the same way.
 - Realize your responsibility as the cause of the experiences in your life.
 
 ning Others
-- Apply the principle of [[Assumption]] to protect yourself from life's challenges.
+- Apply the principle of [Assumption](/Assumption) to protect yourself from life's challenges.
 - Be understanding and supportive of others who may not believe in the same way.
 - Realize your responsibility as the cause of the experiences in your life.
 

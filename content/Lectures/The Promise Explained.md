@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Promise Explained
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Promise Made to Israel, The Story of Abraham, The Pattern of the Promise, Nicodemus' Encounter with Jesus, The Birth from Above, The Promise of Awakening as God, The Kingdom of Heaven and Resurrection, The Revelation of I Am, The Fulfillment of Scripture]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Bible tells the story of a promise - of a dream that existed two thousand years only in the imagination of Israel; and when their dream came true, Israel did not recognize their own harvest, and rejected their own harvest - denied it, for they were looking for it in an entirely different way. That is really the essence of the Bible, a promise made to man, and then man believed it. It was to Abraham, and Abraham believed God, and it was reckoned unto him as righteousness. So, he had the faith to sustain it and pass it on to generations, and they all believed it; and they maintained, only in their imagination, for two thousand years the dream. Then the dream erupted within an individual - within Israel; and he told the story, but they did not believe. 
 Now we turn to the story. It's an old man, a hundred years old, and a wife ninety years old; and it is said that *"it had ceased to be with her after the manner of women."* In other words, it would be impossible for her to have a child. And the promise was made that she would have a child, and that child would be *"your heir, and you will call him Isaac, which means, "*he laughs." Abraham had, from a slave, a son called Ishmael. It was said of him that his hand was against every man, and every man's hand was against him. 
 

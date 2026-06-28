@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Seeing Christ Through The Eyes Of Paul
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Father and the Fundamental State of Consciousness, Seeing Jesus Christ Through the Eyes of Paul, The Power of God and the Wisdom of God in Man, Loving the Invisible Cause, The Role of Paul in Revealing the Truth, Demonstrations of Faith through Imagination and Belief, Finding Christ as Human Imagination and Awakening, Trusting the Creative Power Within, Overcoming Doubt and Manifesting Desires, The Universal Body and Awakening]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Tonight's subject is very, very practical, yet profoundly spiritual, for we are going to search for the cause of the phenomena of life called in scripture, 'the Father'. So come with me and let me show you Jesus Christ, the father of life, through the eyes of Paul. Now, there is no mention of Paul in any contemporary work of the first century, nor is there any historical record of a man named Paul. He is mentioned in the last part of the Book of Acts and in his thirteen letters - but who is he? Paul, like Moses, Abraham, Isaac, Jacob, and Jesus Christ is a state of consciousness. 
 
 The Bible speaks of a fundamental state of consciousness from which other states derive. That fundamental state is the Father, the creative power in you. This world is made up of God and the extension of himself called 'you'. Say *"I am"* and you have said God's name. 

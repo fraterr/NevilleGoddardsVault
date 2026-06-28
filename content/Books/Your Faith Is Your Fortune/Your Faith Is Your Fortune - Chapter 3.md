@@ -1,17 +1,3 @@
----
-book: Your Faith Is Your Fortune
-chapter: The Principle of Truth
-keywords:
-  - Meditation
-bible_ref:
-  - John 8:32
-tags: book
-topics: []
-banner: Handles/img/banner your faith is your fortune.png
-sticker: emoji//1f4d1
-dg-publish: true
----
-
 *"Ye shall know the truth, and the truth shall make you free."* (John 8:32)
 
 *“Ye shall know the truth and the truth shall set you free.”*
@@ -44,7 +30,7 @@ To rise to the level of any state is to automatically become that state in expre
 
 To accomplish this seemingly impossible feat you take your attention away from your problem and place it upon just being. You say silently but feelingly, *“I AM.”* Do not condition this awareness but continue declaring quietly, *“I AM — I AM.”* Simply feel that you are faceless and formless and continue doing so until you feel yourself floating.
 
-*“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true [[Meditation]].
+*“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true [Meditation](/Lectures/Radio Lectures/Meditation).
 
 This wonderful experience of rising and floating is the signal that you are absent from the body or problem and are now present with the Lord; in this expanded state you are not conscious of being anything but I AM — I AM; you are only conscious of being.
 

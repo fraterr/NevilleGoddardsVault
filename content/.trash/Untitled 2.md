@@ -1,6 +1,3 @@
----
-dg-publish: true
----
 I WAS FIRST made conscious of the power, nature, and redemptive function of imagination through the teachings of my friend Abdullah; and through subsequent experiences, I learned that Jesus was a symbol of the coming of imagination to man, that the test of His birth in man was the individual's ability to forgive sin; that is, his ability to identify himself or another with his aim in life.  
 Without the identification of man with his aim, the forgiveness of sin is an impossibility, and only the Son of God can forgive sin.  
 Therefore, man's ability to identify himself with his aim, though reason and his senses deny it, is proof of the birth of Christ in him.  

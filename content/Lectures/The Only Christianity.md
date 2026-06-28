@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Only Christianity
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Imagining as God, The Misinterpretation of God, The Power of Imagination, The Only Christianity, Inner Conversation and Inner Activity, Transferring the Glory of God, Dreaming the Noble Dream, The True Christianity, The Voice of God, The Voice of God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Here we believe firmly that Imagining is God; that the Supreme Power of the Universe is one with human Imaging. So, when you read the Bible – a fabulous, inspired book – and you come to the word *"God"* you can also use the word *"Imagining"* and you will get a clearer understanding of it.
 
 Romans 4:20 – *"No distrust made him (Abraham) waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised."* When you read it you might think of some being external to your own Imagination. Could you now dream of being the man or woman you want to be? That dream is a promise. We are told he was not swerved by anything in the world and gave all the glory to God, or Imagining; fully convinced that God could do what he had promised.
@@ -30,7 +16,7 @@ Everyone here – your invisible presence is God, but if you imagine money into 
 
 I told this lady about my father and she said. *"Your father did that in 1919, but I will go back to 1919, and my father said, “I do not want to buy a paper because I can see the headlines and they say WAR!"* He was so determined and convinced that he would not buy one for weeks, and when he did finally buy it, the headline said, WAR! Then the lady asked if her father’s attitude towards the sister’s husband had determined what happened, and whether she should continue helping her sister who was always in need. Yes, it determined what happened. But now it could be changed radically. Give to the sister if she needs help. But then I told her that this power is all imagining and it is one tissue with our own wonderful Imagination. There is only ONE. We do not differ in nature or substance from IT but only in degree of intensity. If we could imagine anything in the world and not swerve and not turn and give all glory to this power called God, nothing could keep it from coming into being.
 
-God speaks to man through the language of [[Dreams]], but I do not have to go to sleep to dream. I can imagine something for you and desire it with all my heart. If I imagine something for another, that is God speaking to me. I do not have to see a face. There is such difference between what the churches call God and what the mystic knows is God. Blake speaks of Christianity in the last chapter of his great work *"Jerusalem."* He breaks it into four chapters, like the four rivers, etc., and he tells us:
+God speaks to man through the language of [Dreams](/Dreams), but I do not have to go to sleep to dream. I can imagine something for you and desire it with all my heart. If I imagine something for another, that is God speaking to me. I do not have to see a face. There is such difference between what the churches call God and what the mystic knows is God. Blake speaks of Christianity in the last chapter of his great work *"Jerusalem."* He breaks it into four chapters, like the four rivers, etc., and he tells us:
 
 “I give you the end of a golden string,
 Only wind it into a ball:
@@ -68,7 +54,7 @@ This lady can change the picture for her sister’s husband. She can imagine tha
 
 - The belief that Imagining is God and the Supreme Power of the Universe is one with human Imaging.
 - When reading the Bible, the word "God" can be substituted with "Imagining" for better understanding.
-- Example of Abraham's faith in God's promise, which can be applied to one's own [[Dreams]] and desires.
+- Example of Abraham's faith in God's promise, which can be applied to one's own [Dreams](/Dreams) and desires.
 
 ### The Misinterpretation of God
 
@@ -114,13 +100,13 @@ This lady can change the picture for her sister’s husband. She can imagine tha
 
 ### The Voice of God
 
-- The belief that [[Dreams]] are the medium through which God speaks to man.
-- The ability to dream for oneself or for others and manifest those [[Dreams]].nge circumstances through the understanding and use of Imagination.
+- The belief that [Dreams](/Dreams) are the medium through which God speaks to man.
+- The ability to dream for oneself or for others and manifest those [Dreams](/Dreams).nge circumstances through the understanding and use of Imagination.
 
 ### The Voice of God
 
-- The belief that [[Dreams]] are the medium through which God speaks to man.
-- The ability to dream for oneself or for others and manifest those [[Dreams]].[[Dreams]].
+- The belief that [Dreams](/Dreams) are the medium through which God speaks to man.
+- The ability to dream for oneself or for others and manifest those [Dreams](/Dreams).[Dreams](/Dreams).
 
 
 #Dreams

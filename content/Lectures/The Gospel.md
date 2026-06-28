@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Gospel
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Gospel in the Letters of Paul, Personal Experiences]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When you hear the word *"gospel"* you usually think in terms of Matthew, Mark, Luke, and John, but tonight I want to introduce you to the gospel as found in the letters of Paul.
 
 Listen to these words carefully: *"I am astonished that you are so quickly deserting him who called you in the grace of Christ and turning to a different gospel, not that there is another gospel, but there are some who trouble you and want to pervert the gospel of Christ. But even if we, or any who hear him, should preach a gospel that is contradictory to that which we preached to you, let him be accursed."* Then he repeats this saying: *"I have said before so now I say again. If anyone teaches a gospel that is contrary to the gospel we preach, let him be accursed."* You will notice that Paul includes himself in that statement, because it is possible under the threat of death or pain or torture for man to confess that he was wrong. (The churches made Galileo confess, under the threat of Cain, that the earth was stationary and not moving around the sun, even though today we know Galileo was right.)

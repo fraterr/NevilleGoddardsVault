@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The True Knowledge Of God
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: [The Ignorance of the World towards the Mystery of Christ, The Story of Pilate Represents Individual Contraction and Opacity, Knowing the True Knowledge of God through Experience, The Inmost Center of Truth within Us, The True Knowledge of God in Scripture, Understanding David and Humanity, God within Us and Our Attitude towards Others, The Vision of the Inmost Center and Understanding Bread and Blood, Personal Visions as Foreshadowing, The Elohim and the One God, The Need to Release the Imprisoned Splendor Within, Believing in the True Knowledge of God and its Manifestation, Granting Others the Right to Pursue Their Path to God, Believing in the True Knowledge of God and its Manifestation, Granting Others the Right to Pursue Their Path to God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The attitude of the world towards the great mystery of Christ is due to their ignorance of who he really is. And only to the degree that the individual experiences the mystery, will he know that he is the heavenly being who came down and assumed the body of death to rise as Jesus Christ.
 
 Follow me closely into the drama, as recorded in the 18th chapter of the Book of John, where Jesus is being questioned by Pilate. Now, the word *"Pilate"* means *"closely pressed like a contracted form; the limit of contradiction; of opacity."* To see the characters of scripture as historical is to see truth tempered to the weakness of the human soul. They are not people such as you and I, but eternal states, attributes, and qualities of the individual. Pilate is the state of contraction the Father entered, and the story is taking place in you.
@@ -74,7 +60,7 @@ I am not speaking of anyone on the outside. That is not the truth of which the s
 
 But you are not the garment, which - in my case - will be 65 in February. You created the world; so don't let anyone scare you, as you and the one who is trying to frighten you, are one and the same being. There is no other God. You can prove my words by simply imagining you are already living in the state you desire. Do not raise one finger to make it so; simply believe it to be so. Go about your business as though it were true and it will happen, because that is the way you brought everything into being.
 
-Can you imagine what it would be like if you were the man (the woman) you would like to be? Sustain that imaginal act as though it were true, and no power in the world can stop it from becoming true, because there is no other power. Try it beginning tonight. Take a glorious concept of life. Nothing less than the very best, and simply imagine it to be true about you and those you love. Start with your immediate circle and - although at the moment your circle may deny it by reason of what they are doing - persist in your [[Assumption]] as though it were true, and it will harden into fact.
+Can you imagine what it would be like if you were the man (the woman) you would like to be? Sustain that imaginal act as though it were true, and no power in the world can stop it from becoming true, because there is no other power. Try it beginning tonight. Take a glorious concept of life. Nothing less than the very best, and simply imagine it to be true about you and those you love. Start with your immediate circle and - although at the moment your circle may deny it by reason of what they are doing - persist in your [Assumption](/Assumption) as though it were true, and it will harden into fact.
 
 Grant all of your sleeping brothers their right to pursue God in some other direction. They will never find him in any other way, save by experiencing the story of Jesus Christ. Then and only then will they know the true knowledge of God.
 
@@ -133,7 +119,7 @@ Now let us go into the silence.
 ### Believing in the True Knowledge of God and its Manifestation
 - The true knowledge of God is not about changing society but about personal transformation.
 - To manifest desires, one must believe and imagine themselves already living in their desired state.
-- Persisting in the [[Assumption]] of the desired state will lead to its realization.
+- Persisting in the [Assumption](/Assumption) of the desired state will lead to its realization.
 
 ### Granting Others the Right to Pursue Their Path to God
 - Each person has the right to pursue their own path to God.
@@ -143,7 +129,7 @@ release the imprisoned splendor within oneself to know the true knowledge of God
 ### Believing in the True Knowledge of God and its Manifestation
 - The true knowledge of God is not about changing society but about personal transformation.
 - To manifest desires, one must believe and imagine themselves already living in their desired state.
-- Persisting in the [[Assumption]] of the desired state will lead to its realization.
+- Persisting in the [Assumption](/Assumption) of the desired state will lead to its realization.
 
 ### Granting Others the Right to Pursue Their Path to God
 - Each person has the right to pursue their own path to God.

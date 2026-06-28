@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: A Movement Within God
-tags:
-bible_ref:
-tags: lecture
-topics: [No Outside God Condemns, Spirit of Imagination, You Are God's Operant Power, Freedom to Choose Any State, God Contains All States, No One Else Saves You, God Became You, Play the Play to the End, Test Your Power of Movement, Test Your Power of Movement]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 If you find yourself miserable or helpless here, may I tell you that you are not condemned to the state by a deity outside of yourself, for everything that takes place in your world is but a movement within God.
 
 We are told that in the very beginning the Spirit of God moved upon the face of the waters and things came into being. Everything - your misery, your helplessness, your joy, your sorrow - no matter what it is, comes into being by a movement within God, and he is not a deity outside yourself. You are not a helpless being, but the operant power of God. Seated as you are now, you can move without moving physically because your eternal body is all Imagination. Called Jesus Christ in scripture, you are God’s power and wisdom. So if you find yourself in a place where you are miserable and feel helpless, it is because you either knowingly or unknowingly fell into that state, and not because of the condemnation of some deity outside of you.
@@ -68,7 +54,7 @@ Tonight you try this. Test it. Learn how to move. The test is simple. Just like 
 
 If you move from where you are to where you would like to be, you could detect that motion only by a change of position relative to another object. Motion in itself cannot be done without some frame of reference from which it moves. If your income had just been increased to say $30,000 a year from your present income of less than $10,000, how would you feel? How would your present circle of friends see you? Would they know it? Would they discuss it? Would they speak of the change in your life? Tell them, and then eavesdrop and hear your friends discuss you as one who is now making $30,000 a year. That’s a motion in God and that movement will produce results! Everything in this world is nothing more than the result of a movement in God, which is a motion in your wonderful imagination. The slightest imaginal act that is a change (I don’t mean just an act, for you can imagine things you don’t believe), but if you imagine something you believe is a change, a thrill is sent through divine being. At that moment you have actually entered another state and made it alive and real in your world!
 
-Try it tonight. It costs you nothing, not even a nickel. But may I tell you that when you stand in the presence of the one being who is drawing all towards itself, you are sent into the world to tell them your fantastic story; and if they do not apply what you tell them, they become disillusioned and hate you who invited them to dream. I am sent to invite everyone to dream consciously, to dream deliberately, for this is a dream world. They say that where he comes, he is always rejected, for he tells man: *"Whatever you desire, believe that you have received it and you will."* Anyone who makes that bold [[Assumption]] and gets the confidence of those whose sphere he reaches, runs the risk of rejection, for when they try it and do not quite know how to do it, they become disillusioned and invariably hate the one who invited them to dream. That’s the risk every teacher who is sent must run.
+Try it tonight. It costs you nothing, not even a nickel. But may I tell you that when you stand in the presence of the one being who is drawing all towards itself, you are sent into the world to tell them your fantastic story; and if they do not apply what you tell them, they become disillusioned and hate you who invited them to dream. I am sent to invite everyone to dream consciously, to dream deliberately, for this is a dream world. They say that where he comes, he is always rejected, for he tells man: *"Whatever you desire, believe that you have received it and you will."* Anyone who makes that bold [Assumption](/Assumption) and gets the confidence of those whose sphere he reaches, runs the risk of rejection, for when they try it and do not quite know how to do it, they become disillusioned and invariably hate the one who invited them to dream. That’s the risk every teacher who is sent must run.
 
 But I tell you: it’s true anyway, and if one fails to bring their dream into being and becomes embittered, I say to myself: *"How often must I tell them? Seventy times seven."* I must tell them until they really understand, and those who hear me, will carry my message forward. They will be heard and in the end we will all be gathered back into the one being, to know that we were that one being who conceived the play and took the plunge. So when we said in the beginning: *"It is time for the play to begin,"* not one of us failed to respond in the first person, present tense: *"I AM"*.
 

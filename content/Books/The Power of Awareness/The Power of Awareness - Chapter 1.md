@@ -1,23 +1,3 @@
----
-book: The Power of Awareness
-chapter: I AM
-keywords:
-  - Assumption
-bible_ref:
-  - Ephesians 5:13
-  - Exodus 3:14
-  - Joel 3:10
-tags: book
-topics:
-  - The Light of Consciousness
-  - I AM is the Absolute
-  - I AM Determines Reality
-  - One I AM with Many Concepts
-  - Consciousness Explains Life's Phenomena
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"All things when they are admitted are made manifest by the light: for everything that is made manifest is light."* (Eph. 5:13).
 
 The *“light”* is consciousness. Consciousness is one, manifesting in legions of forms or levels of consciousness. There is no one that is not all that is, for consciousness, though expressed in an infinite series of levels, is not divisional. There is no real separation or gap in consciousness. I AM can not be divided. I may conceive myself to be a rich man, a poor man, a beggar man or a thief, but the center of my being remains the same regardless of the concept I hold of myself. At the center of manifestation there is only one I AM manifesting in legions of forms or concepts of itself and *“I am that I am.”*
@@ -28,7 +8,7 @@ I AM hath sent me unto you. I AM THAT I AM. Be still and know that I AM God.
 
 I AM is a feeling of permanent awareness. The very center of consciousness is the feeling of I AM I may forget who I am, where I am, what I am but I cannot forget that I AM. The awareness of being remains, regardless of the degree of forgetfulness of who, where, and what I am.
 
-I AM is that which, amid unnumbered forms is ever the same. This great discovery of cause reveals that, good or bad, man is actually the arbiter of his own fate, and that it is his concept of himself that determines the world in which he lives [and his concept of himself is his reactions to life]. In other words. If you are experiencing ill health, knowing the truth about cause, you cannot attribute the illness to anything other than to the particular arrangement of the basic cause-substance, an arrangement which [was produced by your reactions to life, and] is defined by your concept *“I am unwell.”* This is why you are told “Let the weak man say, ‘I am strong’ “ (Joel 3:10), for by his [[Assumption]], the cause-substance — I AM — is rearranged and must, therefore, manifest that which its rearrangement affirms. This principle governs every aspect of your life, be it social, financial, intellectual, or spiritual.
+I AM is that which, amid unnumbered forms is ever the same. This great discovery of cause reveals that, good or bad, man is actually the arbiter of his own fate, and that it is his concept of himself that determines the world in which he lives [and his concept of himself is his reactions to life]. In other words. If you are experiencing ill health, knowing the truth about cause, you cannot attribute the illness to anything other than to the particular arrangement of the basic cause-substance, an arrangement which [was produced by your reactions to life, and] is defined by your concept *“I am unwell.”* This is why you are told “Let the weak man say, ‘I am strong’ “ (Joel 3:10), for by his [Assumption](/Assumption), the cause-substance — I AM — is rearranged and must, therefore, manifest that which its rearrangement affirms. This principle governs every aspect of your life, be it social, financial, intellectual, or spiritual.
 
 I AM is that reality to which, whatever happens, we must turn for an explanation of the phenomena of life. It is I AM’s concept of itself that determines the form and scenery of its existence. Everything depends upon its attitude towards itself; that which it will not affirm as true of itself cannot awaken in its world. That is, your concept of yourself, such as *“I am strong,”* *“I am secure,”* *“I am loved,”* determines the world in which you live. In other words, when you say, “I am a man, I am a father, I am an
 

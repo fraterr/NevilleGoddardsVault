@@ -1,22 +1,3 @@
----
-book: The Law and the Promise
-chapter: Subtle Threads
-keywords:
-  - Revision
-bible_ref: null
-tags: book
-topics:
-  - Fancy and imagination
-  - Enter into the feeling of your wish fulfilled
-  - Our future is our imagining in its creative march
-  - If there were dreams to sell what would you buy?
-  - The poet creates from contemplation
-  - Your imagination is most creative when you imagine things as you desire them
-    to be
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"...all you behold; tho' it appears Without, it is Within; In your Imagination, of which this World of Mortality is but a Shadow."* — Blake
 
 Nothing appears or continues in being by a power of its own. Events happen because comparatively stable imaginal activities created them, and they continue in being by virtue of the support they receive from such imaginal activities. The part which imagining the wish fulfilled plays in consciously creating circumstances is obvious in this series of stories.
@@ -25,9 +6,9 @@ You will see how the telling of one story of the successful use of imagination c
 
 One night a gentleman rose in my audience. He said that he had no question to ask but would like to tell me something. This was his story:
 
-When he came out of the Armed Forces after World War II he got a job that gave him take-home pay of $25.00 a week. After ten years he was making $600.00 a month. At that time he bought my book *"Awakened Imagination"* and read the chapter *"The Pruning Shears of [[Revision]]."*
+When he came out of the Armed Forces after World War II he got a job that gave him take-home pay of $25.00 a week. After ten years he was making $600.00 a month. At that time he bought my book *"Awakened Imagination"* and read the chapter *"The Pruning Shears of [Revision](/Revision)."*
 
-Through the daily practice of "[[Revision]]”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
+Through the daily practice of "[Revision](/Revision)”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
 
 In my audience sat a man who, by his confession, was broke. He had read the same book, but he suddenly realized he had done nothing with the use of his imagination to solve his financial problem.
 
@@ -86,9 +67,9 @@ Through spiritual sensation you will give to your image the sensory vividness ne
 
 F.B. used his imagination for a conscious purpose, affecting life instead of merely reflecting it. Imagining the wish fulfilled is the seeking that finds, the asking that receives, the knocking to which is opened. Imaginative constancy controls perception of events in space-time.
 
-### If there were [[Dreams]] to sell, what would you buy?
+### If there were [Dreams](/Dreams) to sell, what would you buy?
 
-You would buy your wish fulfilled. Your [[Dreams]] are without price and without money. Mrs. G.R. imaginatively heard the verdict she wanted to physically hear in court and knew the outer world must confirm it. She completely disregarded all contrary evidence and persisted in hearing the words *"We find the defendant not guilty"* until the jury actually spoke those words.
+You would buy your wish fulfilled. Your [Dreams](/Dreams) are without price and without money. Mrs. G.R. imaginatively heard the verdict she wanted to physically hear in court and knew the outer world must confirm it. She completely disregarded all contrary evidence and persisted in hearing the words *"We find the defendant not guilty"* until the jury actually spoke those words.
 
 ### The poet creates from contemplation
 

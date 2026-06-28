@@ -1,20 +1,6 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Spiritual Cause
-keywords: [Assumption]
-bible_ref:
-tags: lecture
-topics: []
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 All cause is spiritual! Although a natural cause seems to be, it is a delusion of the vanishing vegetable memory. Unable to remember the moment a state was imagined, when it takes form and is seen by the outer eye its harvest is not recognized, and therefore denied. 
 
-*"There is a moment in each day that Satan cannot find, nor can his watch fiends find it, but the industrious find this moment and it multiplies. And when it once is found, it renovates every moment of the day if rightly placed."* (William Blake) The word Satan means doubt. Desiring a certain state, reason may tell you it will be difficult to attain, and your friends may say it is impossible. If you listen to them and doubt your desire's fulfillment, Satan has made himself known to you. Your protractors - God and Satan - are always with you, for one is faith and the other doubt. Can you imagine you are the one you would like to be, and remain faithful to that [[Assumption]]? If you can and do, it will appear, and you will realize that its spiritual cause was the moment of [[Assumption]]. 
+*"There is a moment in each day that Satan cannot find, nor can his watch fiends find it, but the industrious find this moment and it multiplies. And when it once is found, it renovates every moment of the day if rightly placed."* (William Blake) The word Satan means doubt. Desiring a certain state, reason may tell you it will be difficult to attain, and your friends may say it is impossible. If you listen to them and doubt your desire's fulfillment, Satan has made himself known to you. Your protractors - God and Satan - are always with you, for one is faith and the other doubt. Can you imagine you are the one you would like to be, and remain faithful to that [Assumption](/Assumption)? If you can and do, it will appear, and you will realize that its spiritual cause was the moment of [Assumption](/Assumption). 
 
 Now let me share a letter from a friend. It seems that when he first met him, his barber was the fourth man in a four-man shop. (In case you are not familiar with a barber shop, the owner always has the first chair and, if it is a slow day he gets the customer. If he has finished when the second man comes in, the owner takes the second one also. If three more should come in, they will go to the different chairs, with the fourth barber being the last to receive a customer.) One day my friend sat in his chair. As they talked, he discovered that the man was proud of his profession and desired to be the best barber in town. Hearing the desire expressed, my friend imagined the man had reached the top of his profession. Within a year the barber had bought the shop and had moved to the first chair! 
 
@@ -24,7 +10,7 @@ In this same letter, my friend shared a dream which repeated itself the same nig
 
 The 87th Psalm speaks, not of a physical birth, but of a spiritual one, saying; "The Lord records as he registers the peoples, saying: `This one was born there.' My friend did the perfect job in challenging the recording angel, for to sin by silence when we should protest makes cowards of us all, and no coward can be in the Lord's stable of studs. I am convinced from the way he worded his letter that he has been born from above. He has had other experiences which would imply adumbrations, but this vision denotes the past, not the present or future. He knew his physical birthdate, yet that date was denied as the day he was born into the Spirit world, for the man represented not the physical, but the spiritual world. 
 
-I urge everyone to think of time as precious! Use each and every moment to plant a seed of thought you want to experience. Then, when your thoughtful seed is harvested, remember the moment of planting; for every natural effect has a spiritual cause which happens the moment you dare to assume your desire is real. The cause of the barber's success was an [[Assumption]] on the part of my friend. The effect is seen, but the cause is unseen. Start now to consciously use your precious moments and try to remember what you did when your harvest arrives. Nothing appears by accident! Everything is the result of an idea, either wittingly or unwittingly planted. You did it knowing what you were doing, or while lost in an emotional state. Feeling intense, a lovely or unlovely seed is planted, and must be harvested; for you always reap the thoughts you sow. This is the law of life. 
+I urge everyone to think of time as precious! Use each and every moment to plant a seed of thought you want to experience. Then, when your thoughtful seed is harvested, remember the moment of planting; for every natural effect has a spiritual cause which happens the moment you dare to assume your desire is real. The cause of the barber's success was an [Assumption](/Assumption) on the part of my friend. The effect is seen, but the cause is unseen. Start now to consciously use your precious moments and try to remember what you did when your harvest arrives. Nothing appears by accident! Everything is the result of an idea, either wittingly or unwittingly planted. You did it knowing what you were doing, or while lost in an emotional state. Feeling intense, a lovely or unlovely seed is planted, and must be harvested; for you always reap the thoughts you sow. This is the law of life. 
 
 Now, another lady wrote, saying: *"I found myself in a glorious mansion surrounded by beautifully kept grounds. Looking out of the window I saw you, Neville, and a lady, leave in a white car; yet I knew you were going to return. Then I awoke, saying: "*Now I know that I have experienced what Neville said I would.' My throat was parched as though aflame, so I drank a glass of water, returned to bed, and had this dream: I am in a department store looking at brides' Bibles. Several brides, dressed in long white gowns, were being married by proxy, with the department store providing grooms so they could have their picture taken. One bride turned to me and said: `I am going to Paris,' and I replied, `I'm getting married next month.' " 
 
@@ -67,7 +53,7 @@ Now let us go into the silence.
 
 - All cause is spiritual, even if it appears to be natural.
 - Doubt, represented by the term Satan, can hinder the fulfillment of desires.
-- The story of a friend's barber illustrates the power of [[Assumption]] in achieving success.
+- The story of a friend's barber illustrates the power of [Assumption](/Assumption) in achieving success.
 - A dream shared by the friend suggests a spiritual birth into a new consciousness.
 - Time should be valued and used to plant positive thoughts.
 - The story of a lady's dream symbolizes her union with the divine and the unfolding of her true identity.

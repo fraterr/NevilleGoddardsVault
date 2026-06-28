@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Follow Me
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Jesus Finds Philip and Reveals Himself, The Power of Imagination, Spiritual Birth and Awakening, Neville's Personal Experiences, Redemption and the Discovery of Being God, The Power of Imagination and Vision, The Mystery of Christ and the Kingdom of Heaven, The Formation of Christ and Spiritual Birth, Follow Neville into the Kingdom of God, Follow Neville into the Kingdom of God]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 We are told that when Jesus found Philip, he said: *"Follow me."* Then Philip told Nathanael: *"We have found him of whom Moses and the law and the prophets wrote."* Philip is one who is interested in the workings of the mind. Looking for one who is searching for the source of the phenomena of life, Jesus finds one in whom he can reveal himself.   
   
 The Book of John begins: *"In the beginning was the Word and the Word was with God and the Word was God."* Now turning into a person, it is said: *"He was in the beginning with God. All things were made through him and without him was not anything made that was made. In him was life, and the life was the consciousness of men."*   
@@ -104,9 +90,9 @@ There are those who believe they are reborn by changing their attitude and givin
   
 Another lady wrote telling of a dream in which she found herself standing in a long line, moving towards a man sitting behind a desk. When she arrived, he stamped the back of her left hand with indelible ink and she intuitively knew this was her entrance into heaven. A few nights later she found herself on a highway protected by chains. Seeing two secondary roads leading off the highway, she knew she had formerly walked there, but was now on the road towards the kingdom of heaven.   
   
-These [[Dreams]] are foreshadowings - healthy experiences to encourage her to persist. She has now found the one and only way to the Father. That way is I am! Believing in the Father, she will find him, and when she does she will find her very self!   
+These [Dreams](/Dreams) are foreshadowings - healthy experiences to encourage her to persist. She has now found the one and only way to the Father. That way is I am! Believing in the Father, she will find him, and when she does she will find her very self!   
   
-We are told that God speaks to man through the medium of dream and makes himself known in vision. If this is true, no voice should interest you more than that which is heard in your [[Dreams]] and visions. Words spoken by men of the world are spoken from theory. They voice their opinions, but I am telling you my revelations.   
+We are told that God speaks to man through the medium of dream and makes himself known in vision. If this is true, no voice should interest you more than that which is heard in your [Dreams](/Dreams) and visions. Words spoken by men of the world are spoken from theory. They voice their opinions, but I am telling you my revelations.   
   
 This night I have told you how Christ is formed. As Paul said: *"My little children [with] whom I am again in labor until Christ be formed in you."* Just like a child is being formed in the womb of a woman, when Christ is formed in you it comes forth. Then you awaken to discover you have been sound asleep throughout the centuries, although you did not know it.   
   
@@ -156,7 +142,7 @@ Now let us go into the silence.
 ### The Mystery of Christ and the Kingdom of Heaven
 - Neville challenges the belief that imagination only influences external circumstances and challenges followers to imagine they are God.
 - He argues that true redemption and salvation come from realizing our divine nature and the divine power within.
-- Neville shares [[Dreams]] and visions as foreshadowings of individuals finding the way to the Father and the kingdom of heaven.
+- Neville shares [Dreams](/Dreams) and visions as foreshadowings of individuals finding the way to the Father and the kingdom of heaven.
 
 ### The Formation of Christ and Spiritual Birth
 - Neville explains the formation of Christ within individuals, comparing it to the formation of a child in the womb.

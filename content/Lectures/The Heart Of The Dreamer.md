@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Heart Of The Dreamer
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Season of Advent, The Divine Imagination and Human Imagination, Awakening and Expansion, The Vision of the Jackals, The Mystery of Christmas, Using the Law of Imagination, The Spiritual Birth]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The Christian world calls this the season of Advent; the coming of the great event or person; the coming of the Lord Jesus Christ. Of course Paul, in his letter to the Galatians doesn't condemn it, but wonders if they really got the message, saying: 'I notice you observe days and months and seasons and years! I am afraid I have labored over you in vain.' There is nothing wrong with observing this season of the year, as long as you understand it as the coming of the great event or person.
 
 Tonight I will tell you what I know from experience, from which my conviction was born. I must, however, use certain imagery in order to explain it. so I ask that you follow me in your imagination. Your wonderful human imagination is a reproduction of the Divine Imagination. Think of the human imagination as brain cells in the mind of the dreamer, which Divine Imagination sent out to infinity for a divine purpose. These brain cells are destined to return, like a boomerang, right back into the center of Divine Imagination as the dreamer who is God the Father.
@@ -62,7 +48,7 @@ A way for your return was prepared for you before that the world was. This was d
 
 Jesus is Awakened Imagination, who is God the Father; and if he is a father, he must have a son. His son is David, the sum total of his journey through humanity. You will know your journey through humanity is over when David stands before you and calls you Father. He is the symbol of the Christ, the anointed one, a man after your own heart, who did all your will.
 
-In this world you have done - are doing, and will continue to do - the will of the Father; and believe it or not, you are doing it in love. And when you have finished the work you set out to do, you will return as the Father, to discover that it was all a dream. This universe, which seems so real, is a dream. We are eternal dreamers, dreaming non-eternal [[Dreams]]. Falling asleep, you have the illusion of a fabulous journey in space, interlocked with time; but when time is finished, you will awake to discover that you never left your eternal home. That you were never born and have never died, save in your dream.
+In this world you have done - are doing, and will continue to do - the will of the Father; and believe it or not, you are doing it in love. And when you have finished the work you set out to do, you will return as the Father, to discover that it was all a dream. This universe, which seems so real, is a dream. We are eternal dreamers, dreaming non-eternal [Dreams](/Dreams). Falling asleep, you have the illusion of a fabulous journey in space, interlocked with time; but when time is finished, you will awake to discover that you never left your eternal home. That you were never born and have never died, save in your dream.
 
 When time is finished, the breath of the divine being will breathe upon you. You will awaken within that immortal tomb, to come out and see the symbolism which was prepared before that the world was. Taking the infant child wrapped in swaddling clothes in your arms, you will see a heavenly smile appear upon his face, telling you that your journey into the world of death is over. But, because your brothers are still asleep, you will remain here for just a little while to encourage them; for they are all coming back, whether they have just started their journey, or are now returning. Those of you who are here now are returning. I know, for no man comes to me save my Father calls him, and I and my Father are one. Having returned to my Father as the Father, I am only drawing those who are returning, to encourage you to continue for the little while that is left.
 

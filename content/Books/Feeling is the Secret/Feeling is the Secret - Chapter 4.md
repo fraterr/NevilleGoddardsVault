@@ -1,29 +1,3 @@
----
-book: Feeling is the Secret
-chapter: Feeling
-keywords: []
-bible_ref:
-  - Zechariah 4:6
-  - Matthew 9:29
-  - Matthew 13:12
-  - Matthew 25:29
-  - Mark 4:25
-  - Luke 8:18
-  - Luke 19:26
-  - Genesis 1:27
-  - Philippians 2:5-6
-  - John 14:12
-  - John 10:30
-tags: book
-topics:
-  - Spiritual Feeling
-  - You Become What You Feel
-  - Oneness with God
-  - Belief and Application
-banner: Handles/img/banner feeling is the secret.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"NOT by might, nor by power, but by my spirit, saith the Lord of hosts"* (Zechariah 4:6). Get into the spirit of the state desired by assuming the feeling that would be yours were you already the one you want to be. As you capture the feeling of the state sought, you are relieved of all effort to make it so, for it is already so. There is a definite feeling associated with every idea in the mind of man. Capture the feeling associated with your realized wish by assuming the feeling that would be yours were you already in possession of the thing you desire, and your wish will objectify itself.
 
 Faith is feeling, *"According to your faith (feeling) be it unto you"* (Matthew 9:29). You never attract that which you want, but always that which you are. As a man is, so does he see. *"To him that hath it shall be given and to him that hath not it shall be taken away..."* (Matthew 13:12; 25:29; Mark 4:25; Luke 8:18; 19:26). That which you feel yourself to be, you are, and you are given that which you are. So assume the feeling that would be yours were you already in possession of your wish, and your wish must be realized.

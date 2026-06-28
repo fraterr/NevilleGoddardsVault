@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Bread And The Wine
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Power of Imagination in the Bible, Feasting on the Bread and Fish, The Diet of Bread and Wine, The Power of Distinguishing Between the Individual and the State, The Western Gate and the Awakening, Applying the Teachings, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When we say that the supreme power that created the universe is the same power that is resident in man, people question that statement. Possibly everyone here owns a Bible, and when you go to court as a witness - say you are called to swear that you will tell the truth - and to swear you put your hand on the Bible, or the Word of God. Then you open the Bible and read: *"Whatsoever things you desire, believe that you have them…and you shall receive them. And when you stand praying, forgive, if you have aught against your brother, so that your Father in heaven may even so forgive you."* You put your hand on the book of truth and swear to tell the truth, and here is this statement in this very book on which you swear, and you don't believe it. It is true. It is based on the statement: Imagination creates reality, for the Bible is addressed to the real man, Imagination. *"For the Eternal body of man is The Imagination; that is God himself."* (Blake)
 
 Is there anything you cannot imagine? Yet many cannot believe what the Book says is true. You admit you can imagine it, yet man does not believe that the thing imagined can be true. But I tell [you] that if you can imagine it and persist, your persistence will win and you will prove the truth of that statement in Mark 11 given above. However, that is on this level of the world. It is called in the Bible *"feasting on the bread and fish,"* or the loaves and fishes. We can bring about all the changes we desire in our world if we imagine we have it and persist in that state, for if I will persist I will win. But there is another diet spoken of in the Bible and it is called *"bread and wine."* You can go and get all the things of the world with the bread and fish, and you are invited to feast on it if you wish, but the other diet does something to a man that not one in a billion would believe.

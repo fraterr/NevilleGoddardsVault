@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Twelve Disciples
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [The Twelve Disciples, Simon (Hearing), Andrew (Courage), James and John (Justice and Love), Bartholomew (Imagination), Thomas (Denial), Matthew (Gift of God), James the son of Alphaeus (Discernment), Thaddaeus (Praise), Simon the Canaanite (Hearing Good News), Judas (Detachment), Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 *"And when he had called unto him his twelve disciples, he gave them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease."* Matt.10:1. 
 
 The twelve disciples represent the twelve qualities of mind which can be controlled and disciplined by man. If disciplined they will at all times obey the command of the one who has disciplined them.
@@ -30,7 +16,7 @@ When Simon by his works proves himself to be a true and faithful disciple then h
 
 It is this Simon Peter who discovers the I AM to be Christ, and for his discovery is given the keys to heaven, and is made the foundation stone upon which the Temple of God rests. Buildings must have firm foundations and only the disciplined hearing can, on learning that the I AM is Christ, remain firm and unmoved in the knowledge that I AM Christ and beside ME there is no savior.
 
-The second quality to be called to discipleship is Andrew or courage. As the first quality, faith in oneself, is developed it automatically calls into being its brother, courage. Faith in oneself, which asks no man's help but quietly and alone appropriates the consciousness of the quality desired and in spite of reason or the evidence of his senses to the contrary continues faithful patiently waiting in the knowledge that his unseen claim if sustained must be realized such faith develops a courage and strength of character that are beyond the wildest [[Dreams]] of the undisciplined man whose faith is in things seen.
+The second quality to be called to discipleship is Andrew or courage. As the first quality, faith in oneself, is developed it automatically calls into being its brother, courage. Faith in oneself, which asks no man's help but quietly and alone appropriates the consciousness of the quality desired and in spite of reason or the evidence of his senses to the contrary continues faithful patiently waiting in the knowledge that his unseen claim if sustained must be realized such faith develops a courage and strength of character that are beyond the wildest [Dreams](/Dreams) of the undisciplined man whose faith is in things seen.
 
 The faith of the undisciplined man cannot really be called faith. For if the armies, medicines or wisdom of man in which his faith is placed be taken from him, his faith and courage go with it. But from the disciplined one the whole world could be taken and yet he would remain faithful in the knowledge that the state of consciousness in which he abides must in due season embody itself. This courage is Peter's brother Andrew, the disciple, who knows what it is to dare, to do and to be silent.
 

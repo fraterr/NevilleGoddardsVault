@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Battle Of Armageddon
-keywords: [Assumption, Dreams]
-bible_ref:
-tags: lecture
-topics: [Your Imagination and the World, The Battle of Armageddon, Neutrality and the New Idea, The Symbolism of the World, Personal Awakening and Transformation, The Door to Heaven, Personal Application of the Law, Conclusion, Conclusion]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Your true environment is in your imagination! All that you behold, though it appears without, it is within, in your imagination - of which this world of mortality is but a shadow. No matter what is taking place on the outside, it is but a symbol telling you what is taking place within; for the world is nothing more than yourself pushed out. Its image, alive in your imagination, overwhelms you. 
 
 Tonight let us turn to the greatest of all books, the Bible. In it we are told that at the end of the world there would be a great war whose final battle is called 'Armageddon'. You may have been taught that this battle will take place on the outside, as races battle races, and nations battle nations. It doesn't mean communism against democracy or socialism against capitalism. There will always be wars and conflicts; but the battle of Armageddon is the battle of ideology. This battle does not take place on the outside, but within each and every individual.
@@ -48,7 +34,7 @@ Do not look at the conflict on the outside as terrible; rather see it as a symbo
 
 The traditions of men are only dead letters. Our clergy are not telling the word of God, they are too involved in politics, thinking they can buy off the eruption with money. You can't stop ransom or blackmail, but you can tell the story of Jesus Christ from experience - but the clergy do not know it. If they heard what you have tonight, they would think my words were blasphemy; yet I am telling you what I have experienced, while they speak from theory. That is all right, for they are part of the story. *"For the sake of the traditions of your fathers you have made void the word of God."* Religion has created saints out of nothing, for they never existed. Now something is happening to force them to confess to their nonexistence, even though they have made hundreds of millions of dollars in the selling of these little icons. They will still sell them, because there are people who will still want their little so-called protection based upon the outside. But you don't want them; that's why you are here. You are willing to believe the drama is unfolding in you and not on the outside. So when a horrible blow hits your heart, try to see its symbolism, as everything in the outer world is a symbol. Why and how did it happen and what does it mean? What is the significance of the thing that happened? Just like a dream, everything has some significance, for God is speaking; therefore you would listen attentively and try to understand what he is saying in symbolism.
 
-I received another lovely letter with about twenty or twenty-five [[Dreams]] in it. I couldn't even summarize the [[Dreams]] because they differ, but I can tell her that they are perfectly marvelous. They are all adumbrations, foreshadowings of the story that will erupt within her when she discovers that she is Jesus Christ. In her [[Dreams]], Jesus still seems to be another, and that's an adumbration, like the story in 2 Kings concerning Elisha, who said: *"Give me a double portion of your spirit"* and the Lord replied: *"When I depart from you, if you see me you will get what you ask for. If you do not, you shall not have it."* Then fire separated them and Elijah went up in a whirlwind. That's an adumbration, for the Word must erupt within you first, before you can understand the story of Elijah. It is said that fire separated them. May I tell you: it is a fire. In the 14th chapter of Zachariah we read that the Lord stands on the Mount of Olives, as it is split from east to west, with one-half moving northward and the other half southward. You are the Mount of Olives the Lord is standing on, when you are split to discover your true identity as golden, liquid light. Fusing with that light, you will go up into heaven in a whirlwind motion as a fiery serpent. The fire that separates you is the bolt of lightening which cuts you in two from your head to the base of your spine; but who could understand this until it was experienced and dramatized as the evangelists did. 
+I received another lovely letter with about twenty or twenty-five [Dreams](/Dreams) in it. I couldn't even summarize the [Dreams](/Dreams) because they differ, but I can tell her that they are perfectly marvelous. They are all adumbrations, foreshadowings of the story that will erupt within her when she discovers that she is Jesus Christ. In her [Dreams](/Dreams), Jesus still seems to be another, and that's an adumbration, like the story in 2 Kings concerning Elisha, who said: *"Give me a double portion of your spirit"* and the Lord replied: *"When I depart from you, if you see me you will get what you ask for. If you do not, you shall not have it."* Then fire separated them and Elijah went up in a whirlwind. That's an adumbration, for the Word must erupt within you first, before you can understand the story of Elijah. It is said that fire separated them. May I tell you: it is a fire. In the 14th chapter of Zachariah we read that the Lord stands on the Mount of Olives, as it is split from east to west, with one-half moving northward and the other half southward. You are the Mount of Olives the Lord is standing on, when you are split to discover your true identity as golden, liquid light. Fusing with that light, you will go up into heaven in a whirlwind motion as a fiery serpent. The fire that separates you is the bolt of lightening which cuts you in two from your head to the base of your spine; but who could understand this until it was experienced and dramatized as the evangelists did. 
 
 It is still a closed book to those who have not experienced scripture, but it will be understood by those who are drawn by the one who had the experience. I have shared my experiences with you, in the hope that in the not distant future you will individually experience the entire story of Jesus Christ. So when you see the unrest today, rejoice that the young is now pitted against the old. And remember: the conflict is in your imagination. Although I have overcome the world, as the drama has proved, I may find myself listening to the radio or watching television and get involved. I do it by forgetting and coming down into the nonsense in this world. Then I must get back up on the mountain and see it as symbolism, telling me what is happening within.
 
@@ -66,7 +52,7 @@ We can say all kinds of things, justify our actions and beliefs - that is our ri
 
 The world reflects this disturbance, and those in the world are being led like sheep to the slaughter. Yet in the hearts of those who observe it from above, it is cause for rejoicing, as they wait only for the eruption of God's immortal plan. Jesus Christ is this immortal pattern of salvation. Its eruption in man causes an eruption in the outer world, as the young is set against the old, and the new conflicts with the traditions of men.
 
-In the meanwhile, take what you know of this law, and use it towards your own personal good fortune in the world of Caesar. It's simple. Go to the end and assume the feeling of the wish fulfilled. Don't ask anyone to help you. Ask no one if it is right. If you like it, assume you have it. Remain faithful to your [[Assumption]], and that Being who is going to erupt in you will take you to that end. If you find yourself moving from your fulfilled desire, go back to it, and once more assume the feeling of the wish fulfilled. Do this and your [[Assumption]] will harden into fact.
+In the meanwhile, take what you know of this law, and use it towards your own personal good fortune in the world of Caesar. It's simple. Go to the end and assume the feeling of the wish fulfilled. Don't ask anyone to help you. Ask no one if it is right. If you like it, assume you have it. Remain faithful to your [Assumption](/Assumption), and that Being who is going to erupt in you will take you to that end. If you find yourself moving from your fulfilled desire, go back to it, and once more assume the feeling of the wish fulfilled. Do this and your [Assumption](/Assumption) will harden into fact.
 
 Now let us go into the silence.
 
@@ -104,9 +90,9 @@ Now let us go into the silence.
 - Understand the symbolism and listen to what God is saying.
 
 ### Personal Application of the Law
-- Use the law of [[Assumption]] to achieve your desires.
+- Use the law of [Assumption](/Assumption) to achieve your desires.
 - Assume the feeling of the wish fulfilled and remain faithful to it.
-- Your [[Assumption]] will become a reality if you persist in it.
+- Your [Assumption](/Assumption) will become a reality if you persist in it.
 
 ### Conclusion
 - Embrace the battle of Armageddon within yourself.

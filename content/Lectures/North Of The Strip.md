@@ -1,14 +1,3 @@
----
-book: 
-chapter: North Of The Strip
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Belief in Imagination and Creation, "Case History 1: Selling and Buying a House", "Case History 2: Getting Unusual Glasses", Everyone Can Get What They Want, The Power of Imagination and Creation, Understanding Biblical Metaphors, Proving the Power of Imagination]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
-dg-publish: true
----
 On this platform we believe that God is all Imagination and God is man (spiritual man, not the garment of skin he wears). Therefore man is all Imagination. We believe also that God, being the only creator, and God being man, then we are creators, that life itself is an activity of Imagination. The whole world in which we live is a world of Imagination. Tonight we hope to show it in such a manner that you will be encouraged to go out and prove it. Everyone can become what he or she desires to be, yet the real being is invisible and you see only its manifestation, for God is spirit, therefore man is spirit, and when we speak of spirit we mean imagining.
 
 Here are two wonderful case histories, so follow closely and try to duplicate the technique. The lady who gave these to me does not differ from anyone here, for God is man. We are that man. I do not mean male/female, for these are the garments woven for man (generic man, which is God) to wear.
@@ -58,7 +47,7 @@ Tonight you take your dream and make it a noble one, and create a scene that wou
 
 Everything in this world is God's creation and God is all Imagination. Even the clothes we wear, the chairs we are sitting on, were once imagined and then brought into being. Let no one tell you this is wrong. Those who tell you to kill out desire have not gone far enough, for if I wanted to kill desire I would have to start with the desire not to desire, and where would [I] go? How far?
 
-So, go out and do what you want to do and fulfill your [[Dreams]]. Someone without academic background is telling you this. I am going out on a limb to tell you that everything in the Bible is true on a higher level, but it is revealed figuratively, and man confused literal truth with metaphor. I do not crawl on my belly and no little serpent spoke to me, as it says in Genesis; yet what is meant is true in metaphor. The serpent was called the most subtle of all the creatures and it represents the wisdom of man, who takes all his arts and religions for his own glamour and dedicates them to the creator. And then comes one who never went to any school (Blake) and shows them reality. And now those who thought themselves so wise are figuratively crawling on their bellies in the presence of such as he. In the Bible things are told on a higher level and told in metaphor, but I know from mystical experience things I could not have found in any book.
+So, go out and do what you want to do and fulfill your [Dreams](/Dreams). Someone without academic background is telling you this. I am going out on a limb to tell you that everything in the Bible is true on a higher level, but it is revealed figuratively, and man confused literal truth with metaphor. I do not crawl on my belly and no little serpent spoke to me, as it says in Genesis; yet what is meant is true in metaphor. The serpent was called the most subtle of all the creatures and it represents the wisdom of man, who takes all his arts and religions for his own glamour and dedicates them to the creator. And then comes one who never went to any school (Blake) and shows them reality. And now those who thought themselves so wise are figuratively crawling on their bellies in the presence of such as he. In the Bible things are told on a higher level and told in metaphor, but I know from mystical experience things I could not have found in any book.
 
 The statement: You must be born from above or you cannot enter the Kingdom of Heaven is an example. It is literally true, but it is told in metaphor. The rich young man said: How is it possible to again enter my mothers womb and be born a second time? But the womb is below and not above. It is speaking of the birth of the second man, the spiritual man. From Genesis right to the end of the Book, it says that God created all things and that he said: It is good. Seven times he repeats: It is good − the perfect number. One day you will see the whole vast world, and you will say: It is good! And you will animate it. I know everything depends on the activity taking place in MAN − and spell it with large letters, for the garments are male-female. You are MAN, this generic man that is God. The whole vast world is man pushed out. Not a man, but MAN. All that you behold though it seems to be without, it is within, in your own wonderful Imagination of which this vegetative world is but a shadow. It is hard at this stage to think that your world is a shadow, and it is cast by you and you are activating it.
 
@@ -95,7 +84,7 @@ Now let us go into the silence.
 ### The Power of Imagination and Creation
 - The whole world is God's creation, and God is all Imagination.
 - Ignore those who tell you to kill desire, as desire is the starting point for creation.
-- You can fulfill your [[Dreams]] if you know that you are all Imagination and create like God.
+- You can fulfill your [Dreams](/Dreams) if you know that you are all Imagination and create like God.
 
 ### Understanding Biblical Metaphors
 - The Bible contains truths told through metaphor, and Blake reveals a higher level of reality.

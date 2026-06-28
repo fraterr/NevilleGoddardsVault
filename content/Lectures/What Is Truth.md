@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: What Is Truth
-keywords: [Dreams]
-bible_ref:
-tags: lecture
-topics: [Christianity as the Fulfillment of Judaism, The Prophets and their Inquiries, Misunderstanding of Scripture, Personal Anecdote, Knowing the Truth, Christianity as the Fulfillment of Judaism, The Crucifixion and Resurrection, Bounds set by the Sons of God, Thirst for the Word of God, Crucifixion and Resurrection, Christianity as the Fulfillment of Judaism, Personal Experience and Interpretation, Fulfilling the Mission, Personal Experience and Interpretation, Fulfilling the Mission]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 Christianity is the fulfillment of Judaism, the fulfillment of all that was prophesied in the Old Testament. This week the Christian world celebrates Passover, the triumphal march into Jerusalem - the trial, the crucifixion, burial, and resurrection. Let me share these events with you as they are seen through the eyes of one who has experienced them. 
 
 In the 18th chapter of the Book of John, Pilate said: *"So you are a king?"* and Jesus replied: *"You say that I am, but my kingdom is not of this world. For this I was born. For this I came into the world, to bear witness to the truth."* Then Pilate asked: *"What is truth?"* and when there was no response, Pilate left, saying: *"I find nothing in this man worth condemnation."* Having already claimed: I am the truth, and my word is truth, here we find Jesus making the claim: I came to bear witness to the truth. 
@@ -54,7 +40,7 @@ His statement continues, *"For this I came into the world."* This is true, for t
 You are the incarnated Word of God, who at one moment in time will be called. Your name, already written in the Book of Life, will be checked off; and you will be incorporated into the living body of love, which is God's most radiant form. In that instant you become one with that same body, that same Spirit, that same Lord, that one God and Father of all. 
 As Love, yet wearing a body of power, you will be sent back into the world to wait your time of thirty years. While here, you will do all of the normal things you did before. You will make mistakes, you will laugh and cry, and then suddenly scripture will erupt from within, and you will find yourself compelled to tell your experiences to all who will listen. But because it is not what tradition teaches, many will turn their back and walk away, unable to believe what they cannot comprehend.
 
-This Friday, many will spend three hours celebrating an event which took place in me in the matter of moments; for I remember the night memory returned, and I reenacted the 42nd Psalm. I remember when I walked in procession to the house of God, when a voice rang out saying: *"And God walks with them."* A woman questioned the voice, saying: *"If God walks with us, where is he?"* and the voice replied: *"At yours side."* Turning to her right, she looked into my eyes and laughed, because she saw a man she knew was weak and frail, a man who could succumb to temptation. Her question: *"What? Neville is God?"* was answered: *"Yes, in the act of waking."* Then the voice spoke to me from the depth of my soul, and said: "I laid myself down within you to sleep, and as I slept I dreamed a dream... Suddenly I knew exactly what he was dreaming, for in a split second I felt myself become vortices, as I penetrated my hands, my feet, my head, and the right side of my body. I felt the six points of the Mogen David, the Star of David, experiencing an ecstasy greater than my wildest [[Dreams]]. Now I know the crucifixion happened on the night of the triumphal journey into Jerusalem. Tradition is correct in keeping it in the same time slot, but they do not tell the story correctly. 
+This Friday, many will spend three hours celebrating an event which took place in me in the matter of moments; for I remember the night memory returned, and I reenacted the 42nd Psalm. I remember when I walked in procession to the house of God, when a voice rang out saying: *"And God walks with them."* A woman questioned the voice, saying: *"If God walks with us, where is he?"* and the voice replied: *"At yours side."* Turning to her right, she looked into my eyes and laughed, because she saw a man she knew was weak and frail, a man who could succumb to temptation. Her question: *"What? Neville is God?"* was answered: *"Yes, in the act of waking."* Then the voice spoke to me from the depth of my soul, and said: "I laid myself down within you to sleep, and as I slept I dreamed a dream... Suddenly I knew exactly what he was dreaming, for in a split second I felt myself become vortices, as I penetrated my hands, my feet, my head, and the right side of my body. I felt the six points of the Mogen David, the Star of David, experiencing an ecstasy greater than my wildest [Dreams](/Dreams). Now I know the crucifixion happened on the night of the triumphal journey into Jerusalem. Tradition is correct in keeping it in the same time slot, but they do not tell the story correctly. 
 
 In the Book of Acts, we find this quote from Deuteronomy: *"Cursed be anyone who hangs upon a tree."* The crucifixion took place upon the tree of life, in Man, and not on any wooden tree. Blake tells us so beautifully: 
 

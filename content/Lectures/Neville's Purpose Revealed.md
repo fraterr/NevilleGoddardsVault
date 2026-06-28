@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Neville's Purpose Revealed
-keywords: [Assumption, Bridge of incidents, Dreams]
-bible_ref:
-tags: lecture
-topics: [Purpose revealed, Eternity in man's mind, The gift is God Himself, The second youth, Personal experience, The birth of One from above, The son of David, The coming drama, Imagination and faith, Questions and answers, Questions and answers]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of God. Paul said: *"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in Christ as a plan for the fullness of time."* [Ephesians 1:9, 10] There is a plan behind it all. 
 
 Now let us turn to the most disputed verse in Ecclesiastes: *"God has put Eternity into man’s mind, yet so that man cannot find out what Cod has done from the beginning to the end."* [Ecclesiastes 3:11] 
@@ -128,11 +114,11 @@ So, everyone will be the Lord Jesus Christ, They all form *"one Body, one spirit
 
 When this thing happens to you, there are those in your circle of friends who will see you, and they can’t believe their own eyes, but they can’t deny what they saw. They will know you are the Lord. They will dine with you the next night, have a drink with you, tell you a joke; you tell them one, and still they can’t get it out of their heads that they saw you and you were the Lord. They know that you are the Lord, and yet you are the same friend they have always known. But they saw you as you really are after you have been born from above.
 
-So, man must be born from above or he cannot enter the Kingdom of Heaven. Everyone will be born from above, for that One to be born is already in man dreaming. The Dreamer-in-man is Jesus Christ. You are dreaming this world. Now dream it nobly. Dream noble [[Dreams]]. All can come to pass.
+So, man must be born from above or he cannot enter the Kingdom of Heaven. Everyone will be born from above, for that One to be born is already in man dreaming. The Dreamer-in-man is Jesus Christ. You are dreaming this world. Now dream it nobly. Dream noble [Dreams](/Dreams). All can come to pass.
 
-In your [[Dreams]] dare to assume that you are the man that you want to be. Assume that you are it, and persist in that [[Assumption]]; and that [[Assumption]], in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the [[Assumption]] as though it were true.
+In your [Dreams](/Dreams) dare to assume that you are the man that you want to be. Assume that you are it, and persist in that [Assumption](/Assumption); and that [Assumption](/Assumption), in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the [Assumption](/Assumption) as though it were true.
 
-Night after night, sleep as though you are the man -- the woman -- that you would be or that you would like to be. And then, if tomorrow does not bring it to pass, it doesn’t matter. There are intervals of time between the [[Assumption]] and its fulfillment. It’s like generation. So, if you dare to assume it, give it time. And then some [[Bridge of incidents]] will be built for you without your conscious knowledge of it, and it will lead you across that bridge to the fulfillment of your [[Assumption]] in a way that you do not know.
+Night after night, sleep as though you are the man -- the woman -- that you would be or that you would like to be. And then, if tomorrow does not bring it to pass, it doesn’t matter. There are intervals of time between the [Assumption](/Assumption) and its fulfillment. It’s like generation. So, if you dare to assume it, give it time. And then some [Bridge of incidents](/Bridge-of-incidents) will be built for you without your conscious knowledge of it, and it will lead you across that bridge to the fulfillment of your [Assumption](/Assumption) in a way that you do not know.
 
 So, dare to assume a noble concept of yourself. Live in it as though it were true; and may I tell you? It will become true.
 
@@ -163,7 +149,7 @@ Hide not Thy face from. Me.”
 
 That’s the drama.
 
-Now in her letter she said, *"Recently I have been having these [[Dreams]] where I know I am dreaming. I am trying so hard to see what I am seeing, but I know I can open my eyes and see differently; but I am struggling to open the eyes and they won’t open."*
+Now in her letter she said, *"Recently I have been having these [Dreams](/Dreams) where I know I am dreaming. I am trying so hard to see what I am seeing, but I know I can open my eyes and see differently; but I am struggling to open the eyes and they won’t open."*
 
 They are actually on the verge of it, my Dear. You must open the in-current eye, because you are going to see inwards into the world of thought -- into Eternity -- that which is ever expanding in the bosom of God, -- what is it? The human imagination.
 
@@ -296,12 +282,12 @@ He said, *"He will be a very good, successful doctor. But,"* he said, *"don’t 
 ### Imagination and faith
 - Man is all imagination and God exists within man
 - What is imagined persistently becomes reality
-- Dare to assume a noble concept of oneself and persist in that [[Assumption]]
+- Dare to assume a noble concept of oneself and persist in that [Assumption](/Assumption)
 
 ### Questions and answers
 - Peter's denial represents not fully living by the teachings
 - The prophet Jordan predicted Neville's purpose in life
-- Neville is the fourth one who belongs to God and has a specific purpose to fulfillrsist in that [[Assumption]]
+- Neville is the fourth one who belongs to God and has a specific purpose to fulfillrsist in that [Assumption](/Assumption)
 
 ### Questions and answers
 - Peter's denial represents not fully living by the teachings

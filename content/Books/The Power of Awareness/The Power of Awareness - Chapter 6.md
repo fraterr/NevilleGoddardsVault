@@ -1,21 +1,3 @@
----
-book: The Power of Awareness
-chapter: Attention
-keywords:
-  - Assumption
-bible_ref:
-  - James 1:8
-tags: book
-topics:
-  - Concentrated Attention is Powerful
-  - Focus Attention on Wish Fulfilled
-  - Attention Progress Needs Discipline
-  - Imagination Follows Attention's Direction
-  - Attention Mastery Accesses Higher Self
-banner: Handles/img/banner the power of awareness.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"A double-minded man is unstable in all his ways"*. (James 1:8).
 
 Attention is forceful in proportion to the narrowness of its focus, that is, when it is obsessed with a single idea or sensation. It is steadied and powerfully focused only by such an adjustment of the mind as permits you to see one thing only, for you steady the attention and increase its power by confining it. The desire which realizes itself is always a desire upon which attention is exclusively concentrated, for an idea is endowed with power only in proportion, to the degree of attention fixed on it. Concentrated observation is the attentive attitude directed [from] some specific end. The attentive attitude involves selection, for when you pay attention, it signifies that you have decided to focus your attention on one object or state rather than on another.
@@ -40,7 +22,7 @@ This is no easy exercise, but just as specific exercises greatly help in develop
 
 When you attain control of the internal direction of your attention, you will no longer stand in shallow water but will launch out into the deep of life.
 
-You will walk in the [[Assumption]] of the wish fulfilled as on a foundation more solid even than earth.
+You will walk in the [Assumption](/Assumption) of the wish fulfilled as on a foundation more solid even than earth.
 
 
 

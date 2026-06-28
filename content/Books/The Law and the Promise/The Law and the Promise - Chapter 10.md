@@ -1,27 +1,3 @@
----
-book: The Law and the Promise
-chapter: Things Which do not Appear
-keywords:
-  - Revision
-bible_ref:
-  - Hebrews 11:3
-  - Romans 4:17
-  - John 1:3
-  - Isaiah 61:1
-tags: book
-topics:
-  - The visible world comes from the unseen
-  - Imagining is the greatest mystery
-  - By imagination all things are made
-  - A woman's imaginal acts on granddaughter
-  - Imagination sustains all forms
-  - Woman imagined boy's normalcy nightly
-  - Apply your own teachings
-  - Imagination binds the broken - frees captives
-banner: Handles/img/banner the law and the promise.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *"...what is seen was made out of things which do not appear."* (Heb. 11:3)
 
 *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
@@ -48,7 +24,7 @@ All imaginative men and women are forever casting forth enchantments, and all pa
 
 There is no form in nature, which is not produced by, and sustained by some imaginal activity. Therefore, any change in the imaginal activity must result in a corresponding change in form. To imagine a substitute-image for unwanted or defective content is to create it. If only we persist in our ideal imaginal activity and do not let lesser satisfactions suffice, ours shall be the victory.
 
-"When I read in 'Seedtime and Harvest' the story of the school teacher who, through her imagination, in daily [[Revision]], transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
+"When I read in 'Seedtime and Harvest' the story of the school teacher who, through her imagination, in daily [Revision](/Revision), transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
 
 "To tell all the problems involved would take pages, for my husband has never had such a difficult child nor such a trying parent situation. The lad was too young to be expelled, yet the teachers refused to have him in their classes. To make matters worse, the mother and grandmother literally 'camped' on the school grounds making trouble for everyone.
 

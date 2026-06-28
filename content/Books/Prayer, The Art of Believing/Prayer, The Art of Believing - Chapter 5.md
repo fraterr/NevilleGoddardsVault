@@ -1,35 +1,7 @@
----
-book: Prayer, The Art of Believing
-chapter: Law of Thought Transmission
-keywords:
-  - Assumption
-  - Prayer
-bible_ref: null
-tags: book
-topics:
-  - Your Word Heals
-  - Clearly Defined Prayer Objectives
-  - Consciousness is the Conductor
-  - Subjective Words Awaken States
-  - Freedom is Ignorance of Causes
-  - Inner States Reflect Outer World
-  - Overcome Limitations
-  - Distance No Obstacle
-  - Depend on Your Attitude
-  - You Reap What You Sow
-  - Giving is Receiving
-  - Define Self by Beliefs
-  - Use Imaginal Faculties
-  - Thoughts and Feelings Vibrate
-  - Harmony of the Spheres
-banner: Handles/img/banner prayer art of believing.png
-sticker: emoji//1f4d1
-dg-publish: true
----
 *“He sent his word and healed them, and delivered them from their destructions.”* He transmitted the consciousness of health and awoke its vibratory correlate in the one toward whom it was directed. He mentally represented the subject to himself in a state of health and imagined he heard the subject confirm it. *“For no word of God shall be void of power; therefore hold fast the pattern of healthful words which thou has heard.”*
-To pray successfully you must have clearly defined objectives. You must know what you want before you can ask for it. You must know what you want before you can feel that you have it, and [[Prayer]] is the feeling of the fulfilled desire.
-It does not matter what it is you seek in [[Prayer]], or where it is, or whom it concerns. You have nothing to do but convince yourself of the truth of that which you desire to see manifested.
-When you emerge from [[Prayer]] you no longer seek, for you have—if you have prayed correctly—subconsciously assumed the reality of the state sought, and by the law of reversibility your subconscious must objectify that which it affirms.
+To pray successfully you must have clearly defined objectives. You must know what you want before you can ask for it. You must know what you want before you can feel that you have it, and [Prayer](/Prayer) is the feeling of the fulfilled desire.
+It does not matter what it is you seek in [Prayer](/Prayer), or where it is, or whom it concerns. You have nothing to do but convince yourself of the truth of that which you desire to see manifested.
+When you emerge from [Prayer](/Prayer) you no longer seek, for you have—if you have prayed correctly—subconsciously assumed the reality of the state sought, and by the law of reversibility your subconscious must objectify that which it affirms.
 You must have a conductor to transmit a force. You may employ a wire, a jet of water, a current of air, a ray of light or any intermediary whatsoever. The principle of the photophone or the transmission of the voice by light will help you to understand thought transmission, or the sending of a word to heal another. There is a strong analogy between a spoken voice and a mental voice.
 To think is to speak low, to speak is to think aloud.
 The principle of the photophone is this: A ray of light is reflected by a mirror and projected to a receiver at a distant point. Back of the mirror is a mouthpiece. By speaking into the mouthpiece you cause the mirror to vibrate. A vibrating mirror modifies the light reflected on it. The modified light has your speech to carry, not as speech, but as represented in its mechanical correlate. It reaches the distant station and impinges on a disc within the receiver; it causes the disc to vibrate according to the modification it undergoes — and it reproduces your voice.
@@ -61,7 +33,7 @@ The visual images, mental sounds and mental actions are creations of your imagin
 There is no thought or feeling without expression. No matter how emotionless you appear to be if you reflect with any degree of intensity, there is always an execution of slight muscular movements. The eye, though shut, follows the movements of the imaginary objects and the pupil is dilated or contracted according to the brightness or the remoteness of those objects; respiration is accelerated or slowed, according to the course of your thoughts; the muscles contract correspondingly to your mental movements.
 This change of vibration persists until it awakens a corresponding vibration in the subject, which vibration then expresses itself in a physical fact. *“And the word was made flesh.”*
 Energy, as you see in the case of radio, is transmitted and received in a *“field,”* a place where changes in space occur. The field and energy are one and inseparable. The field or subject  becomes the embodiment of the word or energy received. The thinker and the thought, the operator and the subject, the energy and the field are one. Were you still enough to hear the sound of your beliefs you would know what is meant by *“the music of the spheres.”*
-The mental sound you hear in [[Prayer]] as coming from without is really produced by yourself. Self-observation will reveal this fact. As the music of the spheres is defined as the harmony heard by the gods alone, and is supposed to be produced by the movements of the celestial spheres , so, too, is the harmony you subjectively hear for others heard by you alone is produced by the movements of your thoughts and feelings in the true kingdom or *“heaven within you.”*
+The mental sound you hear in [Prayer](/Prayer) as coming from without is really produced by yourself. Self-observation will reveal this fact. As the music of the spheres is defined as the harmony heard by the gods alone, and is supposed to be produced by the movements of the celestial spheres , so, too, is the harmony you subjectively hear for others heard by you alone is produced by the movements of your thoughts and feelings in the true kingdom or *“heaven within you.”*
 
 
 
@@ -73,7 +45,7 @@ The mental sound you hear in [[Prayer]] as coming from without is really produce
 - Healing is transmitting the consciousness of health to awaken its correlate
 - Mentally see and speak to the subject as already healed
 
-### Clearly Defined [[Prayer]] Objectives
+### Clearly Defined [Prayer](/Prayer) Objectives
 
 - Know exactly what you want before praying for it
 - Feel you have it, and then you do by law of reversibility
@@ -110,7 +82,7 @@ The mental sound you hear in [[Prayer]] as coming from without is really produce
 
 ### Depend on Your Attitude
 
-- [[Prayer]] depends only on your attitude, not the subject's
+- [Prayer](/Prayer) depends only on your attitude, not the subject's
 - If not accepted, your idea rebounds to you
 
 ### You Reap What You Sow

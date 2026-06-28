@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: The Roll Of The Book
-keywords: [Revision, Dreams]
-bible_ref:
-tags: lecture
-topics: [The Interpretation of Scripture, Pledge to Redeem, The Lamb and the Ball of Light, Teach the Art of Revision, The Central Role in Scripture, Redeeming the Evil One, The Plan of Salvation, The Journey of Awakening, The Author's Departure]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 David, speaking to us in the 40th Psalm, says: *"Lo, I come to do thy will, O Lord, for in the roll of the book it is written of me."* And in 5th chapter of the Book of John these words are found on the lips of one called Jesus Christ: *"You search the scriptures because you think that in them you have eternal life, and it is they that bear witness to me."* Claiming the entire book is all about him, he begins with Moses, the law, the prophets, and the psalms, and interprets the scriptures as things concerning himself. You will find this method of interpretation the key which will unlock the innermost of revelations. Take any story and, regardless of whether the central figure is male or female, claim you are that being, that you are reading you own autobiography.
 
 In the 25th chapter of the Book of Genesis, the Lord said to Rebecca: *"Two nations are in your womb and two peoples born of you shall be divided. One shall be stronger than the other; the elder shall serve the younger. And when her days were fulfilled the first came out red and covered with hair, so they called him Esau. Then his brother Jacob came forth with his hand holding Esau's heel."* Now we turn to the last book of the Old Testament, the Book of Malachi and read these words of the Lord: *"I have loved Jacob, but I have hated Esau."*
@@ -28,11 +14,11 @@ Now listen to these, the last words on the cross as recorded in the 23rd chapter
 
 We are told in the 13th chapter of the Book of Revelation: *"The beast was given a voice to utter blasphemies against God, against his name and his dwelling place, that is, those who dwell in heaven."* My monster uttered blasphemy, claiming divine right by declaring the heavenly being was his mother. Are we not told in the 10th [chapter] of John that he was accused of blasphemy because he dared to claim he was the Son of God? Read the 13th chapter of John carefully and you will see that the dwelling place of God is made up of those who dwell in heaven, so that the entire redeemed society form the body of God. The angelic being I saw, personified that society, that dwelling place of God which is God, so my monster was taking God's name in vain.
 
-Now to some [[Dreams]]. A gentleman's letter came yesterday, in which he said: *"In my dream I was standing on the sidewalk when I heard the words: 'We will get him this time. He has been gone too long.' Then a man resembling you, Neville, came by laughing, singing, and dancing. As I watched, he walked up three or four flights of stairs and stood in the center of a brilliantly lit stage. Then the props began to move and I heard the sound of an iron gate closing, as a voice range out: 'Your deception is at an end' and I awoke."*
+Now to some [Dreams](/Dreams). A gentleman's letter came yesterday, in which he said: *"In my dream I was standing on the sidewalk when I heard the words: 'We will get him this time. He has been gone too long.' Then a man resembling you, Neville, came by laughing, singing, and dancing. As I watched, he walked up three or four flights of stairs and stood in the center of a brilliantly lit stage. Then the props began to move and I heard the sound of an iron gate closing, as a voice range out: 'Your deception is at an end' and I awoke."*
 
 Looking at this dream on the surface you will think that I, a deceiver, am now behind bars and my deception is over; but let me quote scripture: *"The creature was made subject unto futility, not willingly but by reason of the will of him who subjected him in hope that the creature would be set free from this bondage to decay and obtain the glorious liberty of the sons of God."* Every child born of woman is deceived, for this is a world of deception where everything deceives.
 
-So let us look at this dream remembering that all [[Dreams]] are egocentric, with the individual who is dreaming playing all the parts. Seeing the gay, happy man resembling he who is telling salvation's story, indicates that you, the dreamer are on your way, that as you accept my words you leave the world of deception behind you. We are told: *"The good news preached to us was preached to them."* It is the same news, but it did not benefit them because it was not received with faith when they heard it.
+So let us look at this dream remembering that all [Dreams](/Dreams) are egocentric, with the individual who is dreaming playing all the parts. Seeing the gay, happy man resembling he who is telling salvation's story, indicates that you, the dreamer are on your way, that as you accept my words you leave the world of deception behind you. We are told: *"The good news preached to us was preached to them."* It is the same news, but it did not benefit them because it was not received with faith when they heard it.
 
 Many have heard salvation's story, while only a few will accept it. If perchance, by your much coming you have accepted this as your way of life, and are willing to live by it regardless of what you hear to the contrary, then you find yourself free from the world of deception. Believing in the power of money, or being socially prominent, becoming famous, or the best dressed man or woman, the world plays the game of deception, forever deceiving themselves.
 
@@ -46,9 +32,9 @@ Another letter came, saying: *"I did my homework, as it were, by sitting in my l
 
 Now this gentleman knows that no matter what appears in the outer world, it is taking place in heaven, which is in the skull. That's where the drama unfolds, for that's where God is buried. Having had this most marvelous experience, my friend now knows the truth of Blake's vision, that all that you behold, though it appears without, it is within, in your imagination of which this world of mortality is but a shadow.
 
-Then he said: "I wonder if those who attend your meetings teach their children the art of [[Revision]]. I taught it to my son when he was five. At the time he had quite a serious accident and was bleeding profusely. As I washed the wound, I told my son to go over the entire event, but to omit the scene where he was hurt. I explained that if he omitted that particular scene he would have nothing to cry about. He did as I asked and immediately stopped crying. I continued to wash the wound and as the bleeding stopped I applied a loose bandage and my son returned to his play. Since that day, whenever my son - who is now seven - gets hurt, he revises the scene and omits the part where he gets hurt. 
+Then he said: "I wonder if those who attend your meetings teach their children the art of [Revision](/Revision). I taught it to my son when he was five. At the time he had quite a serious accident and was bleeding profusely. As I washed the wound, I told my son to go over the entire event, but to omit the scene where he was hurt. I explained that if he omitted that particular scene he would have nothing to cry about. He did as I asked and immediately stopped crying. I continued to wash the wound and as the bleeding stopped I applied a loose bandage and my son returned to his play. Since that day, whenever my son - who is now seven - gets hurt, he revises the scene and omits the part where he gets hurt. 
 
-*"While my wife was playing tennis she received a severe break to her ankle. We both revised the incident, and although she had to stop playing tennis for a while, the ankle healed rapidly with only the aid of an ace bandage, much to the amazement of the doctor."* If you have children, teach them the art of [[Revision]] early so that the idea will become a habit, just like it has in this gentleman's home.
+*"While my wife was playing tennis she received a severe break to her ankle. We both revised the incident, and although she had to stop playing tennis for a while, the ankle healed rapidly with only the aid of an ace bandage, much to the amazement of the doctor."* If you have children, teach them the art of [Revision](/Revision) early so that the idea will become a habit, just like it has in this gentleman's home.
 
 Let us return now to the interpretation of scripture. Being all imagination, take any passage and put yourself in the central role, for in the volume of the book it is written of you. Don't think of some man who lived 2,000 years ago. Christ in you is the hope of glory. That is the Christ of whom the scriptures speak. Enter the state of Abraham as you read the story of Abraham and Sarah. Then become Sarah when she is the center, and Rebecca when she appears, for the Book is written of you! Do this and you will have the key which will unlock the most difficult passages of scripture.
 
@@ -78,7 +64,7 @@ Today I noticed that my book was copyrighted in 1966. It was on the 10th day of 
 
 The right arm is the symbol of the power of God. Having unfolded the entire drama of Christ within me, He gave me the power to record it so that the unborn tomorrows will read my words and wean themselves from the traditions of men. Believing that unless a tremendous effort is made to acquire merit, the Kingdom of Heaven is unattainable, men have been led astray. The Kingdom is entered simply by hearing the story of salvation and believing it. You need never see the inside of a church, but if you hear salvation's story and live by it, scripture will erupt within you and the role of the central character in scripture, called Jesus Christ, is yours.
 
-In the meantime, take a passage of scripture and, putting yourself in the center, let the story unfold. Do that and you will understand its meaning. And always remember that a dream is egocentric and protean. Proteus was the legendary god of the sea who, in the service of Neptune, could assume any shape or form. You, the dreamer, are God assuming many shapes and forms in order to fulfill your [[Dreams]]. God is the author of the drama and the actor. In your day dream I play the part of your teacher of the Word of God, so I could appear in that role in your night dream. But bear in mind: [[Dreams]] (day and night) are yourself made visible. You are the dreamer dreaming the dream of life.
+In the meantime, take a passage of scripture and, putting yourself in the center, let the story unfold. Do that and you will understand its meaning. And always remember that a dream is egocentric and protean. Proteus was the legendary god of the sea who, in the service of Neptune, could assume any shape or form. You, the dreamer, are God assuming many shapes and forms in order to fulfill your [Dreams](/Dreams). God is the author of the drama and the actor. In your day dream I play the part of your teacher of the Word of God, so I could appear in that role in your night dream. But bear in mind: [Dreams](/Dreams) (day and night) are yourself made visible. You are the dreamer dreaming the dream of life.
 
 One day you will meet your monster on the threshold of consciousness, for he is attached to you although you cannot see him. And when you dissolve him by your compassion and love, he will not evaporate into space, but will return to you. I can't tell you the thrill when you experience that union!
 
@@ -96,7 +82,7 @@ Now let us go into the silence.
 - David and Jesus Christ claimed that the entire Bible is about them, and they interpreted the scriptures as things concerning themselves.
 - The key to understanding scripture is to put oneself in the central role and claim that the story is about oneself.
 - The characters described in the Bible are not just historical figures, but are housed within each individual.
-- Through [[Dreams]], God speaks to people and plays all the parts in order to convey messages and insights.
+- Through [Dreams](/Dreams), God speaks to people and plays all the parts in order to convey messages and insights.
 - One's own creative power can be misused, leading to the embodiment of negative energies and thoughts.
 - By redeeming the negative aspects within oneself, one can dissolve them and reclaim the power that was invested in them.
 
@@ -114,12 +100,12 @@ Now let us go into the silence.
 - The dreamer's experience of becoming a ball of light represents the understanding that all experiences occur within the imagination.
 - The outer world is a shadow of one's imagination, and true understanding comes from recognizing the power of imagination.
 
-### Teach the Art of [[Revision]]
+### Teach the Art of [Revision](/Revision)
 
-- The author encourages teaching children the art of [[Revision]], which involves revisiting past events and omitting negative aspects.
+- The author encourages teaching children the art of [Revision](/Revision), which involves revisiting past events and omitting negative aspects.
 - By revising the scenes where one gets hurt, the focus shifts from pain to healing and freedom from the world of deception.
 - The author shares an example of how his son stopped crying and healed quickly by revising the scene of an accident.
-- By practicing [[Revision]], one can change one's perception of events and create a positive and empowered mindset.
+- By practicing [Revision](/Revision), one can change one's perception of events and create a positive and empowered mindset.
 
 ### The Central Role in Scripture
 
@@ -142,7 +128,7 @@ Now let us go into the silence.
 ### The Journey of Awakening
 
 - The author encourages readers to interact with scripture by embodying the central characters and allowing the story to unfold within themselves.
-- [[Dreams]] are egocentric and protean, reflecting the individual's own thoughts and desires.
+- [Dreams](/Dreams) are egocentric and protean, reflecting the individual's own thoughts and desires.
 - One day, individuals will meet their monster and have the opportunity to dissolve it with compassion and love.
 - The ultimate goal is for God to awaken within all beings and fulfill His purpose of expansion and glory.
 

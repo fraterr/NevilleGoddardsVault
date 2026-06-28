@@ -1,17 +1,3 @@
----
-dg-publish: true
----
-
----
-book: 
-chapter: Before Abraham, Was I Am
-keywords: []
-bible_ref:
-tags: lecture
-topics: [The Bible as a Record of States of the Soul, The Bible Characters as Personifications, Jesus Christ as the Ultimate State, Allegory of Hagar and Sarah, Birth into Freedom and the Kingdom of God, The Ineffable Kingdom of God, Allegorical Nature of Scripture, Return to True Identity, The End of the Journey, Destiny in the Kingdom of Heaven, Silence, Silence]
-banner: Handles/img/banner lectures.png
-sticker: emoji//1f4e3
----
 The drama tonight opens to the 8th chapter of the Book of John, where the evangelist writes of the state into which he has entered, saying: *"Truly, truly I say to you, before Abraham, was I am."*  
   
 The Bible is a recordation of the eternal spiritual states of the soul which everyone must pass through, beginning with the state of Abraham and culminating in the state called Jesus Christ. It is important, therefore, to distinguish between the man and the state he occupies at the present time.  
