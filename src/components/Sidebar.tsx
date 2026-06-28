@@ -3,7 +3,11 @@ import { getVaultTree, VaultNode } from '@/lib/markdown';
 import styles from './Sidebar.module.css';
 
 export default function Sidebar() {
-  const tree = getVaultTree();
+  const allTree = getVaultTree();
+  
+  // Only show crucial pages in the root of the sidebar
+  const allowedRootItems = ['Index', 'Glossary', 'Books', 'Lectures'];
+  const tree = allTree.filter(node => allowedRootItems.includes(node.name));
 
   return (
     <aside className={`${styles.sidebar} glass`}>

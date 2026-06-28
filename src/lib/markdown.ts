@@ -96,14 +96,6 @@ function buildVaultTree(dir: string, currentSlug: string[] = []): VaultNode[] {
   for (const entry of entries) {
     if (entry.name.startsWith('.')) continue; // skip hidden files like .DS_Store
     
-    // Filter root level to only crucial pages
-    if (currentSlug.length === 0) {
-      const allowedRootItems = ['Index.md', 'Glossary.md', 'Books', 'Lectures'];
-      if (!allowedRootItems.includes(entry.name)) {
-        continue;
-      }
-    }
-    
     const fullPath = path.join(dir, entry.name);
     const isDirectory = entry.isDirectory();
     const nameWithoutExt = entry.name.replace(/\.md$/, '');
