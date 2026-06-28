@@ -1,4 +1,4 @@
-*"Ye shall know the truth and the truth shall make you free"* – (John 8:32)
+<span style="color: #4ade80;">*"Ye shall know the truth and the truth shall make you free"*</span> – (John 8:32)
 
 Men claim that a true judgment must conform to the external reality to which it relates. This means that if I, while imprisoned, suggest to myself that I am free and succeed in believing that I am free, it is true that I believe in my freedom; but it does not follow that I am free for I may be the victim of illusion.
 
@@ -46,13 +46,13 @@ Look as though you saw; listen as though you heard; stretch forth your imaginary
 
 To those who believe that a true judgment must conform to the external reality to which it relates, this will be foolishness and a stumbling block ([1Corinthians 1:23](https://www.biblegateway.com/passage/?search=1+Corinthians+1:23&version=KJV)).
 
-But I preach and practice the fixing in consciousness of that which man desires to realize. Experience convinces me that fixed attitudes of mind which do not conform to the external reality to which they relate and are therefore called imaginary – *"things which are not"* – will, nevertheless, <span style="color: #4ade80;">*"bring to nought things that are"*</span> ([1Corinthians 1:28](https://www.biblegateway.com/passage/?search=1+Corinthians+1:28&version=KJV)).
+But I preach and practice the fixing in consciousness of that which man desires to realize. Experience convinces me that fixed attitudes of mind which do not conform to the external reality to which they relate and are therefore called imaginary – <span style="color: #4ade80;">*"things which are not"*</span> – will, nevertheless, <span style="color: #4ade80;">*"bring to nought things that are"*</span> ([1Corinthians 1:28](https://www.biblegateway.com/passage/?search=1+Corinthians+1:28&version=KJV)).
 
 I do not wish to write a book of wonders, but rather to turn man’s mind back to the one and only reality that the ancient teachers worshipped as God.
 
-All that was said of God was in reality said of man’s consciousness so we may say, <span style="color: #4ade80;">*"that, according as it is written, He that glorieth, let him glory in his own consciousness"*</span> ([1Corinthians 1:31](https://www.biblegateway.com/passage/?search=1+Corinthians+1:31&version=KJV); [2Corinthians 10:17,18](https://www.biblegateway.com/passage/?search=2+Corinthians+10:17,18&version=KJV); <span style="color: #4ade80;">*"But let him that glorieth glory in this, that he understandeth and knoweth Me, that [I am the LORD](/lectures/i-am-the-lord) which exercise lovingkindness, judgment, and righteousness, in the earth"*</span>, [Jeremiah 9:24](https://www.biblegateway.com/passage/?search=Jeremiah+9:24&version=KJV)).
+All that was said of God was in reality said of man’s consciousness so we may say, <span style="color: #4ade80;">*"that, according as it is written, He that glorieth, let him glory in his own consciousness"*</span> ([1Corinthians 1:31](https://www.biblegateway.com/passage/?search=1+Corinthians+1:31&version=KJV); [2Corinthians 10:17,18](https://www.biblegateway.com/passage/?search=2+Corinthians+10:17,18&version=KJV); *"But let him that glorieth glory in this, that he understandeth and knoweth Me, that [I am the LORD](/lectures/i-am-the-lord) which exercise lovingkindness, judgment, and righteousness, in the earth"*, [Jeremiah 9:24](https://www.biblegateway.com/passage/?search=Jeremiah+9:24&version=KJV)).
 
-No man needs help to direct him in the application of this law of consciousness. *"I am"* is the self-definition of the absolute. The root out of which everything grows. *"I am the vine"* (John 15:1; 15:5).
+No man needs help to direct him in the application of this law of consciousness. <span style="color: #4ade80;">*"I am"*</span> is the self-definition of the absolute. The root out of which everything grows. <span style="color: #4ade80;">*"I am the vine"*</span> (John 15:1; 15:5).
 
 What is your answer to the eternal question, *"[who am I](/lectures/who-am-i)?"*
 
@@ -64,7 +64,7 @@ Experience in imagination what you would experience in the flesh were you alread
 
 Things have no life if they are severed from their roots, and our consciousness, our *"I AM-ness"* is the root of all that springs in our world.
 
-*"If we believe not that I am he, ye shall die in your sins"* – (John 8:24) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
+<span style="color: #4ade80;">*"If we believe not that I am he, ye shall die in your sins"*</span> – (John 8:24) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
 
 There is no power, outside of the consciousness of man, to resurrect and make alive that which man desires to experience.
 

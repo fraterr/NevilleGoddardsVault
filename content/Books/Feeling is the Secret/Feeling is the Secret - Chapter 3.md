@@ -1,10 +1,10 @@
 Prayer, like sleep, is also an entrance into the subconscious.
 
-*"When you pray, enter into your closet, and when you have shut your door, pray to your Father which is in secret and your Father which is in secret shall reward you openly"* (Matthew 6:6).
+<span style="color: #4ade80;">*"When you pray, enter into your closet, and when you have shut your door, pray to your Father which is in secret and your Father which is in secret shall reward you openly"*</span> (Matthew 6:6).
 
 Prayer is an illusion of sleep which diminishes the impression of the outer world and renders the mind more receptive to suggestion from within. The mind in Prayer is in a state of relaxation and receptivity akin to the feeling attained just before dropping off to sleep.
 
-Prayer is not so much what you ask for, as how you prepare for its reception. *"Whatsoever things ye desire, when ye pray believe that you have received them, and ye shall have them"* (Mark 11:24).
+Prayer is not so much what you ask for, as how you prepare for its reception. <span style="color: #4ade80;">*"Whatsoever things ye desire, when ye pray believe that you have received them, and ye shall have them"*</span> (Mark 11:24).
 
 The only condition required is that you believe that your prayers are already realized.
 

@@ -14,7 +14,7 @@ Looking outwardly, you see the book first, but actually, the meaning comes first
 
 The Lord and meaning are one - the Creator, the cause of the phenomena of life.
 
-*"In the beginning was the Word, and the Word was with God, and the Word was God."* (John 1:1)
+<span style="color: #4ade80;">*"In the beginning was the Word, and the Word was with God, and the Word was God."*</span> (John 1:1)
 
 In the beginning was the intention - the meaning - and the intention was with the intender, and the intention was the intender. The objects and events in time and space occupy a lower level of significance than the level of meaning which produced them. All things were made by meaning, and without meaning was not anything made that was made. The fact that everything seen can be regarded as the effect, on a lower level of significance, of an unseen higher order of significance is a very important one to grasp.
 

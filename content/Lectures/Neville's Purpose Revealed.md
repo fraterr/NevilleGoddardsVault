@@ -1,6 +1,6 @@
-When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of God. Paul said: *"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in Christ as a plan for the fullness of time."* [Ephesians 1:9, 10] There is a plan behind it all. 
+When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of God. Paul said: <span style="color: #4ade80;">*"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in Christ as a plan for the fullness of time."*</span> [Ephesians 1:9, 10] There is a plan behind it all. 
 
-Now let us turn to the most disputed verse in Ecclesiastes: *"God has put Eternity into man’s mind, yet so that man cannot find out what Cod has done from the beginning to the end."* [Ecclesiastes 3:11] 
+Now let us turn to the most disputed verse in Ecclesiastes: <span style="color: #4ade80;">*"God has put Eternity into man’s mind, yet so that man cannot find out what Cod has done from the beginning to the end."*</span> [Ecclesiastes 3:11] 
 
 The Revised Standard Version translates it as *"eternity."* The meaning of the word translated *"eternity"* will determine what meaning you would give to that verse. The word is *"olam."* The King James Version translates it as *"the world."* *"He put the world into man’s mind."* 
 
@@ -16,49 +16,49 @@ This *"second one"* spoken of in Scripture is the Lord from Heaven. It begins in
 
 I will share with you, as I’ve done night after night, my own personal experience of Scripture. The story is the only true story in the world. God’s eternal purpose is taking place in time; but it is an eternal state. It’s something that is continuous. It is permanent, in contrast to this fragmented state in time where we seem to begin, and all things that begin here end. But there is something that does not begin. It is continuous. It is in man. It is buried in man, and that that cannot begin or end is God-in-man. 
 
-Paul asked the question: *"Do you not realize that [Jesus Christ is in you?"* [II Corinthians 13:5] 
+Paul asked the question: <span style="color: #4ade80;">*"Do you not realize that [Jesus Christ is in you?"*</span> [II Corinthians 13:5] 
 
 Well, the answer to that, if you are honest with yourself, if you have not had the experience, -- you would say, *"No, I do not. I could believe it, and I will believe it; but I do not know it. For, to experience it would be to know it. Not to experience it and only to believe it would be hearsay, but I want to actually experience it, that I may know it."* 
 
-Your purpose in this world is not what the world thinks it is. Therefore they said you do not rejoice. *"Those who come later will not rejoice in Him"* [Ecclesiastes 4:16, R.S.V.], because they will think their purpose is to make a fortune, to get a bigger house or more houses, to get a name among those who are departing this world, for all these appear, they wax, they vane, they disappear. No matter how long they prolong it, or they think they do, they all vanish; and they want to have some name among the shadows that are vanishing. There is a purpose, and the purpose is to awaken as God -- God Himself! 
+Your purpose in this world is not what the world thinks it is. Therefore they said you do not rejoice. <span style="color: #4ade80;">*"Those who come later will not rejoice in Him"*</span> [Ecclesiastes 4:16, R.S.V.], because they will think their purpose is to make a fortune, to get a bigger house or more houses, to get a name among those who are departing this world, for all these appear, they wax, they vane, they disappear. No matter how long they prolong it, or they think they do, they all vanish; and they want to have some name among the shadows that are vanishing. There is a purpose, and the purpose is to awaken as God -- God Himself! 
 
-The plan is definite in Scripture. He said, *"I have come into the world only to fulfill Scripture."* That’s my purpose. *"He who began a good work in me will bring it to completion at the unveiling in me of His plan, which is Christ Jesus"* [Philippians 1:6]. He will unveil Christ Jesus in me. Well, when he does, *"I am He."*
+The plan is definite in Scripture. He said, <span style="color: #4ade80;">*"I have come into the world only to fulfill Scripture."*</span> That’s my purpose. <span style="color: #4ade80;">*"He who began a good work in me will bring it to completion at the unveiling in me of His plan, which is Christ Jesus"*</span> [Philippians 1:6]. He will unveil Christ Jesus in me. Well, when he does, <span style="color: #4ade80;">*"I am He."*</span>
 
 I have been taught that He dwells in me, but I have also been taught that He came from without. When one experiences the story, he realizes He is not from without at all. He was always buried in me -- that Universal Christ, the Cosmic Christ. The whole of Him, riot a little piece of Him; but the whole is buried in the seeming part; and that individual, speaking of you now individually, will one day have the experience recorded in Scripture of [Jesus Christ](/lectures/jesus-christ)!
 
-He said, *"I am not of this world. I am from above. You are from below."* [John 8:23]
+He said, <span style="color: #4ade80;">*"I am not of this world. I am from above. You are from below."*</span> [John 8:23]
 
 He isn’t speaking to the crowd on the outside. It’s taking place within the individual. I am speaking now to this conscious, reasoning mind *"below"* -- this garment of flesh and blood, -- you are from below. I am from above. I must be born from above. You, Neville, -- the flesh-and-blood Neville -- you were born from below -- from the womb of a woman. I am being born from above -- from that place where they laid me when I *"died."* I died as God, to awake in man as man, and then to take that man in whom I am buried and raise him to the level of my Self as God.
 
 He is buried in your skull. That is Golgotha. There is no other burial place for Jesus Christ. You can go all over the world looking for his so-called *"holy sepulchre"*; and you will not find it outside of your own skull. That’s where He is buried. And the day will come that you will find yourself awakening. You will awaken in your own skull, and you will be alone -- all alone, and the skull will be sealed -- completely sealed; but you now, having awakened within your skull, you have an innate wisdom as to what you should do. You have one consuming desire, and that is to get out.
 
-You are completely sealed in your skull, and you are standing up alone; but you know if you push the base of your skull, something will *"give."* And you do; you push it from within, and something rolls away, as described in Scripture: *"And the stone was rolled away"* [Mark 16:4J. You do it. And then you put your head through that little opening, and you squeeze, and you come out like a child being born, inch by inch by inch. And when you are almost out, you pull the remaining portion of your body out of your skull. And after a few seconds on the ground, you rise again and look back at that body out of which you came. It’s ghastly pale, tossing its head from side to side just like one in recovery from some great or major operation. Then you hear the wind that actually preceded the entire drama -- a peculiar, unearthly wind. 
+You are completely sealed in your skull, and you are standing up alone; but you know if you push the base of your skull, something will <span style="color: #4ade80;">*"give."*</span> And you do; you push it from within, and something rolls away, as described in Scripture: <span style="color: #4ade80;">*"And the stone was rolled away"*</span> [Mark 16:4J. You do it. And then you put your head through that little opening, and you squeeze, and you come out like a child being born, inch by inch by inch. And when you are almost out, you pull the remaining portion of your body out of your skull. And after a few seconds on the ground, you rise again and look back at that body out of which you came. It’s ghastly pale, tossing its head from side to side just like one in recovery from some great or major operation. Then you hear the wind that actually preceded the entire drama -- a peculiar, unearthly wind. 
 
-Now, *"wind"* and *"spirit"* are the same word in both Greek and Hebrew. But you hear the wind; it’s a storm wind. You feel it in your head, and yet you seem to feel it’s coming from the corner of the room where you find yourself. You look over to that corner, not more than a few seconds; and as you look back, the body out of which you emerged has been removed, as told in Scripture: *"They have taken away his body, and we do not know where they have laid it."* [John 20:2] 
+Now, <span style="color: #4ade80;">*"wind"*</span> and <span style="color: #4ade80;">*"spirit"*</span> are the same word in both Greek and Hebrew. But you hear the wind; it’s a storm wind. You feel it in your head, and yet you seem to feel it’s coming from the corner of the room where you find yourself. You look over to that corner, not more than a few seconds; and as you look back, the body out of which you emerged has been removed, as told in Scripture: <span style="color: #4ade80;">*"They have taken away his body, and we do not know where they have laid it."*</span> [John 20:2] 
 The body is gone; it has been removed. But in its place now are seated three witnesses to the event. In my own case, they were my three older brothers. As tradition has it, -- it is not in Scripture; but tradition has it, the three who came to witness the birth were brothers: the king of Arabia, king of Persia, king of India; and they were brothers. In my case, they are not earthly kings in my family; they were simply my own wonderful, loving brothers. And there they sat, one at the head, one at one foot, and one at the other. The body was gone, but that’s where it would have been had it remained there: the head and the two feet.
 
 They are equally disturbed because of the wind. My brother Lawrence was the most disturbed; and he rose and started towards the same direction that I started. He hadn’t gone more than a step when something attracted his attention, and he looked down on the floor, and he announced to my other two brothers, *"Why, it is Neville’s baby!"*
 
 They, in the most incredulous voices, asked, *"How can Neville have a baby?"* 
 
-He does not argue the point. He lifts the infant wrapped in swaddling clothes and brings it over and places it on the bed. He didn’t see because I am now Spirit. I cannot be seen by mortal eye. They saw it, and they came and saw the sign that was foretold by the angels. *"Go, and you shall find this as a sign, an infant wrapped in swaddling clothes"* [Luke 2:12], -- and that’s the sign that God Himself was born. *"For a Saviour is born this day to you."* [Luke 2:11] 
+He does not argue the point. He lifts the infant wrapped in swaddling clothes and brings it over and places it on the bed. He didn’t see because I am now Spirit. I cannot be seen by mortal eye. They saw it, and they came and saw the sign that was foretold by the angels. <span style="color: #4ade80;">*"Go, and you shall find this as a sign, an infant wrapped in swaddling clothes"*</span> [Luke 2:12], -- and that’s the sign that God Himself was born. <span style="color: #4ade80;">*"For a Saviour is born this day to you."*</span> [Luke 2:11] 
 
-The only *"saviour"* in Scripture is the Lord God Jehovah. *"[I am the Lord](/lectures/i-am-the-lord) God, your Saviour,"* you are told in the 43d and 45th Chapters of Isaiah, *"and beside me there is no saviour."* [Isaiah 43:11 and 45:21] So, the Saviour is being born. That’s exactly what is going to happen to you individually.
+The only <span style="color: #4ade80;">*"saviour"*</span> in Scripture is the Lord God Jehovah. <span style="color: #4ade80;">*"[I am the Lord](/lectures/i-am-the-lord) God, your Saviour,"*</span> you are told in the 43d and 45th Chapters of Isaiah, <span style="color: #4ade80;">*"and beside me there is no saviour."*</span> [Isaiah 43:11 and 45:21] So, the Saviour is being born. That’s exactly what is going to happen to you individually.
 
-I took the infant up, arid then I looked into its face, and I said, *"How is my sweetheart?"* Then it broke into the most glorious, heavenly smile. As told you, *"the name was called Isaac"* [Genesis 21:3], which simply means: *"He smiles."* The smile is a heavenly smile. While he is looking into my face and smiling, the whole thing dissolves.
+I took the infant up, arid then I looked into its face, and I said, <span style="color: #4ade80;">*"How is my sweetheart?"*</span> Then it broke into the most glorious, heavenly smile. As told you, <span style="color: #4ade80;">*"the name was called Isaac"*</span> [Genesis 21:3], which simply means: <span style="color: #4ade80;">*"He smiles."*</span> The smile is a heavenly smile. While he is looking into my face and smiling, the whole thing dissolves.
 
 Now we come to that *"second youth"*; and he comes (in my case) a hundred and twenty-nine (129) days after the *"birth from above."* An explosion in my head -— the whole drama takes place in your skull. That’s where you were buried, and that’s where the whole drama is going to unfold. A hundred and twenty—nine days later my head began -- there’s a vibration, and when it reached the limit -- what I thought was the limit, it exploded; and then when the whole thing settled, I am seated at an ordinary table. Before me is a table; on it an enormous head severed from the body. Leaning against the side of an open door and looking out on a pastoral scene is my son David of Biblical fame. Yes, David of Biblical fame! That’s why I say the drama is permanent and continuous. It’s not something that took place, once and for all, two thousand years ago or four thousand years ago; it is taking Place now, and it will continue to take place until His purpose is fulfilled. It cannot he fulfilled until everyone experiences that predetermined drama -- for the awakening of God in man as God, -- that man in whom He awakes is God! 
 So, here is David leaning against the side of an open door and looking at me. I have never seen such beauty in my life. David has an unearthly beauty. You can’t describe the beauty of that lad of about 12 or 13. And while I drink him in and feast upon his beauty, the whole thing dissolves; and I know I am his father, and he knows that he is my son.
 
-Until that moment in time, I had no idea there was any relationship between a Biblical character and the one talking to you now. It came as a complete surprise to me that the story told in the Bible is eternally true, and it’s all about us. That David is your *"son,"* but you do not know it. He put that in your mind in the beginning, *"but so that you cannot find out what God has done from the beginning to the end."* That is the 11th verse of the 3d Chapter of Ecclesiastes. That is what He put in your mind. That is that *"second youth"* who is over all of them. As you are told, *"He is prince forever [Ezekiel 37:21]. If he is “prince,"* his father is *"king."* *"And the Lord will be king in that day, and his name shall be One; and all will be one."* He is king! The king has a son; the son is a prince. And David is the *"prince"* forever and forever.
+Until that moment in time, I had no idea there was any relationship between a Biblical character and the one talking to you now. It came as a complete surprise to me that the story told in the Bible is eternally true, and it’s all about us. That David is your <span style="color: #4ade80;">*"son,"*</span> but you do not know it. He put that in your mind in the beginning, <span style="color: #4ade80;">*"but so that you cannot find out what God has done from the beginning to the end."*</span> That is the 11th verse of the 3d Chapter of Ecclesiastes. That is what He put in your mind. That is that <span style="color: #4ade80;">*"second youth"*</span> who is over all of them. As you are told, <span style="color: #4ade80;">*"He is prince forever [Ezekiel 37:21]. If he is “prince,"*</span> his father is <span style="color: #4ade80;">*"king."*</span> <span style="color: #4ade80;">*"And the Lord will be king in that day, and his name shall be One; and all will be one."*</span> He is king! The king has a son; the son is a prince. And David is the <span style="color: #4ade80;">*"prince"*</span> forever and forever.
 
 So, here is the unfolding drama of God-in-you, and God is king. But He’s a father. Well, if He’s a father, there must be a son, and the son is David. 
 
 Now we read in the story of David: 
 
 I will tell of the decree of the Lord: 
-He said unto me: “Thou art my son. 
-Today I have begotten thee.” [Psalm 2:1]
+He said unto me: <span style="color: #4ade80;">“Thou art my son. 
+Today I have begotten thee.”</span> [Psalm 2:1]
 
 And now the Lord speaks:
 
@@ -80,9 +80,9 @@ Shall throw open the gates of new life to thee!”
 Then standing before him, he said: *"See the Christ stand!"* 
 He is telling you who he is; he is the *"Anointed One."* *"Christ"* means the “anointed one.’ 
 
-*"Rise and anoints him. This is he"* [I Samuel 16:12], said the Lord to His prophet Samuel. *"This is he."* Who are they speaking to? To Samuel. Of whom? He spoke of David. So Samuel took the ointment, -- that is, the oil -- the precious oil, and anointed David in the presence of his brothers; *"and from that day forward the Spirit of the Lord came mightily upon David."* [I Samuel 16:13]
+<span style="color: #4ade80;">*"Rise and anoints him. This is he"*</span> [I Samuel 16:12], said the Lord to His prophet Samuel. <span style="color: #4ade80;">*"This is he."*</span> Who are they speaking to? To Samuel. Of whom? He spoke of David. So Samuel took the ointment, -- that is, the oil -- the precious oil, and anointed David in the presence of his brothers; <span style="color: #4ade80;">*"and from that day forward the Spirit of the Lord came mightily upon David."*</span> [I Samuel 16:13]
 
-Now you are told, *"Those who come later will find no joy in Him."* [Ecclesiastes 4:16]
+Now you are told, <span style="color: #4ade80;">*"Those who come later will find no joy in Him."*</span> [Ecclesiastes 4:16]
 
 They are so eager to make money, so eager to get a name among shadows, so eager to build monuments to themselves, that they have no time for the story, -- they are all about the shadow world. Now, what does he mean, he was above all of them? Well, if you can take it, may I tell you? all these *"garments"* [indicating the physical body] are shadows. They are part of the eternal structure of the universe. You are *"wearing"* these garments, and they are you only for a temporary part of your time. They became a part of you when you penetrated them and annexed the brains of them; and so for a little while they are a temporary portion of the soul -- but only for a temporary part of your journey. It is not You. These garments --you burn them up -- put them into the oven and reduce them to ash, but that’s not You. Throw it into the furnace, and that Fourth One comes out, the Fourth One being your Eternal Being as you. You are told in the Book of Daniel: *"Throw them into the furnace,"* -- reduce them to ashes; but here is the Immortal You that cannot die. But while you are here and you are a part of that little world in which you live, you think it is you, and you’ll die to protect it and do anything to save it while you go about your business trying to make more and more of this shadow world. 
 
@@ -134,10 +134,10 @@ Well, there are twenty-two letters to the Hebrew alphabet; but really they are t
 
 I would suggest to this lady to read the 27th Psalm tonight. Take the 8th verse. It’s a glorious Psalm. It is not long -- a very short one.
 
-Thou hast said to me, *"Seek ye my face."* 
+Thou hast said to me, <span style="color: #4ade80;">*"Seek ye my face."*</span> 
 My heart says to thee, 
-“Thy face, Lord, I seek. 
-Hide not Thy face from me.” [Psalm 27:8,9] 
+<span style="color: #4ade80;">“Thy face, Lord, I seek. 
+Hide not Thy face from me.”</span> [Psalm 27:8,9] 
 
 That’s the whole drama, the Father and the Son, for no one can reveal the Father but the Son. And this is the Son -- David -- speaking. He is speaking to his Father: *"Hide not Thy face from me."* 
 
@@ -153,7 +153,7 @@ Now in her letter she said, *"Recently I have been having these Dreams where I k
 
 They are actually on the verge of it, my Dear. You must open the in-current eye, because you are going to see inwards into the world of thought -- into Eternity -- that which is ever expanding in the bosom of God, -- what is it? The human imagination.
 
-As someone wrote, they had their ears pierced -- not the lobes of the ear, but the very center of the ear. Yes, they must be pierced, too, as told you in the 40th Psalm: *"Ears Thou hast pierced for me."* [Psalm 40:6] You have made holes in them, that I may hear the heavenly sphere; we only hear the sounds out here -- the noises. But there are ears to be pierced, and there are eyes to be opened. Then in-current eyes open up into the world of Eternity, into the world of thought, and forever expand; and that eye is the human imagination, which is one with God. For:
+As someone wrote, they had their ears pierced -- not the lobes of the ear, but the very center of the ear. Yes, they must be pierced, too, as told you in the 40th Psalm: <span style="color: #4ade80;">*"Ears Thou hast pierced for me."*</span> [Psalm 40:6] You have made holes in them, that I may hear the heavenly sphere; we only hear the sounds out here -- the noises. But there are ears to be pierced, and there are eyes to be opened. Then in-current eyes open up into the world of Eternity, into the world of thought, and forever expand; and that eye is the human imagination, which is one with God. For:
 
 “Man is all imagination; and God is man, 
 and exists in us and we in Him.” 
@@ -182,7 +182,7 @@ You may say in words, *"Yes, I believe you."*
 
 Then I may find you after that disbelieving by your behavior. And so, at the very end he asks him three times; and you will find the word that he used to be *"love."* There are different words. *"Eros"* is love on the lowest level, and man mistakes that for love. *"Aphrodite"*(?), that’s love -- something entirely different. So, man thinks of sex. All right, I am not denying sex. Sex is a very important thing in this world -- very important; but people will say, ‘I love you,” meaning sex. Others, an entirely different emotion permeates them.
 
-I stood in the presence of Infinite Love, and it’s Man; but there was no feeling of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, *"What is the greatest thing in the world?"* and I answered, *"[Faith, hope and love](/lectures/faith-hope-and-love); these three. The greatest of these is Love."* [I Corinthians 13:15] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, *"The two shall be one."* [Matthew 19:5]
+I stood in the presence of Infinite Love, and it’s Man; but there was no feeling of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, <span style="color: #4ade80;">*"What is the greatest thing in the world?"*</span> and I answered, <span style="color: #4ade80;">*"[Faith, hope and love](/lectures/faith-hope-and-love); these three. The greatest of these is Love."*</span> [I Corinthians 13:15] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, <span style="color: #4ade80;">*"The two shall be one."*</span> [Matthew 19:5]
 
 But on this level, sex plays a very important part; but the day will come, the body is going to be split in two from top to bottom, and that energy that went into generation will be reversed and move into regeneration. So, he asked the question at the very end of the drama.
 
@@ -207,7 +207,7 @@ Well, the only way you can love me is to obey my word. *"Those who love me,"* he
 
 “What must I do to be doing the work of God? [John 6:28]
 
-*"[Believe in him](/lectures/believe-in-him) whom He has sent."* [John 6:29] 
+<span style="color: #4ade80;">*"[Believe in him](/lectures/believe-in-him) whom He has sent."*</span> [John 6:29] 
 
 Well, the only one you can believe in -- what? A little man? No; believe in the teaching, for he tells you, *"They aren’t my words, but the words of Him who sent me."* 
 

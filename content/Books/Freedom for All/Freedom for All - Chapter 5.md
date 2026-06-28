@@ -24,7 +24,7 @@ The interval is called the Sabbath.
 
 The Sabbath is the mental rest which follows the fixed psychological state; it is the result of your six days of work.
 
-*"The Sabbath was made for man"* (Mark 2:27). This mental rest which follows a successful conscious impregnation is the period of mental pregnancy; a period which is made for the purpose of incubating the manifestation.
+<span style="color: #4ade80;">*"The Sabbath was made for man"*</span> (Mark 2:27). This mental rest which follows a successful conscious impregnation is the period of mental pregnancy; a period which is made for the purpose of incubating the manifestation.
 
 It was made for the manifestation; the manifestation was not made for it.
 
@@ -48,7 +48,7 @@ The man who knows the true meaning of these six work days realizes that the obse
 
 The peace and the quiet of the Sabbath can be experienced only when man has succeeded in becoming conscious of being that which he desires to be. If he fails to make this conscious impression he has missed the mark; he has sinned, for to sin is to miss the mark – to fail to achieve one’s objective; a state in which there is no peace of mind.
 
-*"If I had not come and spoken unto them, they had not had sin"* (John 15:22). If man had not been presented with an ideal state toward which to aim, a state to be desired and acquired, he would have been satisfied with his lot in life and would never have known sin.
+<span style="color: #4ade80;">*"If I had not come and spoken unto them, they had not had sin"*</span> (John 15:22). If man had not been presented with an ideal state toward which to aim, a state to be desired and acquired, he would have been satisfied with his lot in life and would never have known sin.
 
 Now that man knows that his capacities are infinite, knows that by working six days or by making a psychological adjustment he can realize his desires, he will not be satisfied until he achieves his every objective.
 
@@ -68,7 +68,7 @@ This secret was revealed in the divine name Jehovah, and again in the story of I
 
 The story of the crucifixion beautifully dramatizes these six days (psychological period) and the seventh day of rest.
 
-It is recorded that it was the custom of the Jews to have someone released from prison at the feast of the Passover; and that they were given the choice of having released unto them either Barabbas the robber, or Jesus the savior. And they cried, *"Release Barabbas"* (John 18:40). Whereupon Barabbas was released and Jesus was crucified.
+It is recorded that it was the custom of the Jews to have someone released from prison at the feast of the Passover; and that they were given the choice of having released unto them either Barabbas the robber, or Jesus the savior. And they cried, <span style="color: #4ade80;">*"Release Barabbas"*</span> (John 18:40). Whereupon Barabbas was released and Jesus was crucified.
 
 It is further recorded that Jesus the Savior was crucified on the sixth day, entombed or buried on the seventh, and resurrected on the first day.
 
@@ -84,7 +84,7 @@ Having discovered your savior the next step in this great drama of the resurrect
 
 Barabbas represents your present problem. Your savior is that which would free you from this problem. You release Barabbas by taking your attention away from your problem – away from your sense of limitation – for it robs you of the freedom that you seek. And you crucify your savior by fixing a definite psychological state by feeling that you are free from the limitation of the past.
 
-You deny the evidence of the senses and begin to feel subjectively the joy of being free. You feel this state of freedom to be so real that you too cry out, *"I am free!"* – *"It is finished"* (John 19:30).
+You deny the evidence of the senses and begin to feel subjectively the joy of being free. You feel this state of freedom to be so real that you too cry out, <span style="color: #4ade80;">*"I am free!"*</span> – <span style="color: #4ade80;">*"It is finished"*</span> (John 19:30).
 
 The fixing of this subjective state – the crucifixion – takes place on the sixth day. Before the sun sets on this day you must have completed the fixation by feeling – *"It is so"* – *"It is finished."*
 

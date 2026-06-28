@@ -1,6 +1,6 @@
 <span style="color: #4ade80;">*"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."*</span> ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
 
-*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness <span style="color: #4ade80;">"*. . . say unto the  children of Israel, I AM hath sent me  unto you.*"</span>  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*I AM" is the self-definition of the Lord.
+<span style="color: #4ade80;">*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*</span>. . . say unto the  children of Israel, I AM hath sent me  unto you.<span style="color: #4ade80;">*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*</span>I AM" is the self-definition of the Lord.
 
 Cain and Abel, as the grandchildren of the Lord, can be only personifications of two distinct functions of your own consciousness. The author is really concerned to show the *"Two Contrary States of the Human Soul,"* and he has used two brothers to show these states. The two brothers represent two distinct outlooks on the world possessed by everyone. One is the limited perception of the senses, and the other is an imaginative view of the world. Cain - the first view - is a passive surrender to appearances and an acceptance of life on the basis of the world without: a view which inevitably leads to unsatisfied longing or a contentment with disillusion. Abel - the second view - is a vision of fulfilled desire, lifting man above the evidence of the senses to that state of relief where he no longer pines with desire. Ignorance of the second view is a soul on fire. Knowledge of the second view is the wing whereby it flies to the Heaven of fulfilled desire.
 
@@ -47,7 +47,7 @@ The Prophet Malachi complains that man has robbed God:
 
 <span style="color: #4ade80;">*"But ye say, Wherein have we robbed thee? In tithes and offerings."*</span> ([Malachi 3:8](https://www.biblegateway.com/passage/?search=Malachi+3:8&version=KJV))
 
-Facts based upon reason and the evidence of the senses which oppose the idea seeking expression, rob you of the belief in the reality of the invisible state. But *"faith is the evidence of things not seen"*, and through it <span style="color: #4ade80;">*"Good calleth those things which be not as though they were..."*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
+Facts based upon reason and the evidence of the senses which oppose the idea seeking expression, rob you of the belief in the reality of the invisible state. But <span style="color: #4ade80;">*"faith is the evidence of things not seen"*</span>, and through it <span style="color: #4ade80;">*"Good calleth those things which be not as though they were..."*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
 Call the thing not seen; assume the feeling of your wish fulfilled.
 

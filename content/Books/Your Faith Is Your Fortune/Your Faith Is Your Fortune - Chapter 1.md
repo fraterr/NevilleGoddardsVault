@@ -1,4 +1,4 @@
-*"Verily, verily, I say unto you before Abraham was, I AM."* (John 8: 58)
+<span style="color: #4ade80;">*"Verily, verily, I say unto you before Abraham was, I AM."*</span> (John 8: 58)
 
 
 *“In the beginning was the Word, and the Word was with God, and the Word was God.”*

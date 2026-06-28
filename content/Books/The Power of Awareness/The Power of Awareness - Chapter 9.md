@@ -1,4 +1,4 @@
-*"And all mine are thine, and thine are mine."* (John 17:10)
+<span style="color: #4ade80;">*"And all mine are thine, and thine are mine."*</span> (John 17:10)
 
 <span style="color: #4ade80;">*"Thrust in thy sickle, and reap; for the time is come for thee to reap; for the harvest of the earth is ripe."*</span> ([Rev. 14:15](https://www.biblegateway.com/passage/?search=Revelation+14:15&version=KJV))
 
@@ -22,7 +22,7 @@ Man believes the future to be the natural development of the past. But the law o
 
 In my Father’s house are many mansions; If it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again and receive you unto myself: that where I am, there ye may be also. And now I have told you
 
-*"before it came to pass, that, when it is come to pass, ye might believe."* (John 14:2, 3, 29)
+<span style="color: #4ade80;">*"before it came to pass, that, when it is come to pass, ye might believe."*</span> (John 14:2, 3, 29)
 
 The *“I”* in this quotation is your imagination which goes into the future, into one of the many mansions. Mansion is the state desired . . . telling of an event before it occurs physically is simply feeling yourself into the state desired until it has the tone of reality.
 

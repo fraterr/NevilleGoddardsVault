@@ -1,4 +1,4 @@
-*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – (John 14:29)
+<span style="color: #4ade80;">*"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."*</span> – (John 14:29)
 
 MANY persons, myself included, have observed events before they occurred; that is, before they occurred in this world of three dimensions. Since man can observe an event before it occurs in the three dimensions of space, life on earth must proceed according to plan, and this plan must exist else-where in another dimension and be slowly moving through our space.
 If the occurring events were not in this world when they were observed, then, to be perfectly logical, they must have been [out of this world](/books/out-of-this-world/out-of-this-world).

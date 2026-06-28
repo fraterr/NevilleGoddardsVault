@@ -1,4 +1,4 @@
-*"Ye shall know the truth, and the truth shall make you free."* (John 8:32)
+<span style="color: #4ade80;">*"Ye shall know the truth, and the truth shall make you free."*</span> (John 8:32)
 
 *“Ye shall know the truth and the truth shall set you free.”*
 

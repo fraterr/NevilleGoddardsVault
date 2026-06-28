@@ -1,4 +1,4 @@
-*"I AM the Resurrection and the Life; he that believeth in me, though he were dead, yet shall he live."* (John 11:25)
+<span style="color: #4ade80;">*"I AM the Resurrection and the Life; he that believeth in me, though he were dead, yet shall he live."*</span> (John 11:25)
 
 The mystery of the crucifixion and the resurrection is so interwoven that to be fully understood the two must be explained together for one determines the other. This mystery is symbolized on earth in the rituals of Good Friday and Easter. You have observed that the anniversary of this cosmic event, announced every year by the church, is not a fixed date as are other anniversaries marking births and deaths, but that this day changes from year to year, falling anywhere from the 22nd day of March to the 25th day of April.
 

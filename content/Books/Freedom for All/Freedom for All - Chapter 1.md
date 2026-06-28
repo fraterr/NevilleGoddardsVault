@@ -56,15 +56,15 @@ The most difficult thing for man to really grasp is this: That the *"I AM-ness"*
 
 This discovery reveals that all that I have believed God to be I AM.
 
-*"I AM the resurrection and the life"* (John 11:25) is a statement of fact concerning my consciousness, for my consciousness resurrects or makes visibly alive that which I am conscious of being
+<span style="color: #4ade80;">*"I AM the resurrection and the life"*</span> (John 11:25) is a statement of fact concerning my consciousness, for my consciousness resurrects or makes visibly alive that which I am conscious of being
 
-*"I AM the door (John 10:2, 10:7, 10:9)… all that ever came before me are thieves and robbers"* (John 10:8) shows me that my consciousness is the one and only entrance into the world of expression; that by assuming the consciousness of being or possessing the thing which I desire to be or possess is the only way by which I can become it or possess it; that any attempt to express this desirable state in ways other than by assuming the consciousness of being or possessing it, is to be robbed of the joy of expression and possession.
+<span style="color: #4ade80;">*"I AM the door (John 10:2, 10:7, 10:9)… all that ever came before me are thieves and robbers"*</span> (John 10:8) shows me that my consciousness is the one and only entrance into the world of expression; that by assuming the consciousness of being or possessing the thing which I desire to be or possess is the only way by which I can become it or possess it; that any attempt to express this desirable state in ways other than by assuming the consciousness of being or possessing it, is to be robbed of the joy of expression and possession.
 
 <span style="color: #4ade80;">*"I AM the beginning and the end"*</span> ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) reveals my consciousness as the cause of the birth and death of all expression.
 
 <span style="color: #4ade80;">*"I AM hath sent me"*</span> ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV)) reveals my consciousness to be the Lord which sends me into the world in the image and likeness of that which I am conscious of being to live in a world composed of all that I am conscious of.
 
-<span style="color: #4ade80;">*"[I AM the Lord](/lectures/i-am-the-lord), and there is no God beside Me"*</span> ([Isaiah 45:5](https://www.biblegateway.com/passage/?search=Isaiah+45:5&version=KJV)) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
+*"[I AM the Lord](/lectures/i-am-the-lord), and there is no God beside Me"* ([Isaiah 45:5](https://www.biblegateway.com/passage/?search=Isaiah+45:5&version=KJV)) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
 
 <span style="color: #4ade80;">*"BE still and know that I AM God"*</span> ([Psalm 46:10](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)) means that I should still the mind and know that consciousness is God.
 

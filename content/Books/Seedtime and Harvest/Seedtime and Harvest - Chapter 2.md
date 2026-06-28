@@ -70,7 +70,7 @@ When the fourth function, the imagination, has completed its task of rehearsing 
 
 Men and women will automatically play their parts to bring about the fulfillment of the dramatized theme. The players, by reason of their various parts in the world's drama, become relevant to the individual's dramatized theme and, because relevant, are drawn into his drama. They will play their parts, faithfully believing all the while that it was they themselves who initiated the parts they play. This they do because:
 
-*"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."* (John 17:21, 23)
+<span style="color: #4ade80;">*"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."*</span> (John 17:21, 23)
 
 I am involved in mankind. We are one. We are all playing the four parts of producer, author, director and actor in the drama of life. Some of us are doing it consciously, others unconsciously. It is necessary that we do it consciously. Only in this way can we be certain of a perfect ending to our play. Then we shall understand why we must become conscious of the four functions of the one God within ourselves that we may have the companionship of God as His Sons.
 
@@ -103,7 +103,7 @@ A month later, this girl sailed for the islands in the South Pacific. It was nig
 
 In the intervening years, she had many opportunities to use her imagination constructively, but as she had done this unconsciously, she did not realize there was a Law behind it all. Now that she understands, she, too, is consciously playing her four major roles in the daily drama of her life, producing plays for the good of others as well as herself.
 
-*"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."* (John 19:23)
+<span style="color: #4ade80;">*"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."*</span> (John 19:23)
 
 
 

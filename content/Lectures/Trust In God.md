@@ -32,7 +32,7 @@ This experience is one hundred per cent scripture. In Genesis it is said that: <
 
 In [Biblical language](/lectures/biblical-language) the number is important, not years or days. Every letter of the Hebrew tongue has a numerical and a symbolical value. Four-hundred has the numerical value of the last letter, taf, whose symbol is a cross - the cross of Man. In her vision it took two days to enter and two to return, making a total of four. The number two is opposition, division. The journey was that of oppression, fear, and hardship; but in the end she found her first love, who guided and helped her return. 
 
-Isaiah tells you: <span style="color: #4ade80;">*"[Your Maker](/lectures/your-maker) is [your husband](/lectures/your-husband); the Lord of hosts is his name. He has called you like a wife forsaken and grieved in spirit, and will love you with everlasting love."*</span> ([Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV)) 
+Isaiah tells you: *"[Your Maker](/lectures/your-maker) is [your husband](/lectures/your-husband); the Lord of hosts is his name. He has called you like a wife forsaken and grieved in spirit, and will love you with everlasting love."* ([Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV)) 
 
 In spite of everything you do, have done, or will do, God will forgive you - for you are his emanation, his wife till the sleep of death is past. Regardless of the garment you wear, be it male or female, you are God's wife in this world. In symbolism however, God's wife appears in the form of a female. 
 

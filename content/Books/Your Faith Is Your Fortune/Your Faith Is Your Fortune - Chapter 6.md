@@ -1,4 +1,4 @@
-*"For if ye believe not that I AM, ye shall die in your sins."* (John 8:24)
+<span style="color: #4ade80;">*"For if ye believe not that I AM, ye shall die in your sins."*</span> (John 8:24)
 
 *“All things were made by him; and without him was not anything made that was made.”* This is a hard saying for those trained in the various systems of orthodox religion to accept, but there it stands. All things, good, bad and indifferent, were made by God. *“God made man (manifestation) in his own image; in the likeness of God made he him.”* Apparently adding to this confusion it is stated, *“And God saw that his creation was good.”* What are you going to do about this seeming anomaly? How is man going to correlate all things as good when that which he is taught denies this fact? Either the understanding of God is erroneous or else there is something radically wrong with man’s teaching.
 

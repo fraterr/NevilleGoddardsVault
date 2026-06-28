@@ -2,9 +2,9 @@
 
 DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.
 
-*"The first shall be last and the last shall be first."* (Matthew 19:30)
+<span style="color: #4ade80;">*"The first shall be last and the last shall be first."*</span> (Matthew 19:30)
 
-*"He it is, Who coming after me is preferred before me."* (John 1:27)
+<span style="color: #4ade80;">*"He it is, Who coming after me is preferred before me."*</span> (John 1:27)
 
 <span style="color: #4ade80;">*"The second Man is the Lord from heaven."*</span> ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
 

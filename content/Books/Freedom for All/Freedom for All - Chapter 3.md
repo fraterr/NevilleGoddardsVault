@@ -30,7 +30,7 @@ To feel the presence of the thing desired, to subjectively actualize a state by 
 
 Your present objectified world is Japheth which was made visible by Ham. Therefore Ham serves his brothers Shem and Japheth, for without feeling which is symbolized as Ham, the idea or thing desired (Shem) could not be made visible as Japheth.
 
-The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh (John 1:14). <span style="color: #4ade80;">*"And God calleth things that be not as though they were"*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
+The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh (John 1:14). *"And God calleth things that be not as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
 Consciousness calls things that are not seen as though they were, and it does this by first defining itself as that which it desires to express, and second by remaining within the defined state until the invisible becomes visible.
 

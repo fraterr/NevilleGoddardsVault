@@ -82,7 +82,7 @@ One must adopt either the way of imagination or the way of sense.
 
 No compromise or neutrality is possible.
 
-*"He who is not for me is against me"* (Matthew 12:30, Luke 11:23).
+<span style="color: #4ade80;">*"He who is not for me is against me"*</span> (Matthew 12:30, Luke 11:23).
 
 When man finally identifies himself with his Imagination rather than his senses, he has at long last discovered the core of reality.
 

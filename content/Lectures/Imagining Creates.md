@@ -22,7 +22,7 @@ Many will say that was just coincidence, but it was not! It is reality, but how 
 The present moment is a formed imaginal act. Arrest it, and you can change it in yourself by following the advice given in the 18th chapter of the Book of Jeremiah:
 *" 'Arise! Go down to the potter's house and I will let you hear my words.' So I went down to the potter's house and there he was working at his wheel. The image in his hand was misshapen, but he reworked it into another image as it seemed good to the potter to do."* 
 
-The word translated *"potter,"* means imagination, and we are told that the Lord is not only our Father, but the potter, and we are the clay in his hands! ([Isaiah 64](https://www.biblegateway.com/passage/?search=Isaiah+64&version=KJV)) 
+The word translated <span style="color: #4ade80;">*"potter,"*</span> means imagination, and we are told that the Lord is not only our Father, but the potter, and we are the clay in his hands! ([Isaiah 64](https://www.biblegateway.com/passage/?search=Isaiah+64&version=KJV)) 
 
 Remember the day your boss criticized you, and you are molding an image of yourself based upon what he said. Being undesirable, that image is misshapen. Unable to discard yourself, go down to the potter's house by taking the same scene and reshaping yourself by remembering the day your boss congratulated you on your accomplishments. Will this act change your world? Yes! I tell you: the God of the universe is shaping you morning, noon, and night, as you accept words, actions, and events from seeming others. 
 

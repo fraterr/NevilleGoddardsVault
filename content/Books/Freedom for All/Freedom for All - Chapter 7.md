@@ -38,7 +38,7 @@ Desires are states of consciousness seeking embodiment. They are formed by man�
 
 Desires are expressed when the man who has conceived them assumes the attitude of mind that would be his if the states desired were already expressed. Now because desires regardless of their nature can be so easily expressed by fixed attitudes of mind, a word of warning must be given to those who have not yet realized the oneness of life, and who do not know the fundamental truth that consciousness is God, the one and only reality.
 
-This warning was given to man in the famous Golden Rule – *"Do unto others that which you would have them do unto you."* (Matthew 7:21)
+This warning was given to man in the famous Golden Rule – <span style="color: #4ade80;">*"Do unto others that which you would have them do unto you."*</span> (Matthew 7:21)
 
 You may desire something for yourself or you may desire for another. If your desire concerns another make sure that the thing desired is acceptable to that other. The reason for this warning is that your consciousness is God, the giver of all gifts.
 
@@ -80,7 +80,7 @@ Your world is defined by your conception of yourself PLUS YOUR CONCEPTIONS OF OT
 
 The story of the Passover is to help you turn your back on the limitations of the present and pass over into a better and freer state.
 
-The suggestion to *"Follow the man with the pitcher of water"* (Mark 14:13; Luke 22:10) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
+The suggestion to <span style="color: #4ade80;">*"Follow the man with the pitcher of water"*</span> (Mark 14:13; Luke 22:10) was given to the disciples to guide them to the last supper or the feast of the Passover. The man with the pitcher of water is the eleventh disciple, Simon of Canaan, the disciplined quality of mind which hears only dignified, noble and kindly states.
 
 The mind that is disciplined to hear only the good feasts upon good states and so embodies the good on earth.
 
