@@ -1,11 +1,8 @@
-*"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."*  
-([Genesis 2:10](https://www.biblegateway.com/passage/?search=Genesis+2:10&version=KJV))
+<span style="color: #4ade80;">*"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."*</span> ([Genesis 2:10](https://www.biblegateway.com/passage/?search=Genesis+2:10&version=KJV))
 
-*"And every one had four faces.."*  
-([Ezekiel 10:14](https://www.biblegateway.com/passage/?search=Ezekiel+10:14&version=KJV))
+<span style="color: #4ade80;">*"And every one had four faces.."*</span> ([Ezekiel 10:14](https://www.biblegateway.com/passage/?search=Ezekiel+10:14&version=KJV))
 
-*"I see four men loose, walking  in the midst of the fire, and they  have no hurt; and the form of  the fourth is like the Son of  God."*  
-([Daniel 3:25](https://www.biblegateway.com/passage/?search=Daniel+3:25&version=KJV))
+<span style="color: #4ade80;">*"I see four men loose, walking  in the midst of the fire, and they  have no hurt; and the form of  the fourth is like the Son of  God."*</span> ([Daniel 3:25](https://www.biblegateway.com/passage/?search=Daniel+3:25&version=KJV))
 
 *"[Four Mighty Ones](/lectures/four-mighty-ones) are in every man."* (William Blake)
 
@@ -46,8 +43,7 @@ Without the dramatized vision of fulfilled desire, the theme remains a mere them
 
 The *"Four Mighty Ones"* are the four quarters of the human soul. The first is Jehovah's King, who suggests the theme; the second is Jehovah's servant, who faithfully works out the theme in a dramatic vision; the third is Jehovah's man, who was attentive and obedient to the vision of fulfilled desire, who brings the wandering imagination back to the script *"seventy times seven"*. The *"Form of the Fourth"* is Jehovah himself, who enacts the dramatized theme on the stage of the mind.
 
-*"Let this mind be in you, which  was also in Christ Jesus:  Who, being in the form of God,  thought it not robbery to be  equal with God: . . ."*  
-([Philippians 2:5,6](https://www.biblegateway.com/passage/?search=Philippians+2:5,6&version=KJV))
+<span style="color: #4ade80;">*"Let this mind be in you, which  was also in Christ Jesus:  Who, being in the form of God,  thought it not robbery to be  equal with God: . . ."*</span> ([Philippians 2:5,6](https://www.biblegateway.com/passage/?search=Philippians+2:5,6&version=KJV))
 
 The drama of life is a joint effort of the four quarters of the human soul.
 
@@ -62,8 +58,7 @@ The *"Four Mighty Ones"* constitute the Selfhood of man, or God in man: and all 
 
 Without consciousness, he acts unconsciously, and cries to an objective God to save him from his own creation.
 
-*"O Lord, how long shall I cry, and  Thou wilt not hear! Even cry out  unto Thee of violence, and  Thou wilt not save!"*  
-([Habakkuk 1:2](https://www.biblegateway.com/passage/?search=Habakkuk+1:2&version=KJV))
+<span style="color: #4ade80;">*"O Lord, how long shall I cry, and  Thou wilt not hear! Even cry out  unto Thee of violence, and  Thou wilt not save!"*</span> ([Habakkuk 1:2](https://www.biblegateway.com/passage/?search=Habakkuk+1:2&version=KJV))
 
 When man discovers that life is a play which he, himself, is consciously or unconsciously writing, he will cease from the blind, self-torture of executing judgment upon others.
 
@@ -75,8 +70,7 @@ When the fourth function, the imagination, has completed its task of rehearsing 
 
 Men and women will automatically play their parts to bring about the fulfillment of the dramatized theme. The players, by reason of their various parts in the world's drama, become relevant to the individual's dramatized theme and, because relevant, are drawn into his drama. They will play their parts, faithfully believing all the while that it was they themselves who initiated the parts they play. This they do because:
 
-*"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."*  
-([John 17:21, 23](https://www.biblegateway.com/passage/?search=John+17:21,+23&version=KJV))
+<span style="color: #4ade80;">*"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."*</span> ([John 17:21, 23](https://www.biblegateway.com/passage/?search=John+17:21,+23&version=KJV))
 
 I am involved in mankind. We are one. We are all playing the four parts of producer, author, director and actor in the drama of life. Some of us are doing it consciously, others unconsciously. It is necessary that we do it consciously. Only in this way can we be certain of a perfect ending to our play. Then we shall understand why we must become conscious of the four functions of the one God within ourselves that we may have the companionship of God as His Sons.
 
@@ -109,8 +103,7 @@ A month later, this girl sailed for the islands in the South Pacific. It was nig
 
 In the intervening years, she had many opportunities to use her imagination constructively, but as she had done this unconsciously, she did not realize there was a Law behind it all. Now that she understands, she, too, is consciously playing her four major roles in the daily drama of her life, producing plays for the good of others as well as herself.
 
-*"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."*
-([John 19:23](https://www.biblegateway.com/passage/?search=John+19:23&version=KJV))
+<span style="color: #4ade80;">*"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."*</span> ([John 19:23](https://www.biblegateway.com/passage/?search=John+19:23&version=KJV))
 
 
 

@@ -1,6 +1,7 @@
 import React from 'react';
 import ReactMarkdown from 'react-markdown';
 import remarkGfm from 'remark-gfm';
+import rehypeRaw from 'rehype-raw';
 import Link from 'next/link';
 import { slugify } from '@/lib/markdown';
 import styles from './MarkdownRenderer.module.css';
@@ -14,6 +15,7 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
     <div className={styles.markdownBody}>
       <ReactMarkdown
         remarkPlugins={[remarkGfm]}
+        rehypePlugins={[rehypeRaw]}
         components={{
           // Overwrite link component to use Next.js Link for internal links
           a: ({ node, href, children, ...props }) => {

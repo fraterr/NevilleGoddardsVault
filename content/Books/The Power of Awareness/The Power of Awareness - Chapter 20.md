@@ -2,7 +2,7 @@ In the preceding chapter righteousness was defined as the consciousness of alrea
 
 *"Break off thy sins by righteousness."* (Dan. 4:27)
 
-*"My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live."* ([Job 27:6](https://www.biblegateway.com/passage/?search=Job+27:6&version=KJV)). *"My righteousness shall answer for me in time to come."* ([Genesis 30:33](https://www.biblegateway.com/passage/?search=Genesis+30:33&version=KJV))
+<span style="color: #4ade80;">*"My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live."*</span> ([Job 27:6](https://www.biblegateway.com/passage/?search=Job+27:6&version=KJV)). <span style="color: #4ade80;">*"My righteousness shall answer for me in time to come."*</span> ([Genesis 30:33](https://www.biblegateway.com/passage/?search=Genesis+30:33&version=KJV))
 
 Very often the words sin and righteousness are used in the same quotation. This is a logical contrast of opposites and becomes enormously significant in the light of the psychological meaning of righteousness and the psychological meaning of sin. Sin means to miss the mark. Not to attain your desire, not to be the person you want to be, is sinning. Righteousness is the consciousness of already being what you want to be. It is a changeless educative law that effects must follow causes. Only by righteousness can you be saved from sinning.
 
@@ -10,7 +10,7 @@ There is a widespread misunderstanding as to what it means to be *“saved from 
 
 *"Except your righteousness shall exceed the righteousness of the scribes and Pharisees, ye shall in no wise enter into the kingdom of heaven."* (Matt. 5:20). Scribes and Pharisees means those who are influenced and governed by the outer appearances — the rules and customs of the society in which they live, the vain desire to be thought well of by other men. Unless this state of mind is exceeded, your life will be one of limitation — of failure to attain your desires — of missing the mark — of sin. This righteousness is exceeded by true righteousness, which is always the consciousness of already being that which you want to be.
 
-One of the greatest pitfalls in attempting to use the law of Assumption is focusing your attention on things, on a new home, a better job, a bigger bank balance. This is not the righteousness without which you *“die in your sins.”* Righteousness is not the thing itself; it is the consciousness, the feeling of already being the person you want to be, of already having the thing you desire. *"Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you."* ([Matthew 6:33](https://www.biblegateway.com/passage/?search=Matthew+6:33&version=KJV)).
+One of the greatest pitfalls in attempting to use the law of Assumption is focusing your attention on things, on a new home, a better job, a bigger bank balance. This is not the righteousness without which you *“die in your sins.”* Righteousness is not the thing itself; it is the consciousness, the feeling of already being the person you want to be, of already having the thing you desire. <span style="color: #4ade80;">*"Seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you."*</span> ([Matthew 6:33](https://www.biblegateway.com/passage/?search=Matthew+6:33&version=KJV)).
 
 The kingdom (entire creation) of God (your I AM) IS within you. Righteousness is the awareness that you already possess it all.
 

@@ -1,5 +1,4 @@
-*"And one said to the man clothed in linen, which was upon the waters of the river, How long shall it be to the end of these wonders? And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and swear by him that liveth forever that it shall be for a time, times, and an half."*  
-([Daniel 12:6, 7](https://www.biblegateway.com/passage/?search=Daniel+12:6,+7&version=KJV))
+<span style="color: #4ade80;">*"And one said to the man clothed in linen, which was upon the waters of the river, How long shall it be to the end of these wonders? And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and swear by him that liveth forever that it shall be for a time, times, and an half."*</span> ([Daniel 12:6, 7](https://www.biblegateway.com/passage/?search=Daniel+12:6,+7&version=KJV))
 
 At one of my lectures given in Los Angeles on the subject of the hidden meaning behind the stories of the Bible, someone asked me to interpret the above quotation from the Book of Daniel. After I confessed I did not know the meaning of that particular passage, a lady in the audience said to herself, *"If the mind behaves according to the Assumption with which it starts, then I will find the true answer to that question and tell it to Neville."* And this is what she told me.
 
@@ -23,8 +22,7 @@ At about four o'clock in the morning, she was awakened by the cry of her cat. He
 
 That cat lived comfortably for five more years, when, without pain or illness, he died naturally in his sleep.
 
-*"How long shall it be to the end of these wonders?... A time, times, and an half. In a dream in a vision of the night, when deep sleep falleth upon men, in slumberings upon the bed; Then he openeth the ears of men, and sealeth their instructions."*  
-([Job 33:15, 16](https://www.biblegateway.com/passage/?search=Job+33:15,+16&version=KJV))
+<span style="color: #4ade80;">*"How long shall it be to the end of these wonders?... A time, times, and an half. In a dream in a vision of the night, when deep sleep falleth upon men, in slumberings upon the bed; Then he openeth the ears of men, and sealeth their instructions."*</span> ([Job 33:15, 16](https://www.biblegateway.com/passage/?search=Job+33:15,+16&version=KJV))
 
 
 

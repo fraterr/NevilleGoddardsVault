@@ -1,6 +1,6 @@
 *"When thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly."* (Matt. 6:6)
 
-*"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."*  ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
+<span style="color: #4ade80;">*"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."*</span> ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
 
 Prayer is the most wonderful experience man can have. Unlike the daily murmurings of the vast majority of mankind in all lands who by their vain repetitions hope to gain the ear of God, Prayer is the ecstasy of a spiritual wedding taking place in the deep, silent stillness of consciousness. In its true sense Prayer is God’s marriage ceremony. Just as a maid on her wedding day relinquishes the name of her family to assume the name of her husband, in like manner, one who prays must relinquish his present name or nature and assume the nature of that for which he prays.
 

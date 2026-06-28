@@ -7,23 +7,23 @@ Thus the word imagination has no definite meaning. Even the dictionary gives us 
 (4) planning, plotting or scheming as involving mental construction.  
 
 I identify the central figure of the Gospels with human imagination, the power which makes the forgiveness of sins, the achievement of our goals, inevitable.  
-*"All things were made by Him; and without Him was not anything made that was made."* ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV))
+<span style="color: #4ade80;">*"All things were made by Him; and without Him was not anything made that was made."*</span> ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV))
 There is only one thing in the world, Imagination, and all our deformations of it.
-*"He is despised and rejected of men; a man of sorrows, and acquainted with grief."* ([Isaiah 53:3](https://www.biblegateway.com/passage/?search=Isaiah+53:3&version=KJV)) 
+<span style="color: #4ade80;">*"He is despised and rejected of men; a man of sorrows, and acquainted with grief."*</span> ([Isaiah 53:3](https://www.biblegateway.com/passage/?search=Isaiah+53:3&version=KJV)) 
 
 Imagination is the very gateway of reality. *"Man"*, said Blake, *"is either the ark of God or a phantom of the earth and of the water"*. *"Naturally he is only a natural organ subject to Sense"*. *"The Eternal Body of Man is The Imagination: that is God himself, The Divine Body. (yod, shin, ayin; from right to the left): Jesus: we are His Members"*.  
 I know of no greater and truer definition of the Imagination than that of Blake. By imagination we have the power to be anything we desire to be.  
-Through imagination, we disarm and transform the violence of the world. Our most intimate as well as our most casual relationships become imaginative, as we awaken to *"the mystery hid from the ages"* ([Colossians 1:26](https://www.biblegateway.com/passage/?search=Colossians+1:26&version=KJV)), that Christ in us is our imagination.  
+Through imagination, we disarm and transform the violence of the world. Our most intimate as well as our most casual relationships become imaginative, as we awaken to <span style="color: #4ade80;">*"the mystery hid from the ages"*</span> ([Colossians 1:26](https://www.biblegateway.com/passage/?search=Colossians+1:26&version=KJV)), that Christ in us is our imagination.  
 We then realize that only as we live by imagination can we truly be said to live at all.  
 I want this book to be the simplest, clearest, frankest work I have the power to make it, that I may encourage you to function imaginatively, that you may open your 
 
-*"Immortal Eyes inwards into the Worlds of Thought"* (William Blake), where you behold every desire of your heart as ripe grain *"white already to harvest"* ([John 4:35](https://www.biblegateway.com/passage/?search=John+4:35&version=KJV)).  
+*"Immortal Eyes inwards into the Worlds of Thought"* (William Blake), where you behold every desire of your heart as ripe grain <span style="color: #4ade80;">*"white already to harvest"*</span> ([John 4:35](https://www.biblegateway.com/passage/?search=John+4:35&version=KJV)).  
 
-*"I am come that they might have life, and that they might have it more abundantly."* ([John 10:10](https://www.biblegateway.com/passage/?search=John+10:10&version=KJV))  
+<span style="color: #4ade80;">*"I am come that they might have life, and that they might have it more abundantly."*</span> ([John 10:10](https://www.biblegateway.com/passage/?search=John+10:10&version=KJV))  
 
 The abundant life that Christ promised us is ours to experience now, but not until we have the sense of Christ as our imagination can we experience it.  
 
-*"The mystery hid from the ages... [Christ in you](/lectures/christ-in-you), the hope of glory"* ([Colossians 1:26,27](https://www.biblegateway.com/passage/?search=Colossians+1:26,27&version=KJV)) is your imagination. This is the mystery which I am ever striving to realize more keenly myself and to urge upon others.  
+<span style="color: #4ade80;">*"The mystery hid from the ages... [Christ in you](/lectures/christ-in-you), the hope of glory"*</span> ([Colossians 1:26,27](https://www.biblegateway.com/passage/?search=Colossians+1:26,27&version=KJV)) is your imagination. This is the mystery which I am ever striving to realize more keenly myself and to urge upon others.  
 Imagination is our redeemer, *"the Lord from Heaven"* born of man but not begotten of man (The Nicene-Constantinopolitan Creed or the Symbol of Faith, 325/381 A.D.).  
 Every man is Mary and birth to Christ must give.  
 If the story of the immaculate conception1 and birth of Christ appears irrational to man, it is only because it is misread as biography, history, and cosmology, and the modern explorers of the imagination do not help by calling It the unconscious or subconscious mind.  
@@ -40,7 +40,7 @@ Man in the moment of his awakening to the imaginative life must meet the test of
  
 The supreme test of Sonship is the forgiveness of sin. The test that your imagination is Christ Jesus, the Son of God, is your ability to forgive sin. Sin means missing one's mark in life, falling short of one's ideal, failing to achieve one's aim. Forgiveness means identification of man with his ideal or aim in life. This is the work of [awakened imagination](/lectures/awakened-imagination), the supreme work, for it tests man's ability to enter into and partake of the nature of his opposite.  
 
-*"Let the weak man say, I am strong."* ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))  
+<span style="color: #4ade80;">*"Let the weak man say, I am strong."*</span> ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))  
 
 Reasonably, this is impossible. Only awakened imagination) can enter into and partake of the nature of its opposite.  
 This conception of Christ Jesus as human imagination raises these fundamental questions: Is imagination a power sufficient, not merely to enable me to assume that I am strong, but is it also of itself capable of executing the idea?  
@@ -51,7 +51,7 @@ And, if it does harden into fact, shall I on reflection find that my actions thr
 After assuming that I am already what I want to be, must I continually guide myself by reasonable ideas and actions in order to bring about the fulfillment of my Assumption?  
 Experience has convinced me that an Assumption, though false, if persisted in, will harden into fact, that continuous imagination is sufficient for all things, and all my reasonable plans and actions will never make up for my lack of continuous imagination.  
 Is it not true that the teachings of the Gospels can only be received in terms of faith and that the Son of God is constantly looking for signs of faith in people – that is, faith in their own imagination?  
-Is not the promise  *"Believe that ye receive and ye shall receive"* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV)), the same as *"Imagine that you are and you shall be"*? Was it not an imaginary state in which Moses *"Endured, as seeing Him who is invisible"* ([Hebrews 11:27](https://www.biblegateway.com/passage/?search=Hebrews+11:27&version=KJV))?  
+Is not the promise  <span style="color: #4ade80;">*"Believe that ye receive and ye shall receive"*</span> ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV)), the same as *"Imagine that you are and you shall be"*? Was it not an imaginary state in which Moses <span style="color: #4ade80;">*"Endured, as seeing Him who is invisible"*</span> ([Hebrews 11:27](https://www.biblegateway.com/passage/?search=Hebrews+11:27&version=KJV))?  
 Was it not by the power of his own imagination that he endured?  
 Truth depends upon the intensity of the imagination, not upon external facts. Facts are the fruit bearing witness of the use or misuse of the imagination.  
 Man becomes what he imagines. He has a self-determined history. Imagination is the way, the truth, the life revealed.  

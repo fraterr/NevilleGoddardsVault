@@ -1,4 +1,4 @@
-*"And for their sakes I sanctify myself, that they also might be sanctified through the truth."* ([John 17:19](https://www.biblegateway.com/passage/?search=John+17:19&version=KJV))
+<span style="color: #4ade80;">*"And for their sakes I sanctify myself, that they also might be sanctified through the truth."*</span> ([John 17:19](https://www.biblegateway.com/passage/?search=John+17:19&version=KJV))
 
 The ideal we serve and strive to attain could never be evolved from us were it not potentially involved in our nature.
 

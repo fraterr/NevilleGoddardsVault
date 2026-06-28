@@ -1,4 +1,4 @@
-*"I am the first, and I am the last; and beside me is no God."* ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
+<span style="color: #4ade80;">*"I am the first, and I am the last; and beside me is no God."*</span> ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
 
 *"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* (Deut. 5:6, 7)
 

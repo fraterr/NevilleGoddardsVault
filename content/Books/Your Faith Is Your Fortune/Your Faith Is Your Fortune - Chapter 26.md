@@ -1,4 +1,4 @@
-*"Every place that the sole of your foot shall tread upon, that have I given unto you."* ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
+<span style="color: #4ade80;">*"Every place that the sole of your foot shall tread upon, that have I given unto you."*</span> ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
 
 The majority of people are familiar with the story of Joshua capturing the city of Jericho. What they do not know is that this story is the perfect formula for Victory, under any circumstances and against all odds.
 

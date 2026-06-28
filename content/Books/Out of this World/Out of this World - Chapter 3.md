@@ -16,7 +16,7 @@ Instead of learning my craft in schools where attending courses and seminars is 
 
 I stayed for hours imagining myself to be other than that which my reason and my senses dictated until the imagined states were vivid as reality – so vivid that passer-by became but a part of my imagination and acted as I would have them. By the power of imagination my fantasy led theirs and dictated to them their behavior and the discourse they held together while I was identified with my imagined state.
 
-Man’s imagination is the man himself, and the world as imagination sees it is the real world, but it is our duty to imagine all that is lovely and of good report ([Philippians 4:8](https://www.biblegateway.com/passage/?search=Philippians+4:8&version=KJV)). *"For the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart"* ([1 Samuel 16:7](https://www.biblegateway.com/passage/?search=1+Samuel+16:7&version=KJV)). *"As a man thinketh in his heart so is he"* ([Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs+23:7&version=KJV)).
+Man’s imagination is the man himself, and the world as imagination sees it is the real world, but it is our duty to imagine all that is lovely and of good report ([Philippians 4:8](https://www.biblegateway.com/passage/?search=Philippians+4:8&version=KJV)). <span style="color: #4ade80;">*"For the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart"*</span> ([1 Samuel 16:7](https://www.biblegateway.com/passage/?search=1+Samuel+16:7&version=KJV)). <span style="color: #4ade80;">*"As a man thinketh in his heart so is he"*</span> ([Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs+23:7&version=KJV)).
 
 In Meditation, when the brain grows luminous, I find my imagination endowed with the magnetic power to attract to me whatsoever I desire. Desire is the power imagination uses to fashion life about me as I fashion it within myself.
 
@@ -56,7 +56,7 @@ No man needs help to direct him in the application of this law of consciousness.
 
 What is your answer to the eternal question, *"[who am I](/lectures/who-am-i)?"*
 
-Your answer determines the part you play in the world’s drama. Your answer – that is, your concept of self – need not conform to the external reality to which it relates. This great truth is revealed in the statements, *"Let the weak say, I am strong."* ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
+Your answer determines the part you play in the world’s drama. Your answer – that is, your concept of self – need not conform to the external reality to which it relates. This great truth is revealed in the statements, <span style="color: #4ade80;">*"Let the weak say, I am strong."*</span> ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
 
 Look back over the good resolutions with which many past new years are encumbered. They lived a little while and then they died. Why? Because they were severed from their root. Assume that you are that which you want to be.
 

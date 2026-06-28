@@ -71,7 +71,7 @@ With its larger outlook the four-dimensional self then constructs the means nece
 
 The undisciplined mind finds it difficult to assume a state which is denied by the senses.
 
-Here is a technique that makes it easy to encounter events before they occur, to *"call things which are not seen as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). People have a habit of slighting the importance of simple things; but this simple formula for changing the future was discovered after years of searching and experimenting.
+Here is a technique that makes it easy to encounter events before they occur, to <span style="color: #4ade80;">*"call things which are not seen as though they were"*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). People have a habit of slighting the importance of simple things; but this simple formula for changing the future was discovered after years of searching and experimenting.
 
 The first step in changing the future is desire – that is: define your objective – know definitely what you want.
 

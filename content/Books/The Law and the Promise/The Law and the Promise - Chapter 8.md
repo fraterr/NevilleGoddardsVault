@@ -66,7 +66,7 @@ And to make the state alive, one must become it.
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 
-We must be *"imitators of God as dear children"* ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)) and commit ourselves to what we love, as God Who loved us committed Himself to us.
+We must be <span style="color: #4ade80;">*"imitators of God as dear children"*</span> ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)) and commit ourselves to what we love, as God Who loved us committed Himself to us.
 
 We must BE the state to experience the state.
 

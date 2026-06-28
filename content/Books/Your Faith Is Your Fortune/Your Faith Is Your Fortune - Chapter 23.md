@@ -1,4 +1,4 @@
-*"Let these sayings sink down into your ears; for the son of man shall be delivered into the hands of men"* ([Luke 9:44](https://www.biblegateway.com/passage/?search=Luke+9:44&version=KJV))
+<span style="color: #4ade80;">*"Let these sayings sink down into your ears; for the son of man shall be delivered into the hands of men"*</span> ([Luke 9:44](https://www.biblegateway.com/passage/?search=Luke+9:44&version=KJV))
 
 *“Let these sayings sink down into your ears, for the Son of Man shall be delivered into the hands of men.”* Be not as those who have eyes that see not and ears that hear not. Let these revelations sink deep into your ears, for after the Son (idea) is conceived man with his false values (reason) will attempt to explain the why and wherefore of the Son’s expression, and in so doing will rend him to pieces.
 

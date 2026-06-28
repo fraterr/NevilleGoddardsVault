@@ -1,4 +1,4 @@
-*"Not my will, but thine, be done."* ([Luke 22:42](https://www.biblegateway.com/passage/?search=Luke+22:42&version=KJV))
+<span style="color: #4ade80;">*"Not my will, but thine, be done."*</span> ([Luke 22:42](https://www.biblegateway.com/passage/?search=Luke+22:42&version=KJV))
 
 *“Not my will, but thine, be done.”* This resignation is not one of blind realization that *“I can of myself do nothing, the Father within me he doeth the work,”* When man wills he attempts to make something which does not now exist appear in time and space. Too often we are not aware of that which we are really doing. We unconsciously state that we do not possess the capacities to express. We predicate our desire upon the hope of acquiring the necessary capacities in future time. *“I AM not, but I will be.”*
 

@@ -32,7 +32,7 @@ This experience is one hundred per cent scripture. In Genesis it is said that: *
 
 In [Biblical language](/lectures/biblical-language) the number is important, not years or days. Every letter of the Hebrew tongue has a numerical and a symbolical value. Four-hundred has the numerical value of the last letter, taf, whose symbol is a cross - the cross of Man. In her vision it took two days to enter and two to return, making a total of four. The number two is opposition, division. The journey was that of oppression, fear, and hardship; but in the end she found her first love, who guided and helped her return. 
 
-Isaiah tells you: *"[Your Maker](/lectures/your-maker) is [your husband](/lectures/your-husband); the Lord of hosts is his name. He has called you like a wife forsaken and grieved in spirit, and will love you with everlasting love."* ([Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV)) 
+Isaiah tells you: <span style="color: #4ade80;">*"[Your Maker](/lectures/your-maker) is [your husband](/lectures/your-husband); the Lord of hosts is his name. He has called you like a wife forsaken and grieved in spirit, and will love you with everlasting love."*</span> ([Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV)) 
 
 In spite of everything you do, have done, or will do, God will forgive you - for you are his emanation, his wife till the sleep of death is past. Regardless of the garment you wear, be it male or female, you are God's wife in this world. In symbolism however, God's wife appears in the form of a female. 
 
@@ -48,7 +48,7 @@ It is said that David died and his sepulcher is within us to this day ([Acts 2](
 
 Appealing to the Lord to awake, David cries: *"Rouse thyself, why sleepest thou O Lord. Awake! Do not cast us off forever."* For only as the Lord awakes can David rise from the sepulcher and find his Father. Having been promised that his soul would not be left in hell, David awakes; and as he calls you Father, your soul is released from hell. 
 
-Asleep to your true identity, you are dreaming the horrors of life for a divine purpose. *"Only through many tribulations will you enter the kingdom of heaven."* ([Acts 14](https://www.biblegateway.com/passage/?search=Acts+14&version=KJV)) 
+Asleep to your true identity, you are dreaming the horrors of life for a divine purpose. <span style="color: #4ade80;">*"Only through many tribulations will you enter the kingdom of heaven."*</span> ([Acts 14](https://www.biblegateway.com/passage/?search=Acts+14&version=KJV)) 
 
 Do not be concerned with the horrors of the world; simply remember that all is ordered and correct. Instead, fall in love with the I AM within you and change your world. God made it as it is now and he can change it, for your husband is a creator. Everything in your world can be traced back to your own wonderful human imagination, who is God. 
 

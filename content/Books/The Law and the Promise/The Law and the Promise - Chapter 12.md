@@ -16,7 +16,7 @@ Four months later as I was again walking my dog, the same man approached me and 
 
 *"I knew his job was a fact when I imagined it that night some four months before, but I won't deny there was immense satisfaction in having him appear in the flesh to confirm it!"* ...F.B.
 
-*"I have no silver and gold, but I give you what I have."* ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+3:6&version=KJV))
+<span style="color: #4ade80;">*"I have no silver and gold, but I give you what I have."*</span> ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+3:6&version=KJV))
 
 None is to be discarded, all must be saved, and our Imagination reshaping memory is the process whereby this salvation is brought to pass. To condemn the man for having lost his way is to punish the already punished. *"O whom should I pity if I pity not the sinner who is gone astray?"* (William Blake, *"Jerusalem"*).
 

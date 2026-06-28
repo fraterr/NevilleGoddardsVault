@@ -6,7 +6,7 @@ Many people are interested in Imaginism as a way of life, but are not at all int
 
 *"I will raise up your son after you, who shall come forth from your body... I will be his father, and he shall be My son."* (2Sam. 7:12-14)
 
-The Promise that God will bring forth from our body a son who will be *"born, not of blood nor of the will of the flesh nor of the will of man, but of God"* ([John 1:13](https://www.biblegateway.com/passage/?search=John+1:13&version=KJV)) does not concern them. They want to know God's Law, not His Promise. However, this miraculous birth has been stated clearly as a must for all mankind from the earliest days of the Christian fellowship.
+The Promise that God will bring forth from our body a son who will be <span style="color: #4ade80;">*"born, not of blood nor of the will of the flesh nor of the will of man, but of God"*</span> ([John 1:13](https://www.biblegateway.com/passage/?search=John+1:13&version=KJV)) does not concern them. They want to know God's Law, not His Promise. However, this miraculous birth has been stated clearly as a must for all mankind from the earliest days of the Christian fellowship.
 
 *"You must be born from above” (John. 3:7). My purpose here is to state it again and to state it in such language and with such reference to my own personal mystical experiences that the reader will see that this birth "*from above" is far more than a part of a dispensable superstructure, that it is the sole purpose for God's creation.
 
@@ -60,9 +60,9 @@ They are personifications of the eternal spiritual states of the soul. They mark
 
 The Old Testament tells us of God's promise. The New Testament tells us not how this promise was fulfilled, but how it is fulfilled.
 
-The central theme of the Bible is the direct, individual, mystical experience of the birth of the child, that child of whom the prophet spoke *"...to us a child is born, to us a son is given; and the government will be upon his shoulder; and his name will be called, Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. Of the increase of his government and of peace, there will be no end..."* ([Isaiah 9:6-7](https://www.biblegateway.com/passage/?search=Isaiah+9:6-7&version=KJV))
+The central theme of the Bible is the direct, individual, mystical experience of the birth of the child, that child of whom the prophet spoke <span style="color: #4ade80;">*"...to us a child is born, to us a son is given; and the government will be upon his shoulder; and his name will be called, Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. Of the increase of his government and of peace, there will be no end..."*</span> ([Isaiah 9:6-7](https://www.biblegateway.com/passage/?search=Isaiah+9:6-7&version=KJV))
 
-When the child is revealed to us we see it, we experience it, and the response to this revelation can be stated in the words of Job, *"I have heard of thee by the hearing of the ear, but now my eye sees thee"* ([Job 42:5](https://www.biblegateway.com/passage/?search=Job+42:5&version=KJV)).
+When the child is revealed to us we see it, we experience it, and the response to this revelation can be stated in the words of Job, <span style="color: #4ade80;">*"I have heard of thee by the hearing of the ear, but now my eye sees thee"*</span> ([Job 42:5](https://www.biblegateway.com/passage/?search=Job+42:5&version=KJV)).
 
 The story of the incarnation is not fable, allegory or some carefully contrived fiction to enslave the minds of men, but mystical fact.
 
@@ -74,7 +74,7 @@ The question as it is posed in the Old Testament, *"Ask now, and see, can a male
 
 The Hebrew word *"chalats"*, mistranslated *"loins"*, means: to draw out, to deliver, to withdraw self. The drawing of oneself out of one's own skull was exactly what the prophet foresaw as the necessary birth from above, a birth giving man entrance into the kingdom of God and reflective perception on the highest levels of Being. Throughout the ages, *"Deep calls to deep"* (Ps. 42:7); *"Rouse thyself! Why sleepest thou, O Lord? Awake!"* (Ps. 44:23)
 
-The event, as it is recorded in the Gospels, actually takes place in man. But of that day or that hour when the time will come for the individual to be delivered, no one knows but the Father. *"Do not marvel that I said to you, You must be born from above. The wind blows where it wills, and you hear the sound of it, but you do not know whence it comes or whither it goes; so it is with every one who is born of the Spirit."* ([John 3:7-8](https://www.biblegateway.com/passage/?search=John+3:7-8&version=KJV))
+The event, as it is recorded in the Gospels, actually takes place in man. But of that day or that hour when the time will come for the individual to be delivered, no one knows but the Father. <span style="color: #4ade80;">*"Do not marvel that I said to you, You must be born from above. The wind blows where it wills, and you hear the sound of it, but you do not know whence it comes or whither it goes; so it is with every one who is born of the Spirit."*</span> ([John 3:7-8](https://www.biblegateway.com/passage/?search=John+3:7-8&version=KJV))
 
 This revelation in the Gospel of John is true. Here is my experience of this birth from above. Like Paul, I did not receive it from man — nor was I taught it. It came through the actual mystical experience of being born from above. None can speak truly of this mystical birth from above but one who has experienced it. I had no idea that this birth from above was literally true.
 
@@ -130,7 +130,7 @@ A figure of speech is used for the purpose of calling attention to, emphasizing 
 
 *"The curtain of the temple was torn in two, from top to bottom, and the earth shook and the rocks were split"*, (Matt. 27:51).
 
-On the morning of April 8, 1960 — four months after it was revealed to me that I am David's father — a bolt of lightning out of my skull split me in two from the top of my skull to the base of my spine. I was cleft as though I were a tree that had been struck by lightning. Then I felt and saw myself as a golden liquid light moving up my spine in a serpentine motion; as I entered my skull, it vibrated like an earthquake. *"Every word of God proves true; he is a shield to those who take refuge in him. Do not add to his words, lest he rebuke you, and you be found a liar"* ([Proverbs 30:5,6](https://www.biblegateway.com/passage/?search=Proverbs+30:5,6&version=KJV)). *"And as Moses lifted up the serpent in the wilderness, so must the Son of man be lifted up"*, ([John 3:14](https://www.biblegateway.com/passage/?search=John+3:14&version=KJV)).
+On the morning of April 8, 1960 — four months after it was revealed to me that I am David's father — a bolt of lightning out of my skull split me in two from the top of my skull to the base of my spine. I was cleft as though I were a tree that had been struck by lightning. Then I felt and saw myself as a golden liquid light moving up my spine in a serpentine motion; as I entered my skull, it vibrated like an earthquake. <span style="color: #4ade80;">*"Every word of God proves true; he is a shield to those who take refuge in him. Do not add to his words, lest he rebuke you, and you be found a liar"*</span> ([Proverbs 30:5,6](https://www.biblegateway.com/passage/?search=Proverbs+30:5,6&version=KJV)). *"And as Moses lifted up the serpent in the wilderness, so must the Son of man be lifted up"*, ([John 3:14](https://www.biblegateway.com/passage/?search=John+3:14&version=KJV)).
 
 These mystical experiences will help to rescue the Bible from the externals of history, persons and events, and to restore it to its real significance in the life of man.
 

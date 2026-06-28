@@ -1,30 +1,26 @@
-*"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."* ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
+<span style="color: #4ade80;">*"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."*</span> ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
 
 *"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, I AM hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+3:14&version=KJV).) "*I AM" is the self-definition of the Lord.
 
 Cain and Abel, as the grandchildren of the Lord, can be only personifications of two distinct functions of your own consciousness. The author is really concerned to show the *"Two Contrary States of the Human Soul,"* and he has used two brothers to show these states. The two brothers represent two distinct outlooks on the world possessed by everyone. One is the limited perception of the senses, and the other is an imaginative view of the world. Cain - the first view - is a passive surrender to appearances and an acceptance of life on the basis of the world without: a view which inevitably leads to unsatisfied longing or a contentment with disillusion. Abel - the second view - is a vision of fulfilled desire, lifting man above the evidence of the senses to that state of relief where he no longer pines with desire. Ignorance of the second view is a soul on fire. Knowledge of the second view is the wing whereby it flies to the Heaven of fulfilled desire.
 
-*"Come, eat my bread and drink  of the wind that I have mingled, forsake the foolish and live."*  
-([Proverbs 9:56](https://www.biblegateway.com/passage/?search=Proverbs+9:56&version=KJV))
+<span style="color: #4ade80;">*"Come, eat my bread and drink  of the wind that I have mingled, forsake the foolish and live."*</span> ([Proverbs 9:56](https://www.biblegateway.com/passage/?search=Proverbs+9:56&version=KJV))
 
 In the epistle to the Hebrews, the  writer tells us that Abel's offering was faith and, states the author, "Without faith it is impossible to please Him.”  ([Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews+11:6&version=KJV))
 
-*"Now faith is the substance of things hoped for, the evidence of things not seen... Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear."*  
-([Hebrews 11:1, 3](https://www.biblegateway.com/passage/?search=Hebrews+11:1,+3&version=KJV))
+<span style="color: #4ade80;">*"Now faith is the substance of things hoped for, the evidence of things not seen... Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear."*</span> ([Hebrews 11:1, 3](https://www.biblegateway.com/passage/?search=Hebrews+11:1,+3&version=KJV))
 
 Cain offers the evidence of the senses which consciousness, the Lord, rejects, because acceptance of this gift as a mold of the future would mean the fixation and perpetuation of the present state forever. The sick would be sick, the poor would be poor, the thief would be a thief, the murderer a murderer, and so on, without hope of redemption.
 
 The Lord, or consciousness, has no respect for such passive use of imagination - which is the gift of Cain. He delights in the gift of Abel, the active, voluntary, loving exercise of the imagination on behalf of man for himself and others.
 
-*"Let the weak man say, I am strong"* 
-([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
+<span style="color: #4ade80;">*"Let the weak man say, I am strong"*</span> ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
 
 Let man disregard appearances and declare himself to be the man he wants to be. Let him imagine beauty where his senses reveal ashes, joy where they testify to mourning, riches where they bear witness to poverty. Only by such active, voluntary use of imagination can man be lifted up and Eden restored.
 
 The ideal is always waiting to be incarnated, but unless we ourselves offer the ideal to the Lord, our consciousness, by assuming that we are already that which we seek to embody, it is incapable of birth. The Lord needs his daily lamb of faith to mold the world in harmony with our Dreams.
 
-*"By faith Abel offered unto God a more excellent sacrifice than Cain."*  
-([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
+<span style="color: #4ade80;">*"By faith Abel offered unto God a more excellent sacrifice than Cain."*</span> ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
 
 Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an Assumption, invisible states become visible facts.
 
@@ -49,14 +45,13 @@ Life on earth is a training ground for image making. If you use only the molds w
 
 The Prophet Malachi complains that man has robbed God:
 
-*"But ye say, Wherein have we robbed thee? In tithes and offerings."*  
-([Malachi 3:8](https://www.biblegateway.com/passage/?search=Malachi+3:8&version=KJV))
+<span style="color: #4ade80;">*"But ye say, Wherein have we robbed thee? In tithes and offerings."*</span> ([Malachi 3:8](https://www.biblegateway.com/passage/?search=Malachi+3:8&version=KJV))
 
-Facts based upon reason and the evidence of the senses which oppose the idea seeking expression, rob you of the belief in the reality of the invisible state. But *"faith is the evidence of things not seen"*, and through it *"Good calleth those things which be not as though they were..."* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
+Facts based upon reason and the evidence of the senses which oppose the idea seeking expression, rob you of the belief in the reality of the invisible state. But *"faith is the evidence of things not seen"*, and through it <span style="color: #4ade80;">*"Good calleth those things which be not as though they were..."*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
 Call the thing not seen; assume the feeling of your wish fulfilled.
 
-*". . .that there may be meat in mine house, and prove me now herewith, sayeth the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* ([Malachi 3:10](https://www.biblegateway.com/passage/?search=Malachi+3:10&version=KJV))
+<span style="color: #4ade80;">*". . .that there may be meat in mine house, and prove me now herewith, sayeth the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."*</span> ([Malachi 3:10](https://www.biblegateway.com/passage/?search=Malachi+3:10&version=KJV))
 
 This is the story of a couple living in Sacramento, California, who refused to accept the evidence of their senses, who refused to be robbed, in spite of a seeming loss. The wife had given her husband a very valuable wristwatch. The gift doubled its value because of the sentiment he attached to it. They had a little ritual with the watch. Every night as he removed the watch he gave it to her and she put it away in a special box in the bureau. Every morning she took the watch and gave it to him to put on.
 

@@ -1,5 +1,5 @@
 THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
-*"The Kingdom of Heaven is within you."* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
+<span style="color: #4ade80;">*"The Kingdom of Heaven is within you."*</span> ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
 *"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
 The world which is described from observation is a manifestation of the mental activity of the observer.  
@@ -8,7 +8,7 @@ But his ideal is not so easily incarnated. In that moment when he ceases to conf
 Imagination is not entirely untrammeled and free to move at will without any rules to constrain it. In fact, the contrary is true. Imagination travels according to habit  
 Imagination has choice, but it chooses according to habit. Awake or asleep, man's imagination is constrained to follow certain definite patterns. It is this benumbing influence of habit that man must change; if he does not, his Dreams will fade under the paralysis of custom.  
 Imagination, which is [Christ in man](/lectures/christ-in-man), is not subject to the necessity to produce only that which is perfect and good. It exercises its absolute freedom from necessity by endowing the outer physical self with free will to choose to follow good or evil, order or disorder.  
-*"Choose this day whom ye will serve."* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV))  
+<span style="color: #4ade80;">*"Choose this day whom ye will serve."*</span> ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV))  
 But after the choice is made and accepted so that it forms the individual's habitual consciousness, then imagination manifests its infinite [power and wisdom](/lectures/power-and-wisdom) by moulding the outer sensuous world of becoming in the image of the habitual inner speech and actions of the individual.  
 To realize his ideal, man must first change the pattern which his imagination has followed.  
 Habitual thought is indicative of character.  
@@ -33,10 +33,10 @@ It was all in the past. The thing I had labored so long to correct was done. I s
 I gathered all my gratitude up in a big ball of light and shot it straight to you and if you saw a flash of lightning Monday evening shortly after six your time, that was it.  
 "Now, instead of writing a polite letter because it is the correct thing to do, I can write giving sincere thanks for her frankness and thanking her for the loan of her house.  
 Thank you so much for your teaching, which has made my beloved imagination truly my Saviour."  
-And now, if any man shall say unto her *"Lo, here is Christ, or there"* ([Matthew 24:23](https://www.biblegateway.com/passage/?search=Matthew+24:23&version=KJV)), she will believe it not, for she knows that the Kingdom of God is within her and that she herself must assume full responsibility for the incarnation of her ideal and that nothing but death and resurrection will bring her to it.  
+And now, if any man shall say unto her <span style="color: #4ade80;">*"Lo, here is Christ, or there"*</span> ([Matthew 24:23](https://www.biblegateway.com/passage/?search=Matthew+24:23&version=KJV)), she will believe it not, for she knows that the Kingdom of God is within her and that she herself must assume full responsibility for the incarnation of her ideal and that nothing but death and resurrection will bring her to it.  
 She has found her Saviour, her beloved Imagination, forever expanding in the bosom of God.  
 There is only one reality, and that is Christ – Human Imagination, the inheritance and final achievement of the whole of Humanity,  
-That we... *"speaking the truth in love, may grow up into Him in all things, which is the head, even Christ."* ([Ephesians 4:14,15](https://www.biblegateway.com/passage/?search=Ephesians+4:14,15&version=KJV))
+That we... <span style="color: #4ade80;">*"speaking the truth in love, may grow up into Him in all things, which is the head, even Christ."*</span> ([Ephesians 4:14,15](https://www.biblegateway.com/passage/?search=Ephesians+4:14,15&version=KJV))
 
 
 

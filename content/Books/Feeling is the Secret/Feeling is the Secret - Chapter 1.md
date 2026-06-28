@@ -74,7 +74,7 @@ It is easier to ascribe your feeling to events in the world than to admit that t
 
 *"As within, so without"* (*"As above, so below; as below, so above; as within, so without; as without, so within"*, *"Correspondence"*, the second of The Seven Principles of Hermes Trismegistus).
 
-*"A man can receive nothing unless it is given him from heaven"* ([John 3:27](https://www.biblegateway.com/passage/?search=John+3:27&version=KJV)) and *"The kingdom of heaven is within you"* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV)). Nothing comes from without; all things come from within – from the subconscious.
+<span style="color: #4ade80;">*"A man can receive nothing unless it is given him from heaven"*</span> ([John 3:27](https://www.biblegateway.com/passage/?search=John+3:27&version=KJV)) and <span style="color: #4ade80;">*"The kingdom of heaven is within you"*</span> ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV)). Nothing comes from without; all things come from within – from the subconscious.
 
 It is impossible for you to see other than the contents of your consciousness. Your world in its every detail is your consciousness objectified. Objective states bear witness of subconscious impressions. A change of impression results in a change of expression.
 
