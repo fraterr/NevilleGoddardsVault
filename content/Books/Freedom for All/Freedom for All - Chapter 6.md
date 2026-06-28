@@ -28,7 +28,7 @@ Your consciousness is the one and only reality which animates and makes real tha
 
 The dipping of the live bird into the blood of the bird that was killed is similar to the blessing of Jacob by his blind father Isaac. As you recall, blind Isaac could not see his objective world, his son Esau. You, too, are blind to your problem – the first bird – for you have removed your attention from it and therefore you do not see it. Your attention (blood) is now placed upon the second bird (subjective state), and you feel and sense the reality of it.
 
-Seven times you are told to sprinkle the one to be cleansed. This means you must dwell within the new conception of yourself until you mentally enter the seventh day (the [Sabbath](/Sabbath)); until the mind is stilled or fixed in the belief that you are actually expressing or possessing that which you desire to be or to possess. At the seventh sprinkle you are instructed to loose the living bird and pronounce the man clean.
+Seven times you are told to sprinkle the one to be cleansed. This means you must dwell within the new conception of yourself until you mentally enter the seventh day (the Sabbath); until the mind is stilled or fixed in the belief that you are actually expressing or possessing that which you desire to be or to possess. At the seventh sprinkle you are instructed to loose the living bird and pronounce the man clean.
 
 As you fully impress upon yourself the fact that you are that which you desire to be, you have symbolically sprinkled yourself seven times; then you are as free as the bird that is loosed. And like the bird in flight which must in a little while return to the earth, so must your subjective impressions or claim in a little while embody itself in your world.
 

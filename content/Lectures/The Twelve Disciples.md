@@ -16,7 +16,7 @@ When Simon by his works proves himself to be a true and faithful disciple then h
 
 It is this Simon Peter who discovers the I AM to be Christ, and for his discovery is given the keys to heaven, and is made the foundation stone upon which the Temple of God rests. Buildings must have firm foundations and only the disciplined hearing can, on learning that the I AM is Christ, remain firm and unmoved in the knowledge that I AM Christ and beside ME there is no savior.
 
-The second quality to be called to discipleship is Andrew or courage. As the first quality, faith in oneself, is developed it automatically calls into being its brother, courage. Faith in oneself, which asks no man's help but quietly and alone appropriates the consciousness of the quality desired and in spite of reason or the evidence of his senses to the contrary continues faithful patiently waiting in the knowledge that his unseen claim if sustained must be realized such faith develops a courage and strength of character that are beyond the wildest [Dreams](/Dreams) of the undisciplined man whose faith is in things seen.
+The second quality to be called to discipleship is Andrew or courage. As the first quality, faith in oneself, is developed it automatically calls into being its brother, courage. Faith in oneself, which asks no man's help but quietly and alone appropriates the consciousness of the quality desired and in spite of reason or the evidence of his senses to the contrary continues faithful patiently waiting in the knowledge that his unseen claim if sustained must be realized such faith develops a courage and strength of character that are beyond the wildest Dreams of the undisciplined man whose faith is in things seen.
 
 The faith of the undisciplined man cannot really be called faith. For if the armies, medicines or wisdom of man in which his faith is placed be taken from him, his faith and courage go with it. But from the disciplined one the whole world could be taken and yet he would remain faithful in the knowledge that the state of consciousness in which he abides must in due season embody itself. This courage is Peter's brother Andrew, the disciple, who knows what it is to dare, to do and to be silent.
 
@@ -32,7 +32,7 @@ The fifth quality called to discipleship is Philip. This one asked to be shown t
 
 This aspect of the mind when disciplined persists until ideas, ambitions and desires become embodied realities. This is the quality which states *"Yet in my flesh shall I see God."* It knows how to make the word flesh, how to give form to the formless.
 
-The sixth disciple is called Bartholomew. This quality is the imaginative faculty, which quality of the mind when once awake distinguishes one from the masses. An awakened imagination places the one so awakened head and shoulders above the average man, giving him the appearance of a beacon light in a world of darkness. No quality so separates man from man as does the disciplined imagination. This I is the separation of the wheat from the chaff. Those ~ who have given most to society are our artists, scientists, inventors and others with vivid imaginations.
+The sixth disciple is called Bartholomew. This quality is the imaginative faculty, which quality of the mind when once awake distinguishes one from the masses. An awakened imagination) places the one so awakened head and shoulders above the average man, giving him the appearance of a beacon light in a world of darkness. No quality so separates man from man as does the disciplined imagination. This I is the separation of the wheat from the chaff. Those ~ who have given most to society are our artists, scientists, inventors and others with vivid imaginations.
 
 Should a survey be made to determine the reason why so many seemingly educated men and women fail in their after-college years or should it be made to determine the reason for the different earning powers of the masses, there would be no doubt but that imagination played the important part. Such a survey would show that it is imagination which makes one a leader while the lack of it makes one a follower.
 
@@ -87,7 +87,7 @@ These are the twelve qualities which were given to man in the foundation of the 
 
 ### Bartholomew (Imagination)
 - Bartholomew represents the imaginative faculty.
-- An awakened imagination separates an individual from the masses.
+- An awakened imagination) separates an individual from the masses.
 - Imagination is essential for leadership and creative expression.
 
 ### Thomas (Denial)

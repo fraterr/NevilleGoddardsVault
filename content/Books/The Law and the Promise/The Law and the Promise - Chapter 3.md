@@ -6,13 +6,13 @@ The perfectly stable or static state is always unattainable. The end attained ob
 
 Today's events are bound to disturb yesterday's established order. The creatively active imagination invariably unsettles a pre-existing peace of mind.
 
-The question may arise as to how, by representing others to ourselves as better than they really were, or mentally rewriting a letter to make it conform to our wish, or by revising the scene of an accident, the interview with the employer, and so on — could change what seems to be the unalterable facts of the past, but remember my claims for imagining: Imagining Creates Reality.
+The question may arise as to how, by representing others to ourselves as better than they really were, or mentally rewriting a letter to make it conform to our wish, or by revising the scene of an accident, the interview with the employer, and so on — could change what seems to be the unalterable facts of the past, but remember my claims for imagining: [Imagining Creates](/lectures/imagining-creates) Reality.
 
 What it makes, it can unmake. It is not only conservative, building a life from images supplied by memory — it is also creatively transformative, altering a theme already in being.
 
-The parable of the unjust steward (Luke 16:1-8) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this [Revision](/Revision) proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
+The parable of the unjust steward (Luke 16:1-8) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this Revision proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
 
-Because imagining creates reality, we can carry [Revision](/Revision) to the extreme and revise a scene that would be otherwise unforgivable.
+Because imagining creates reality, we can carry Revision to the extreme and revise a scene that would be otherwise unforgivable.
 
 We learn to distinguish between man — who is all imagination — and those states into which he may enter.
 
@@ -28,13 +28,13 @@ Imagine better than the best you know.
 
 To revise the past is to re-construct it with new content. Man should daily relive the day as he wished he had lived it, revising the scenes to make them conform to his ideals. For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in imagination, read the revised letter over and over again and this will arouse the feeling of naturalness; and imaginal acts become facts as soon as we feel natural in the act.
 
-This is the essence of [Revision](/Revision) and [Revision](/Revision) results in repeal.
+This is the essence of Revision and Revision results in repeal.
 
 This is exactly what F.B. did:
 
 "Late in July I wrote to a real estate agent of my desire to sell a piece of land which had been a financial burden to me. His negative reply listed all the reasons why sales were at a standstill in that area, and he forecast a bleak period of waiting until after the first of the year.
 
-"I received his letter on a Tuesday, and — in my imagination — I rewrote it with words indicating that the agent was eager to take my listing. I read this revised letter over and over, and I extended my imaginal drama using your theme of the Four Mighty Ones of our Imagination — from your book 'Seedtime and Harvest' — the Producer, the Author, the Director and the Actor.
+"I received his letter on a Tuesday, and — in my imagination — I rewrote it with words indicating that the agent was eager to take my listing. I read this revised letter over and over, and I extended my imaginal drama using your theme of the [Four Mighty Ones](/lectures/four-mighty-ones) of our Imagination — from your book '[Seedtime and Harvest](/books/seedtime-and-harvest/seedtime-and-harvest)' — the Producer, the Author, the Director and the Actor.
 
 "In my imaginal scene as Producer, I suggested the theme, 'The lot is sold for a profit. As the Author, I wrote this simple scene which, to me, implied fulfillment: Standing in the real estate office, I extended my hand to the agent and said, 'Thank you, sir', and he replied, 'It was a pleasure doing business with you'. As Director, I rehearsed myself as Actor until that scene was vividly real and I felt the relief which would be mine if the burden were really lifted.
 
@@ -58,11 +58,11 @@ Life is a romantic adventure. To live creatively, imagining novel solutions to e
 
 "After your last lecture, I spoke to you of this situation. Although I had plenty of other 'dates' I could not forget this one man. Your lecture was based on revising our day; and after speaking to you, I determined to revise my day, every day. Before going to sleep that night, I felt I was in a different bed, in my own home, as a married woman — and not as a single working girl, sharing an apartment with three other girls. I twisted an imaginary wedding band on my imaginary left hand, saying over and over to myself, 'This is wonderful! I really am Mrs. J.E.!' and I fell asleep in what was — a moment before — a waking dream.
 
-"I repeated this imaginary scene for one month, night after night. The first week in October he 'found' me. On our second date, I knew my [Dreams](/Dreams) were rightly placed. Your teaching tells us to live in the end of our desire until that desire becomes 'fact' so although I did not know how he felt toward me, I continued, night after night, living in the feeling of my dream realized.
+"I repeated this imaginary scene for one month, night after night. The first week in October he 'found' me. On our second date, I knew my Dreams were rightly placed. Your teaching tells us to live in the end of our desire until that desire becomes 'fact' so although I did not know how he felt toward me, I continued, night after night, living in the feeling of my dream realized.
 
 *"The results? In November he proposed. In January we announced our engagement; and the following May we were married. The loveliest part of it all, however, is that I am happier than I ever dreamed possible; and I know in my heart, he is too."* ...Mrs. J.E.
 
-By using her imagination radically, instead of conservatively — by building her world out of pure [Dreams](/Dreams) of fancy —, rather than using images supplied by memory, she brought about the fulfillment of her dream.
+By using her imagination radically, instead of conservatively — by building her world out of pure Dreams of fancy —, rather than using images supplied by memory, she brought about the fulfillment of her dream.
 
 Common sense would have used images supplied by her memory, and thereby perpetuated the fact of lack in her life.
 
@@ -70,7 +70,7 @@ Imagination created what she desired out of a dream of fancy. Everyone must live
 
 *"...Lovers and madmen have such seething brains, Such shaping fantasies, that apprehend more than cool reason over comprehends."* (William Shakespeare, *"A Midsummer Night's Dream"*)
 
-If our time of [Revision](/Revision) be well spent, we need not worry about results — our fondest hopes will be realized.
+If our time of Revision be well spent, we need not worry about results — our fondest hopes will be realized.
 
 *"Art thou real, Earth? Am I? In whose dream do we exist?..."* (approx., Frank Kendon, *"The Time Piece"*)
 
@@ -80,7 +80,7 @@ In his letter, Mr. R.S. questions this subject of influence:
 
 "During your current series of lectures, trouble developed with collections on one of my Trust Deeds. The security, a house and lot, was neglected and run down. The owners were apparently spending their money in bars while their two little girls, aged nine and eleven, were noticeably uncared for. However, forgetting appearances, I began to revise the situation. In my imagination I drove my wife past the property and said to her, 'Isn't the yard beautiful? It's so neat and well cared for. Those people really show their love for their home. This is one Trust Deed we will never have to worry about'. I would 'see' the house and lot as I wanted to see it — a place so lovely, it gave me a warm glow of pleasure. Every time the thought of this property came to me, I repeated my imaginal scene.
 
-"After I had been practicing this [Revision](/Revision) for some time, the woman who lived in the house had an automobile accident; while she was in the hospital her husband disappeared. The children were cared for by neighbors; and I was tempted to visit the mother in the hospital to reassure her of assistance, if necessary. But how could I, when my imaginary scene implied that she and her family were happy, successful and obviously contented? So I did nothing but my daily [Revision](/Revision). A short while after leaving the hospital, the woman and her two daughters disappeared also. Payments were sent in on the property and a few months later she reappeared with a wedding certificate and a new husband. At this writing, all payments are right up to date. The two little girls are obviously happy and well cared for, and a room has been added to the property by the owners giving our Trust Deed additional security.
+"After I had been practicing this Revision for some time, the woman who lived in the house had an automobile accident; while she was in the hospital her husband disappeared. The children were cared for by neighbors; and I was tempted to visit the mother in the hospital to reassure her of assistance, if necessary. But how could I, when my imaginary scene implied that she and her family were happy, successful and obviously contented? So I did nothing but my daily Revision. A short while after leaving the hospital, the woman and her two daughters disappeared also. Payments were sent in on the property and a few months later she reappeared with a wedding certificate and a new husband. At this writing, all payments are right up to date. The two little girls are obviously happy and well cared for, and a room has been added to the property by the owners giving our Trust Deed additional security.
 
 *"It was mighty nice to solve my problem without threats, unkind words, eviction, or worry about the little girls; but was there something in my imagining that sent that woman to the hospital?"* ...R.S.
 
@@ -90,15 +90,15 @@ It is marvelously resourceful in adapting and adjusting means to realize itself.
 
 Once we think in terms of influence rather than of clarity of the end desired, the effort of imagination becomes an effort of will and the great art of imagining is perverted into tyranny.
 
-The buried past usually lies deeper than our surface mind can plumb. But fortunately, for this lady, she remembered and proved that the *"made"* past can also be *"unmade"* through [Revision](/Revision).
+The buried past usually lies deeper than our surface mind can plumb. But fortunately, for this lady, she remembered and proved that the *"made"* past can also be *"unmade"* through Revision.
 
-"For thirty-nine years I had suffered from a weak back. The pain would increase and decrease but would never leave completely. The condition had progressed to the point where I used medical treatment almost constantly; the doctor would put the hip right for the moment but the pain simply would not go away. One night I heard you speak of [Revision](/Revision) and wondered to myself if a condition of almost forty years could be revised. I had remembered that at the age of three or four years I had fallen backward from a very high swing and had been quite ill at that time because of a serious hip injury. From that time on I had never been completely free from pain and had paid many a dollar to alleviate the condition, to no avail.
+"For thirty-nine years I had suffered from a weak back. The pain would increase and decrease but would never leave completely. The condition had progressed to the point where I used medical treatment almost constantly; the doctor would put the hip right for the moment but the pain simply would not go away. One night I heard you speak of Revision and wondered to myself if a condition of almost forty years could be revised. I had remembered that at the age of three or four years I had fallen backward from a very high swing and had been quite ill at that time because of a serious hip injury. From that time on I had never been completely free from pain and had paid many a dollar to alleviate the condition, to no avail.
 
 "This year, during the month of August, the pain had become more intense and one night I decided to test myself and attempt to revise that 'ancient' accident which had been the cause of so much distress in pain and costly medical fees most of my adult life. Many nights passed before I could 'feel' myself back to the age of childhood play. But I succeeded. One night I actually 'felt' myself on that swing feeling the rush of wind as the swing rose higher and higher. As the swing slowed down, I jumped forward landing solidly and easily on my feet. In the imaginal action I ran to my mother and insisted that she come watch what I could do. I did it again, jumping down from the swing and landing safely on my two feet. I repeated this imaginal act over and over until I fell asleep in the doing of it.
 
 *"Within two days the pain in my back and hip began to recede and within two months pain no longer existed for me. A condition that had plagued me for more than thirty-nine years, that had cost a small fortune in attempted cure — was no more."* …L.H.
 
-It is to the pruning shears of [Revision](/Revision) that we owe our prime fruit.
+It is to [the pruning shears of Revision](/lectures/the-pruning-shears-of-revision) that we owe our prime fruit.
 
 Man and his past are one continuous structure. This structure contains all of the past which has been conserved and still operates below the threshold of his senses to influence the present and the future of his life.
 
@@ -106,7 +106,7 @@ The whole is carrying all of its contents with it; any alteration of content wil
 
 The first act of correction or cure is always *"Revise."* If the past can be recreated into the present, so can the revised past. And thus the Revised Past appears within the very heart of her present life; not Fate but a revised past brought her good fortune.
 
-Make results and accomplishment the crucial test of true imagination and your confidence in the power of imagination to create reality will grow gradually from your experiments with [Revision](/Revision) confronted by experience. Only by this process of experiment can you realize the potential power of your awakened and controlled imagination.
+Make results and accomplishment the crucial test of true imagination and your confidence in the power of imagination to create reality will grow gradually from your experiments with Revision confronted by experience. Only by this process of experiment can you realize the potential power of your awakened and controlled imagination.
 
 *"How much do you owe my master?"* He said, *"A hundred measures of oil"*. And he said to him, *"Take your bill, and sit down quickly and write fifty!"* (Luke 16:5,6). This parable of the unjust steward urges us to mentally falsify the facts of life, to alter a theme already in being. By means of such imaginative falsehoods, a man *"acquires friends"* (Luke 16:9). As each day falls, mentally revise the facts of life and make them conform to events well worthy of recall; tomorrow will take up the altered pattern and go forward until at length it is realized on the heights of attainment.
 
@@ -140,7 +140,7 @@ The parable teaches falsifying facts in imagination frees us. Though literally f
 
 ### Persist Until Natural
 
-Keep replaying the revised scene until it feels real. Then the altered pattern emerges in physical form. Daily relive each day as you wish it was. [Revision](/Revision) results in repeal.
+Keep replaying the revised scene until it feels real. Then the altered pattern emerges in physical form. Daily relive each day as you wish it was. Revision results in repeal.
 
 ### From Reaction To Creation
 
@@ -152,15 +152,15 @@ Man's inner conflicts express themselves in society. Rather than restrain desire
 
 ### Influence Flows From Clarity
 
-Keep [Revision](/Revision) focused on the clear end goal, not influencing others. Imagination automatically adjusts events and people to match the [Revision](/Revision).
+Keep Revision focused on the clear end goal, not influencing others. Imagination automatically adjusts events and people to match the Revision.
 
 ### Unmake The Made Past
 
-Even the buried past can be remade by [Revision](/Revision). Heal lifelong pain by revising its origin in imagination. Man and past are one continuous whole.
+Even the buried past can be remade by Revision. Heal lifelong pain by revising its origin in imagination. Man and past are one continuous whole.
 
 ### Test Imagining In Life
 
-Experiment with revising scenes and watch imagined ends emerge. Daily [Revision](/Revision) builds an enlarging future. Break recurrence by awaking imagination.nation.
+Experiment with revising scenes and watch imagined ends emerge. Daily Revision builds an enlarging future. Break recurrence by awaking imagination.nation.
 
 
 #Revision #Dreams

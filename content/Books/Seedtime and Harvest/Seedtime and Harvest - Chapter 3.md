@@ -21,12 +21,12 @@ The Lord, or consciousness, has no respect for such passive use of imagination -
 
 Let man disregard appearances and declare himself to be the man he wants to be. Let him imagine beauty where his senses reveal ashes, joy where they testify to mourning, riches where they bear witness to poverty. Only by such active, voluntary use of imagination can man be lifted up and Eden restored.
 
-The ideal is always waiting to be incarnated, but unless we ourselves offer the ideal to the Lord, our consciousness, by assuming that we are already that which we seek to embody, it is incapable of birth. The Lord needs his daily lamb of faith to mold the world in harmony with our [Dreams](/Dreams).
+The ideal is always waiting to be incarnated, but unless we ourselves offer the ideal to the Lord, our consciousness, by assuming that we are already that which we seek to embody, it is incapable of birth. The Lord needs his daily lamb of faith to mold the world in harmony with our Dreams.
 
 *"By faith Abel offered unto God a more excellent sacrifice than Cain."*  
 (Hebrews 11:4)
 
-Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an [Assumption](/Assumption), invisible states become visible facts.
+Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an Assumption, invisible states become visible facts.
 
 *"For what is faith unless it is to believe what you do not see?"*  
 (St. Augustine)
@@ -35,11 +35,11 @@ Just recently, I had the opportunity to observe the wonderful results of one who
 
 A young woman asked me to meet her sister and her three-year-old nephew. He was a fine, healthy lad with clear blue eyes and an exceptionally fine unblemished skin. Then, she told me her story.
 
-At birth, the boy was perfect in every way save for a large, ugly birthmark covering one side of his face. Their doctor advised them that nothing could be done for this type of scar. Visits to many specialists only confirmed his statement. Hearing the verdict, the aunt set herself the task of proving her faith - that an [Assumption](/Assumption), though denied by the evidence of the senses, if persisted in, will harden into fact.
+At birth, the boy was perfect in every way save for a large, ugly birthmark covering one side of his face. Their doctor advised them that nothing could be done for this type of scar. Visits to many specialists only confirmed his statement. Hearing the verdict, the aunt set herself the task of proving her faith - that an Assumption, though denied by the evidence of the senses, if persisted in, will harden into fact.
 
 Every time she thought of the baby, which was often, she saw, in her imagination, an eight month-old baby with a perfect face - without any trace of a scar. This was not easy, but she knew that in this case, that was the gift of Abel which pleased God. She persisted in her faith - she believed what was not there to be seen. The result was that she visited her sister on the child's eight-month birthday and found him to have a perfect, unblemished skin with no trace of a birth-mark ever having been present. "Luck! Coincidence! Shouts Cain. No. Abel knows that these are names given by those who have no faith, to the works of faith.
 
-*"We walk by faith, not by sight."* (II Corinthians 5:7)
+*"We walk by faith), not by sight."* (II Corinthians 5:7)
 
 When reason and the facts of life oppose the idea you desire to realize and you accept the evidence of your senses and the dictates of reason as the truth, you have brought the Lord – your consciousness - the gift of Cain. It is obvious that such offerings do not please Him.
 

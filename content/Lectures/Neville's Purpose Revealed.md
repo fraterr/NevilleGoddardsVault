@@ -10,13 +10,13 @@ All the generations that ever walked the face of this earth, all of their experi
 
 The gift is God Himself! Believe it, and the whole incredible story of the Gospel will become to you possible. And the day will come, you will experience the gift, and you will know how true it is. God’s purpose is to give Himself to you individually, as though there were no others in the world -- just you, for the gift is so complete, it is not you and God; it’s you as God. God became as you are, that you may be as He is. [Paraphrase of Blake’s statement in *"Jerusalem"*] So in the end, you will not see another as God. It is you as God! This is the story. 
 
-Now, in the 4th Chapter of Ecclesiastes, at the very end of the 4th Chapter, he said, *"I saw all the living that move about under the sun, as well as that second youth, who was to stand in his place; there was no end to all the people; he was above all of them. Yet those who will come later will take no joy in him. Isn’t that also vanity and the striving after wind?"* [Ecclesiastes 4:15,16J 
+Now, in the 4th Chapter of Ecclesiastes, at the very end of the 4th Chapter, he said, *"I saw all the living that move about under the sun, as well as that second youth, who was to stand in his place; there was no end to all the people; he was above all of them. Yet those who will come later will take no joy in him. Isn’t that also vanity and the striving after wind?"* Ecclesiastes 4:15,16J 
 
 This *"second one"* spoken of in Scripture is the Lord from Heaven. It begins in the very beginning of Genesis. The *"second one"* was Abel, the slaughtered, the murdered. As we move through, the *"second one"* was Isaac, -- not Ishmael, the first. We come on through, and it was Jacob, not Esau. A strange reversal of order takes place in all of these adumbrations in Scripture. They are all a foreshadowing of what God has planned for us. There is that *"second youth"* in us that has to be awakened, and that is God Himself! He is reproducing in us His own image, and that is called the *"second man"* or the *"Lord from Heaven."* 
 
 I will share with you, as I’ve done night after night, my own personal experience of Scripture. The story is the only true story in the world. God’s eternal purpose is taking place in time; but it is an eternal state. It’s something that is continuous. It is permanent, in contrast to this fragmented state in time where we seem to begin, and all things that begin here end. But there is something that does not begin. It is continuous. It is in man. It is buried in man, and that that cannot begin or end is God-in-man. 
 
-Paul asked the question: *"Do you not realize that Jesus Christ is in you?"* [II Corinthians 13:5] 
+Paul asked the question: *"Do you not realize that [Jesus Christ is in you?"* [II Corinthians 13:5] 
 
 Well, the answer to that, if you are honest with yourself, if you have not had the experience, -- you would say, *"No, I do not. I could believe it, and I will believe it; but I do not know it. For, to experience it would be to know it. Not to experience it and only to believe it would be hearsay, but I want to actually experience it, that I may know it."* 
 
@@ -24,7 +24,7 @@ Your purpose in this world is not what the world thinks it is. Therefore they sa
 
 The plan is definite in Scripture. He said, *"I have come into the world only to fulfill Scripture."* That’s my purpose. *"He who began a good work in me will bring it to completion at the unveiling in me of His plan, which is Christ Jesus"* [Philippians 1:6]. He will unveil Christ Jesus in me. Well, when he does, *"I am He."*
 
-I have been taught that He dwells in me, but I have also been taught that He came from without. When one experiences the story, he realizes He is not from without at all. He was always buried in me -- that Universal Christ, the Cosmic Christ. The whole of Him, riot a little piece of Him; but the whole is buried in the seeming part; and that individual, speaking of you now individually, will one day have the experience recorded in Scripture of Jesus Christ!
+I have been taught that He dwells in me, but I have also been taught that He came from without. When one experiences the story, he realizes He is not from without at all. He was always buried in me -- that Universal Christ, the Cosmic Christ. The whole of Him, riot a little piece of Him; but the whole is buried in the seeming part; and that individual, speaking of you now individually, will one day have the experience recorded in Scripture of [Jesus Christ](/lectures/jesus-christ)!
 
 He said, *"I am not of this world. I am from above. You are from below."* [John 8:23]
 
@@ -43,7 +43,7 @@ They, in the most incredulous voices, asked, *"How can Neville have a baby?"*
 
 He does not argue the point. He lifts the infant wrapped in swaddling clothes and brings it over and places it on the bed. He didn’t see because I am now Spirit. I cannot be seen by mortal eye. They saw it, and they came and saw the sign that was foretold by the angels. *"Go, and you shall find this as a sign, an infant wrapped in swaddling clothes"* [Luke 2:12], -- and that’s the sign that God Himself was born. *"For a Saviour is born this day to you."* [Luke 2:11] 
 
-The only *"saviour"* in Scripture is the Lord God Jehovah. *"I am the Lord God, your Saviour,"* you are told in the 43d and 45th Chapters of Isaiah, *"and beside me there is no saviour."* [Isaiah 43:11 and 45:21] So, the Saviour is being born. That’s exactly what is going to happen to you individually.
+The only *"saviour"* in Scripture is the Lord God Jehovah. *"[I am the Lord](/lectures/i-am-the-lord) God, your Saviour,"* you are told in the 43d and 45th Chapters of Isaiah, *"and beside me there is no saviour."* [Isaiah 43:11 and 45:21] So, the Saviour is being born. That’s exactly what is going to happen to you individually.
 
 I took the infant up, arid then I looked into its face, and I said, *"How is my sweetheart?"* Then it broke into the most glorious, heavenly smile. As told you, *"the name was called Isaac"* [Genesis 21:3], which simply means: *"He smiles."* The smile is a heavenly smile. While he is looking into my face and smiling, the whole thing dissolves.
 
@@ -114,11 +114,11 @@ So, everyone will be the Lord Jesus Christ, They all form *"one Body, one spirit
 
 When this thing happens to you, there are those in your circle of friends who will see you, and they can’t believe their own eyes, but they can’t deny what they saw. They will know you are the Lord. They will dine with you the next night, have a drink with you, tell you a joke; you tell them one, and still they can’t get it out of their heads that they saw you and you were the Lord. They know that you are the Lord, and yet you are the same friend they have always known. But they saw you as you really are after you have been born from above.
 
-So, man must be born from above or he cannot enter the Kingdom of Heaven. Everyone will be born from above, for that One to be born is already in man dreaming. The Dreamer-in-man is Jesus Christ. You are dreaming this world. Now dream it nobly. Dream noble [Dreams](/Dreams). All can come to pass.
+So, man must be born from above or he cannot enter the Kingdom of Heaven. Everyone will be born from above, for that One to be born is already in man dreaming. The Dreamer-in-man is Jesus Christ. You are dreaming this world. Now dream it nobly. Dream noble Dreams. All can come to pass.
 
-In your [Dreams](/Dreams) dare to assume that you are the man that you want to be. Assume that you are it, and persist in that [Assumption](/Assumption); and that [Assumption](/Assumption), in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the [Assumption](/Assumption) as though it were true.
+In your Dreams dare to assume that you are the man that you want to be. Assume that you are it, and persist in that Assumption; and that Assumption, in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the Assumption as though it were true.
 
-Night after night, sleep as though you are the man -- the woman -- that you would be or that you would like to be. And then, if tomorrow does not bring it to pass, it doesn’t matter. There are intervals of time between the [Assumption](/Assumption) and its fulfillment. It’s like generation. So, if you dare to assume it, give it time. And then some [Bridge of incidents](/Bridge-of-incidents) will be built for you without your conscious knowledge of it, and it will lead you across that bridge to the fulfillment of your [Assumption](/Assumption) in a way that you do not know.
+Night after night, sleep as though you are the man -- the woman -- that you would be or that you would like to be. And then, if tomorrow does not bring it to pass, it doesn’t matter. There are intervals of time between the Assumption and its fulfillment. It’s like generation. So, if you dare to assume it, give it time. And then some Bridge of incidents will be built for you without your conscious knowledge of it, and it will lead you across that bridge to the fulfillment of your Assumption in a way that you do not know.
 
 So, dare to assume a noble concept of yourself. Live in it as though it were true; and may I tell you? It will become true.
 
@@ -149,7 +149,7 @@ Hide not Thy face from. Me.”
 
 That’s the drama.
 
-Now in her letter she said, *"Recently I have been having these [Dreams](/Dreams) where I know I am dreaming. I am trying so hard to see what I am seeing, but I know I can open my eyes and see differently; but I am struggling to open the eyes and they won’t open."*
+Now in her letter she said, *"Recently I have been having these Dreams where I know I am dreaming. I am trying so hard to see what I am seeing, but I know I can open my eyes and see differently; but I am struggling to open the eyes and they won’t open."*
 
 They are actually on the verge of it, my Dear. You must open the in-current eye, because you are going to see inwards into the world of thought -- into Eternity -- that which is ever expanding in the bosom of God, -- what is it? The human imagination.
 
@@ -182,7 +182,7 @@ You may say in words, *"Yes, I believe you."*
 
 Then I may find you after that disbelieving by your behavior. And so, at the very end he asks him three times; and you will find the word that he used to be *"love."* There are different words. *"Eros"* is love on the lowest level, and man mistakes that for love. *"Aphrodite"*(?), that’s love -- something entirely different. So, man thinks of sex. All right, I am not denying sex. Sex is a very important thing in this world -- very important; but people will say, ‘I love you,” meaning sex. Others, an entirely different emotion permeates them.
 
-I stood in the presence of Infinite Love, and it’s Man; but there was no feeling of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, *"What is the greatest thing in the world?"* and I answered, *"Faith, hope and love; these three. The greatest of these is Love."* [I Corinthians 13:15] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, *"The two shall be one."* [Matthew 19:5]
+I stood in the presence of Infinite Love, and it’s Man; but there was no feeling of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, *"What is the greatest thing in the world?"* and I answered, *"[Faith, hope and love](/lectures/faith-hope-and-love); these three. The greatest of these is Love."* [I Corinthians 13:15] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, *"The two shall be one."* [Matthew 19:5]
 
 But on this level, sex plays a very important part; but the day will come, the body is going to be split in two from top to bottom, and that energy that went into generation will be reversed and move into regeneration. So, he asked the question at the very end of the drama.
 
@@ -207,7 +207,7 @@ Well, the only way you can love me is to obey my word. *"Those who love me,"* he
 
 “What must I do to be doing the work of God? [John 6:28]
 
-*"Believe in him whom He has sent."* [John 6:29] 
+*"[Believe in him](/lectures/believe-in-him) whom He has sent."* [John 6:29] 
 
 Well, the only one you can believe in -- what? A little man? No; believe in the teaching, for he tells you, *"They aren’t my words, but the words of Him who sent me."* 
 
@@ -282,12 +282,12 @@ He said, *"He will be a very good, successful doctor. But,"* he said, *"don’t 
 ### Imagination and faith
 - Man is all imagination and God exists within man
 - What is imagined persistently becomes reality
-- Dare to assume a noble concept of oneself and persist in that [Assumption](/Assumption)
+- Dare to assume a noble concept of oneself and persist in that Assumption
 
 ### Questions and answers
 - Peter's denial represents not fully living by the teachings
 - The prophet Jordan predicted Neville's purpose in life
-- Neville is the fourth one who belongs to God and has a specific purpose to fulfillrsist in that [Assumption](/Assumption)
+- Neville is the fourth one who belongs to God and has a specific purpose to fulfillrsist in that Assumption
 
 ### Questions and answers
 - Peter's denial represents not fully living by the teachings

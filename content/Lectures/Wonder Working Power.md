@@ -70,7 +70,7 @@ Give lovely gifts to all you meet, for everyone is yourself pushed out. Take a n
 
 Read the 27th chapter of Genesis carefully, remembering that all of the characters spoken of there are personifications of states within you. As Isaac, you always have two sons: your present objective world and your present subjective world. The story tells you how to clothe yourself with the subjective desire, through feeling, until it supplants its objective brother.
 
-That is how you move from one state to another until you reach the state called Jesus. Then the story recorded in the gospels will fulfill itself in you, casting you in the central role. Only this experience can save you from this world of Caesar, for you are redeemed, from within yourself, by recreating the story of Jesus Christ.
+That is how you move from one state to another until you reach the state called Jesus. Then the story recorded in the gospels will fulfill itself in you, casting you in the central role. Only this experience can save you from this world of Caesar, for you are redeemed, from within yourself, by recreating the story of [Jesus Christ](/lectures/jesus-christ).
 
 Now let us go into the silence.
 
@@ -90,7 +90,7 @@ Now let us go into the silence.
 - By using the power of imagination, one can experience anything without physically being there.
 
 ### Reality and Feeling
-- Feeling is the secret to making the wonder working power operate.
+- [Feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) to making the wonder working power operate.
 - Reality is controlled by feeling, as demonstrated in the story of Isaac and his sons in Genesis.
 
 ### Subjective State and Objective Fulfillment

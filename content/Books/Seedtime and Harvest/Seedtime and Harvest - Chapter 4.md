@@ -2,7 +2,7 @@
 
 In a dream, in a vision of the night, when deep sleep fell upon Jacob, his inner eye was opened and he beheld the world as a series of ascending and descending levels of awareness. It was a revelation of the deepest insight into the mysteries of the world. Jacob saw a vertical scale of ascending and descending values, or states of consciousness. This gave meaning to everything in the outer world, for without such a scale of values there would be no meaning to life.
 
-At every moment of time, man stands upon the eternal scale of meaning. There is no object or event that has ever taken place or is taking place now that is without significance. The significance of an object or event for the individual is a direct index to the level of his consciousness.
+At every moment of time, man stands upon the eternal scale of meaning. There is no object or event that has ever taken place or is taking place now that is without significance. The significance of an object or event for the individual is a direct [index](/index) to the level of his consciousness.
 
 You are holding this book, for example. On one level of consciousness, it is an object in space.
 
@@ -36,7 +36,7 @@ Man is so engrossed in the visible side of the drama of life - the side of *"wha
 
 His descriptions of *"what"* has happened and *"how"* it happened are true in terms of his corresponding level of thought, but when he asks *"why"* it happened, all physical explanations break down and he is forced to seek the *"why"*, or meaning of it, on the invisible and higher level. The mechanical analysis of events deals only with external relationships of things. Such a course will never reach the level which holds the secret of why the events happen. Man must recognize that the lower and visible sides flow from the invisible and higher level of meaning.
 
-Intuition is needed to lift us up to the level of meaning - to the level of why things happen. Let us follow the advice of the Hebrew prophet of old and *"lift up our eyes unto the hills"* within ourselves, and observe what is taking place there. See what ideas we have accepted as true, what states we have consented to, what [Dreams](/Dreams), what desires - and, above all, what intentions. It is from these hills that all things come to reveal our stature - our height - on the vertical scale of meaning. If we lift our eyes to *"the Thee in Me who works behind the Veil"*, we will see the meaning of the phenomena of life.
+Intuition is needed to lift us up to the level of meaning - to the level of why things happen. Let us follow the advice of the Hebrew prophet of old and *"lift up our eyes unto the hills"* within ourselves, and observe what is taking place there. See what ideas we have accepted as true, what states we have consented to, what Dreams, what desires - and, above all, what intentions. It is from these hills that all things come to reveal our stature - our height - on the vertical scale of meaning. If we lift our eyes to *"the Thee in Me who works behind the Veil"*, we will see the meaning of the phenomena of life.
 
 Events appear on the screen of space to express the different levels of consciousness of man. A change in the level of his consciousness automatically results in a change of the phenomena of his life. To attempt to change conditions before he changes the level of consciousness from whence they came, is to struggle in vain. Man redeems the world as he ascends the vertical scale of meaning.
 

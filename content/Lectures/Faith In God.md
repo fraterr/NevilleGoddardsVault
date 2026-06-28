@@ -1,8 +1,8 @@
 In the 11th chapter of the Book of Hebrews, faith is described as: "The assurance of things hoped for, the evidence of things not seen.” By faith we understand that the world was created by the word of God, so things seen are made out of that which does not appear.   
   
-In the Hebraic world, the rabbi is the father of his congregation. Paul called his followers his little children, saying: *"Although you have countless guides in Christ, you do not have many fathers. I became your father in Jesus Christ through the gospel. I urge you then to be imitators of me"*   
+In the Hebraic world, the rabbi is the father of his congregation. Paul called his followers his little children, saying: *"Although you have countless guides in Christ, you do not have many fathers. I became your father in [Jesus Christ](/lectures/jesus-christ) through the gospel. I urge you then to be imitators of me"*   
   
-Defining Christ as the power and wisdom of God, Paul tells us we have many guides. In fact, there are as many guides to your success as there are people in the world. Ask someone how to get a job and he will say you must know the right people. Another will tell you that you must have an education, and still another that you must join the right club, or live on the right side of the street. You will be given as many directives towards your objective as there are people you ask.   
+Defining Christ as the [power and wisdom](/lectures/power-and-wisdom) of God, Paul tells us we have many guides. In fact, there are as many guides to your success as there are people in the world. Ask someone how to get a job and he will say you must know the right people. Another will tell you that you must have an education, and still another that you must join the right club, or live on the right side of the street. You will be given as many directives towards your objective as there are people you ask.   
   
 Although our guides in the operation of this law are countless, as we apply it our creative power will become personalized and take on form, as it did in Paul. And when that happens there is no one to turn to but self. That is why Paul urges everyone to test himself, otherwise he will not realize that Jesus Christ is in him and fail to meet the test.   
   
@@ -16,7 +16,7 @@ Have faith in Jesus Christ, not as some being on the outside, but as your own wo
   
 Although it does not yet appear what we shall be, we know that when He appears we will know him, for “we shall be like him." As your father in Christ, through the gospel I teach I urge you to be imitators of me until Christ is formed in you. Then the true meaning of the fatherhood of God will be revealed, and you will know yourself to be the Father. Everyone and every living thing in the world is a part of being played by the one and only Father, who is God. The whole is contained in the feeling Father, and the world is pushed out from every Father.   
   
-Omnipresent, God is alive in you now, so I ask you to test Him. Would you like a better job? Greater income? Greater recognition? What would you do right now if it were true? Now test God by thinking of a friend. Hear him congratulate you on your good fortune. See his face light up with joy and feel his presence. Do that, and you have performed a magical act, for God has acted and all things are possible to God.   
+Omnipresent, God is alive in you now, so I ask you to test Him. Would you like a better job? Greater income? Greater recognition? What would you do right now if it were true? Now test God by thinking of a friend. Hear him congratulate you on your good fortune. See his face light up with joy and feel his presence. Do that, and you have performed a magical act, for God has acted and [all things are possible](/lectures/all-things-are-possible) to God.   
   
 You do not have to devise the means necessary to make your imaginal act come to pass. He who thought of the friend and saw the whole thing will build a bridge of incident across which you will move to the fulfillment of that which has been done. That is Christ!   
   
@@ -40,7 +40,7 @@ People have personified this power and hung little icons on the wall. They cross
   
 You can catch God in the act of creating by holding a dozen roses in your arms, smelling them, and feeling their soft, velvety petals. As you fill a lovely crystal vase with water and place the roses in it, observe the stems though the crystal. Look closely and you will even see the water level in the vase. As you do this, God is streaming into your surface mind least disguised in the form of creative fancy.   
   
-Imagination is defined as spiritual sensation. Come, let us now sense spiritual things that are not physically present. Right now I want you to feel a tennis ball, then a baseball, a volleyball, and a golf ball. They all feel different, do they not? If you can discriminate between these different balls, are they not real? If you can touch a tennis ball and spiritually distinguish it from a baseball, it must exist, even though it is unseen by mortal eye. So you see: you can behold a thing that is not seen by the mortal eye as though it were, and if you do your faith in Jesus Christ will cause the unseen to become seen.   
+Imagination is defined as [spiritual sensation](/lectures/spiritual-sensation). Come, let us now sense spiritual things that are not physically present. Right now I want you to feel a tennis ball, then a baseball, a volleyball, and a golf ball. They all feel different, do they not? If you can discriminate between these different balls, are they not real? If you can touch a tennis ball and spiritually distinguish it from a baseball, it must exist, even though it is unseen by mortal eye. So you see: you can behold a thing that is not seen by the mortal eye as though it were, and if you do your faith in Jesus Christ will cause the unseen to become seen.   
   
 Jesus Christ is contemporary, not some being who lived two thousand years ago. God Himself came and comes into human history in the person of Jesus Christ. As your Human Imagination, He is your very being. If all things are made by Him and you can trace the origin of an event to its imaginal act, you have found Him.   
   
@@ -87,7 +87,7 @@ Now let us go into the silence.
 
 ### Testing God's creative power
 - Test God by using your imagination to claim what you desire.
-- Let your imagination create the [Bridge of incidents](/Bridge-of-incidents) needed to fulfill your desires.
+- Let your imagination create the Bridge of incidents needed to fulfill your desires.
 
 ### God's creative power in the depth of our souls
 - God works in the depths of our souls through our imagination.

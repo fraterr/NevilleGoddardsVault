@@ -9,9 +9,9 @@ Satan, Blake writes, is a *"Reactor"*. He never acts; he only reacts. And if our
 Man is only reacting in his natural or Satan state; he never acts or creates, he only re-acts or re-creates. One real creative moment, one real feeling of the wish fulfilled, is worth more than the whole natural life of re-action. In such a moment, God's work is done.
 
 Once more, we may say with Blake,
-*"God only Acts and Is, in existing beings or Men."* (The Marriage of Heaven and Hell", 1793)
+*"[God only Acts](/lectures/god-only-acts) and Is, in existing beings or Men."* (The Marriage of Heaven and Hell", 1793)
 
-There is an imaginal past and an imaginal future. If, by reacting, the past is re-created into the present — so — by acting out our [Dreams](/Dreams) of fancy can the future be brought into the present.
+There is an imaginal past and an imaginal future. If, by reacting, the past is re-created into the present — so — by acting out our Dreams of fancy can the future be brought into the present.
 
 *"I feel now the future in the instant."* (William Shakespeare, Macbeth")
 
@@ -41,7 +41,7 @@ The fancy satisfied my feelings regarding the 'real' incident, and I immediately
 
 *"There is a Moment in each Day that Satan cannot find. Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."*
 
-"From the first time I read your 'Search', I have longed to experience a vision. Since you have told us of the 'Promise', this desire has been intensified. I want to tell you of my vision which was a glorious answer to my [Prayer](/Prayer); but I am sure I would not have had this experience were it not for something that occurred two weeks ago.
+"From the first time I read your 'Search', I have longed to experience a vision. Since you have told us of the 'Promise', this desire has been intensified. I want to tell you of my vision which was a glorious answer to my Prayer; but I am sure I would not have had this experience were it not for something that occurred two weeks ago.
 
 "It was necessary for me to park my car some distance from the University Building where I was scheduled to conduct my class. As I left my car, I was conscious of the stillness about me. The street was completely deserted; no one was in sight.
 
@@ -55,7 +55,7 @@ The fancy satisfied my feelings regarding the 'real' incident, and I immediately
 
 *"I was aglow and excited and thought 'this must be the Christos'; but something within me, without sound, said, 'No, this is you'. I feel I will never be the same again and some day I may experience the 'Promise'."* ...G.B.
 
-Our [Dreams](/Dreams) will all be realized from the time that we know that Imagining Creates Reality — and Act.
+Our Dreams will all be realized from the time that we know that [Imagining Creates](/lectures/imagining-creates) Reality — and Act.
 
 But Imagination seeks from us something much deeper and more fundamental than creating things: nothing less indeed than the recognition of its own oneness, with God; that what it does is, in reality, God Himself doing it in and through Man, who is All Imagination.
 

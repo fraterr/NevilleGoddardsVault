@@ -8,33 +8,33 @@ We have only to concentrate on the state desired in order to mentally see it, bu
 
 When, through concentrated attention, our desire appears to possess the distinctness and feeling of reality, we have given it the right to become a visible concrete fact.
 
-If it is difficult to control the direction of your attention while in a [State akin to sleep](/State-akin-to-sleep), you may find gazing fixedly into an object very helpful. Do not look at its surface but into and beyond any plain object such as a wall, a carpet, or any other object which possesses depth.
+If it is difficult to control the direction of your attention while in a State akin to sleep, you may find gazing fixedly into an object very helpful. Do not look at its surface but into and beyond any plain object such as a wall, a carpet, or any other object which possesses depth.
 
 Arrange it to return as little reflection as possible. Imagine then that in this depth you are seeing and hearing what you want to see and hear until your attention is exclusively occupied by the imagined state.
 
-At the end of your [Meditation](/Lectures/Radio Lectures/Meditation), when you awake from your ―controlled waking dream,‖ you feel as though you had returned from a great distance.
+At the end of your Meditation, when you awake from your ―controlled waking dream,‖ you feel as though you had returned from a great distance.
 
 The visible world which you had shut out returns to consciousness and by its very presence informs you that you have been self-deceived into believing that the object of your contemplation was real.
 
 But, if you know that consciousness is the one and only reality, you will remain faithful to your vision, and by this sustained mental attitude confirm your gift of reality, and prove that you have the power to give reality to your desires that they may become visible concrete facts.
 
-Define your ideal and concentrate your attention upon the idea of identifying yourself with your ideal. Assume the feeling of being it, the feeling that would be yours were you already the embodiment of your ideal. Then live and act upon this conviction. This [Assumption](/Assumption), though denied by the senses, if persisted in, will become fact. You will know when you have succeeded in fixing the desired state in consciousness by simply looking mentally at the people you know.
+Define your ideal and concentrate your attention upon the idea of identifying yourself with your ideal. Assume the feeling of being it, the feeling that would be yours were you already the embodiment of your ideal. Then live and act upon this conviction. This Assumption, though denied by the senses, if persisted in, will become fact. You will know when you have succeeded in fixing the desired state in consciousness by simply looking mentally at the people you know.
 
 In dialogues with yourself you are less inhibited and more sincere than in actual conversations with others, therefore the opportunity for self-analysis arises when you are surprised by your mental conversations with others.
 
 If you see them as you formerly saw them, you have not changed your concept of self, for all changes of concepts of self result in a changed relationship to your world.
 
-In your [Meditation](/Lectures/Radio Lectures/Meditation) allow others to see you as they would see you were this new concept of self a concrete fact. You always seem to others an embodiment of the ideal you inspire. Therefore, in [Meditation](/Lectures/Radio Lectures/Meditation), when you contemplate others, you must be seen by them mentally as you would be seen by them physically were your concept of self an objective fact; that is, in [Meditation](/Lectures/Radio Lectures/Meditation) you imagine that they see you expressing that which you desire to be.
+In your Meditation allow others to see you as they would see you were this new concept of self a concrete fact. You always seem to others an embodiment of the ideal you inspire. Therefore, in Meditation, when you contemplate others, you must be seen by them mentally as you would be seen by them physically were your concept of self an objective fact; that is, in Meditation you imagine that they see you expressing that which you desire to be.
 
 If you assume that you are what you want to be your desire is fulfilled, and, in fulfillment, all longing is neutralized. You cannot continue desiring what you have already realized. Your desire is not something you labor to fulfill, it is recognizing something you already possess. It is assuming the feeling of being that which you desire to be. Believing and being are one.
 
-The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, all things are possible to him that believeth‖ (Mark 9:23).
+The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth‖ (Mark 9:23).
 
 Being is the substance of things hoped, the evidence of things not yet seen (cf. Hebrews 11:1).
 
-If you assume that you are what you want to be, then you will see others as they are related to your [Assumption](/Assumption)
+If you assume that you are what you want to be, then you will see others as they are related to your Assumption
 
-If, however, it is the good of others that you desire, then, in [Meditation](/Lectures/Radio Lectures/Meditation), you must represent them to yourself as already being that which you desire them to be.
+If, however, it is the good of others that you desire, then, in Meditation, you must represent them to yourself as already being that which you desire them to be.
 
 It is through desire that you rise above your present sphere and the road from longing to fulfillment is shortened as you experience in imagination what you would experience in the flesh were you already the embodiment of the ideal you desire to be.
 
@@ -44,9 +44,9 @@ Man experiences events on earth singly and successively in the same way that you
 
 Imagine that every word on this page represents a single sensory impression. To get the context, to understand my meaning, you focus your vision of the first word in the upper left-hand corner and then move your focus across the page from left to right, letting it fall on the words singly and successively. By the time your eyes reach the last word on this page you have extracted my meaning. Suppose, however, on looking at the page, with all the printed words thereon equally present, you decided to rearrange them. You could, by rearranging them, tell an entirely different story; in fact; you could tell many different stories.
 
-A dream is nothing more than uncontrolled four-dimensional thinking, or the rearrangement of both past and future sensory impressions. Man seldom [Dreams](/Dreams) of events in the order in which he experiences them when awake.
+A dream is nothing more than uncontrolled four-dimensional thinking, or the rearrangement of both past and future sensory impressions. Man seldom Dreams of events in the order in which he experiences them when awake.
 
-He usually [Dreams](/Dreams) of two or more events which are separated in time, fused into a single sensory impression; or, in his dream, he so completely rearranges his single waking sensory impressions that he does not recognize them when he encounters them in his waking state.
+He usually Dreams of two or more events which are separated in time, fused into a single sensory impression; or, in his dream, he so completely rearranges his single waking sensory impressions that he does not recognize them when he encounters them in his waking state.
 
 For example; I dreamed that I delivered a package to the restaurant in my apartment building. The hostess said to me, ―You can’t leave that there‖; whereupon, the elevator operator gave me a few letters and as I thanked him for them, he, in turn, thanked me. At this point, the night elevator operator appeared and waved a greeting to me.
 
@@ -105,7 +105,7 @@ I can, however, with the ancient teacher say: *"This one thing I do, forgetting 
 
 - Man experiences events successively like reading words on a page.
 - But he could rearrange the words to tell a different story.
-- [Dreams](/Dreams) fuse separate impressions into new combinations.
+- Dreams fuse separate impressions into new combinations.
 - Controlling attention in 4D allows consciously creating circumstances in 3D.
 
 ### Construct a Waking Dream

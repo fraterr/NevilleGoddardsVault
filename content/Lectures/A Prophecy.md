@@ -1,12 +1,12 @@
 In his poem called *"Europe,"* which is a prophecy about you, William Blake said: *"Then Enitharmon woke, nor knew that she had slept, and eighteen hundred years were fled as if they had not been."* 
 
-Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los [Dreams](/Dreams) it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
+Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los Dreams it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
 
 In my case, 1,959 years had fled as though they had not been. And I had no idea I had entered into an image called Neville and made it real. But I, all imagination, so loved the shadow I had cast, I entered into it and made it alive. 
 
 To those in immortality I seemed to be as one sleeping on a couch of gold, but to myself I was a wanderer. Although lost in dreary night, I kept the divine vision in time of trouble. I kept on dreaming I was Neville until I awoke, not knowing I had slept; yet 1,959 years had fled as though they had not been. 
 
-Blake tells us that in the beginning we were all united with God in a death like his. Then we heard the story and entered into our shadows. Now, a shadow is a representation, either in painting or drama, in distinction from the reality portrayed. Paul recognized the shadow when he asked the Galatians: *"Who has bewitched you, before whose eyes Jesus Christ was publicly portrayed as crucified. Let me ask you only this: did you receive the spirit by works of the law or by hearing with faith? Are you so foolish, having begun with the spirit are you now ending with the flesh, by seeing Jesus Christ as someone on the outside?"*
+Blake tells us that in the beginning we were all united with God in a death like his. Then we heard the story and entered into our shadows. Now, a shadow is a representation, either in painting or drama, in distinction from the reality portrayed. Paul recognized the shadow when he asked the Galatians: *"Who has bewitched you, before whose eyes [Jesus Christ](/lectures/jesus-christ) was publicly portrayed as crucified. Let me ask you only this: did you receive the spirit by works of the law or by hearing with faith? Are you so foolish, having begun with the spirit are you now ending with the flesh, by seeing Jesus Christ as someone on the outside?"*
 
 Having heard the story of Jesus Christ, you are called upon to enter into it as the central character and remain there until the story externalizes itself. 
 
@@ -49,13 +49,13 @@ In the Old Testament, the question is asked: *"Rouse thyself, O Lord, awake. Why
 
 When God incarnated himself in the image he so fell in love with, time was divided between BC and AD. Blake tells us that for him, it took 1800 years for God to move from BC to AD. In my case it was 1,959 years. Each case is different, as we are told: *"Each in his own order."* I do not know whether this order was predetermined or not, for the Book of Ephesians tells us that he destined us in love to be his sons through Jesus Christ according to the purpose of his will. 
 
-The God that dreamed in me is the same God that [Dreams](/Dreams) in you. Was it really an order that I could not have awakened before 1959? I do not know. I only know that was the year in which God awoke in me, yet I did not know I had fallen asleep in that skull. But when I emerged, the symbolism recorded as revealing the birth of God surrounded me. That was the moment God awoke and was born into a higher region of his being. Having identified himself with the one he loved, that one was raised and born as God.
+The God that dreamed in me is the same God that Dreams in you. Was it really an order that I could not have awakened before 1959? I do not know. I only know that was the year in which God awoke in me, yet I did not know I had fallen asleep in that skull. But when I emerged, the symbolism recorded as revealing the birth of God surrounded me. That was the moment God awoke and was born into a higher region of his being. Having identified himself with the one he loved, that one was raised and born as God.
 
-God is in love with his image, his shadow, which - like a reflection on oil or water - is dead. Having no life in itself, God so loves his shadow he enters it and [Dreams](/Dreams) he is it. Being a life-giving spirit, God first animates the shadow and it becomes solid and real in his world. He walks and talks, knows sorrow and joy, sickness and health, until the dream is complete. Then God awakens a pattern by which he will know he has arrived at the end.
+God is in love with his image, his shadow, which - like a reflection on oil or water - is dead. Having no life in itself, God so loves his shadow he enters it and Dreams he is it. Being a life-giving spirit, God first animates the shadow and it becomes solid and real in his world. He walks and talks, knows sorrow and joy, sickness and health, until the dream is complete. Then God awakens a pattern by which he will know he has arrived at the end.
 
 This pattern was predetermined. The first segment is to awaken and rise from his sleep of death, to be designated Son of God in power. Then he discovers his fatherhood when his son calls him father. A short interval later he cuts himself in two. This is his sacrifice for this wonderful accomplishment. Fusing with his blood, which he finds at the base of his spine, God ascends as a fiery serpent. Then the final sanctification comes in the form of a dove, which descends and smothers him with love, for God has now accomplished what he set out to do. 
 
-You can imitate God while here in this world. If, for example you desire to be a great artist, acclaimed throughout the country, map out a plan of success, just as God mapped out a plan of fulfillment which he called Jesus Christ. There are multiple ways to imagine success. Choose a scene which would imply you already have achieved success and when it unfolds, you will know how it came about. Do this, and you are testing the infinite power that you really are. 
+You can imitate God while here in this world. If, for example you desire to be a great artist, acclaimed throughout the country, map out a plan of success, just as God mapped out a plan of fulfillment which he called Jesus Christ. There are multiple ways to imagine success. Choose a scene which would imply you already have achieved success and when it unfolds, you will know how it came about. Do this, and you are testing the [infinite power](/lectures/infinite-power) that you really are. 
 
 Having entered the shadow that I conceive myself to be, I walk the earth wondering where the next dollar is coming from; yet those in great eternity see me as dreaming on a golden couch. But I am still faithful and keep the divine vision in time of trouble. Then, like a woman in labor who bears its pains, after the child is born the pain is forgotten in the job of fulfillment, so it is when Christmas comes and you – individualized - become God. 
 
@@ -63,7 +63,7 @@ The same technique God used to make you real can be used to bring your desire in
 
 God entered into his image, therein giving us life. Being a life-giving spirit, God wants us to be just as he is, so he mapped out the pattern that through it we may be God. When we completely fulfill his predetermined pattern, the barrier will be torn down and we will be one with infinity. 
 
-Christmas as celebrated by the Christian world is not Christmas. It is not something that takes place on the outside. Christmas consists of a series of events which begin when God awakens within the shadow He entered. Rising, God desires to come out; and since all things are possible to God, He pushes, and a seemingly unbreakable seal falls away and infinite power comes out. 
+Christmas as celebrated by the Christian world is not Christmas. It is not something that takes place on the outside. Christmas consists of a series of events which begin when God awakens within the shadow He entered. Rising, God desires to come out; and since [all things are possible](/lectures/all-things-are-possible) to God, He pushes, and a seemingly unbreakable seal falls away and infinite power comes out. 
 
 The predetermined symbolism must be there. If it isn't, then the vision is an adumbration indicating nearness. It is a shadow cast before coinciding with the actual vision. 
 
@@ -87,7 +87,7 @@ When it will happen I do not know. Blake certainly was not 1800 years old judged
 
 In his poem, *"Europe,"* Blake speaks of the cavern man and his five openings. His eyes, which see only a small section of infinity. His ears, which will hear the music of the heavens. His breath and mouth, totaling four; but Blake does not tell us where the fifth one is. He does, however, tell us that through this opening man may leave at any time and return, but man does not choose to do so. What is that one but imagination? Standing here, I can imagine myself elsewhere. What opening do I use to imagine myself there? The fifth one of the five openings of the cavern man.
 
-Soon the Christian world will celebrate this wonderful mystery, which is completely misunderstood. But one day you, individuality, will experience scripture and know the true mystery of Christmas. Then you, too, will say I woke and knew not that I had slept.
+Soon the Christian world will celebrate this wonderful mystery, which is completely misunderstood. But one day you, individuality, will [experience scripture](/lectures/experience-scripture) and know the true mystery of Christmas. Then you, too, will say I woke and knew not that I had slept.
 
 The sensation is one of waking, not resurrection. You know you are in your tomb, yet your skull. Because of an innate knowledge, you will push from within, and the stone will roll away as you are born from above. 
 
@@ -102,7 +102,7 @@ Now let us go into the silence.
 
 ### God Enters His Image
 
-- God falls in love with his image, enters it and [Dreams](/Dreams) it into reality
+- God falls in love with his image, enters it and Dreams it into reality
 - When God awakes, lifetimes have passed, yet it's as if they were not
 
 ### Assume Your Desired State
@@ -123,7 +123,7 @@ Now let us go into the silence.
 ### God Loves His Image
 
 - Out of love, God entered and gave life to his dead image, your shadow
-- He [Dreams](/Dreams) this world into being until He awakens as you, now made alive
+- He Dreams this world into being until He awakens as you, now made alive
 
 ### Christmas is Within
 
@@ -132,7 +132,7 @@ Now let us go into the silence.
 
 ### Enter Feeling, Exit Reason
 
-- Intellect understands nothing of awakening or God's plan of redemption
+- Intellect understands nothing of awakening or God's plan of redemption)
 - Mystics know this inner truth which defies logic and rational thought
 
 ### Persist in Troubles

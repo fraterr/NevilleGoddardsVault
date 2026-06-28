@@ -12,7 +12,7 @@ Therefore Curse not the king, no not in thy thought; and curse not the rich in t
 
 What you sincerely believe as true of another you will awaken within him.
 
-No one need be entranced, in the ordinary manner, to be helped. If the subject is consciously unaware of the suggestion, and if the suggestion is given with conviction and confidently accepted by the operator as true, then you have the ideal setting for a successful [Prayer](/Prayer).
+No one need be entranced, in the ordinary manner, to be helped. If the subject is consciously unaware of the suggestion, and if the suggestion is given with conviction and confidently accepted by the operator as true, then you have the ideal setting for a successful Prayer.
 
 Represent the subject to yourself mentally as though he had already done that which you desire him to do. Mentally speak to him and congratulate him on having done what you want him to do. Mentally see him in the state you want him to obtain. Within the circle of its action, every word subjectively spoken awakens objectively, what it affirms. Incredulity on the part of the subject is no hindrance when you are in control of your reverie.
 
@@ -49,7 +49,7 @@ Control of the subconscious is dominion over all. Each state obeys one minds con
 
 - Unaware person is profoundly hypnotized relative to you
 - What you believe of another you will awaken in them
-- Unawareness allows effective [Prayer](/Prayer) through suggestion
+- Unawareness allows effective Prayer through suggestion
 
 ### Establish Rapport and Suggest
 

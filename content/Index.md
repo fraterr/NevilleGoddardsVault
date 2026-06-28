@@ -1,54 +1,54 @@
-Welcome to the Neville Goddard Vault! This website contains the [published works](/Books/Books) and [lecture transcripts](/Lectures/Lectures) of Neville Goddard, the influential 20th century metaphysical teacher. Every single text (be it the chapter of a book, a lecture or a radio lecture) <u>has its own comprehensive summary</u>, for enhanced readability and understanding. You can find summaries at the <u>end of each single note</u>.
+Welcome to the Neville Goddard Vault! This website contains the published works and lecture transcripts of Neville Goddard, the influential 20th century metaphysical teacher. Every single text (be it the chapter of a book, a lecture or a radio lecture) <u>has its own comprehensive summary</u>, for enhanced readability and understanding. You can find summaries at the <u>end of each single note</u>.
 
 
 [Neville Goddard](https://en.wikipedia.org/wiki/Neville_Lancelot_Goddard) (1905-1972) was an influential metaphysical teacher central to the [New Thought](https://en.wikipedia.org/wiki/New_Thought) movement.
 
 Born in Barbados and based in New York City, Neville dedicated his life to understanding and teaching the power of imagination, faith, and manifestation according to his [mystical interpretation of Christianity](https://en.wikipedia.org/wiki/Christian_mysticism).
 
-Through his accessible [lectures](/Lectures) and over 10 [books](/Books/Books), Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and assumption to manifest desires.
+Through his accessible lectures and over 10 books, Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and assumption to manifest desires.
 
-Neville focused on the promise within [Biblical stories and verses](/Search/Bible References), communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
+Neville focused on the promise within Biblical stories and verses, communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
 
-Please note this site is a work in progress and is constantly being [updated](/Updates and changelog) with new material and improvements.
+Please note this site is a work in progress and is constantly being updated with new material and improvements.
 
 ## The Vault
 
 
 The vault is organized into several sections to make Neville's teachings easy to explore:
 
-- [Books](/Books/Books)
-- [Lectures](/Lectures/Lectures)
-	- [Radio Lectures](/Lectures/Radio Lectures/Radio Lectures)
-- [Search](/Search/Search)
-- [Feedback](/Feedback)
-- [Buy me a Tea](/Buy me a Tea)
-- [Updates and changelog](/Updates and changelog)
+- Books
+- Lectures
+	- Radio Lectures
+- Search
+- [Feedback](/feedback)
+- [Buy me a Tea](/buy-me-a-tea)
+- [Updates and changelog](/updates-and-changelog)
 
-### [Books](/Books/Books)
+### Books
 
-Contains Neville's over 10 published [books](/Books/Books) presenting his core teachings and metaphysical principles.
+Contains Neville's over 10 published books presenting his core teachings and metaphysical principles.
 
-### [Lectures](/Lectures/Lectures)
+### Lectures
 
-Over 200 transcripts from Neville's [lectures](/Lectures/Lectures) delivered live in New York City between the 1940s-1960s. His spoken wisdom and stories provide valuable context.
+Over 200 transcripts from Neville's lectures delivered live in New York City between the 1940s-1960s. His spoken wisdom and stories provide valuable context.
 
-### [Radio Lectures](/Lectures/Radio Lectures/Radio Lectures)
+### Radio Lectures
 
-Transcripts of Neville's [talks](/Lectures/Radio Lectures/Radio Lectures) and lessons given over radio broadcasts.
+Transcripts of Neville's talks and lessons given over radio broadcasts.
 
-### [Search](/Search/Search)
+### Search
 
-Neville's writings indexed and organized by key [topics](/Search/Topics), themes, [[Bible References|Bible verses], and more. Enables focused study on specific aspects of his teachings.
+Neville's writings indexed and organized by key topics, themes, [[Bible References|Bible verses], and more. Enables focused study on specific aspects of his teachings.
 
-### [Feedback](/Feedback)
+### Feedback
 
 Instructions on how to provide suggestions or report any errors encountered in the vault. User contributions help improve the resource.
 
-### [Buy me a Tea](/Buy me a Tea)
+### Buy me a Tea
 
 If you feel like it, you can support the Neville Goddard's Vault here.
 
-### [Updates and changelog](/Updates and changelog)
+### Updates and changelog
 
 Here I'll post every update. 
 

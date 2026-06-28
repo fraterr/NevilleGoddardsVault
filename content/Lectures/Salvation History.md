@@ -1,6 +1,6 @@
 It is God's purpose to give himself to you as though there were no other! And when He does, it will not be you and God, but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
 
-Ask a devoted Christian who knows his Bible if he believes in Jesus Christ and thinks of him as the Lord; he will answer, Yes. Ask him if he believes that Jesus was referring to the creator of the universe, when he said: *"I and my Father are one, and when you see me you have seen the Father,"* and again he will agree.
+Ask a devoted Christian who knows his Bible if he believes in [Jesus Christ](/lectures/jesus-christ) and thinks of him as the Lord; he will answer, Yes. Ask him if he believes that Jesus was referring to the creator of the universe, when he said: *"I and my Father are one, and when you see me you have seen the Father,"* and again he will agree.
 
 Do you believe that scripture is the word of God which is true and its truth cannot be broken? That Jesus said no one could enter the kingdom of heaven unless he was born from above, and he is in heaven now? Then Jesus had to have been born from above, would he not?
 
@@ -14,9 +14,9 @@ As you walk in time, human history is yours; as you are born and die, restored t
 
 In human history all things begin and end in time. Things appear, they wax, wane, and disappear, to pass through nature to eternity - until the history of salvation invades time and redeems the individual, allowing him to experience salvation history as his own.
 
-Salvation history, belonging only to eternity, takes God's creative power up from eternal death (called time) to enter the kingdom of heaven and everlasting life. That's how God - having become Man - raises the individual to the level of being God.
+Salvation history, belonging only to eternity, takes [God's creative power](/lectures/god-s-creative-power) up from eternal death (called time) to enter the kingdom of heaven and everlasting life. That's how God - having become Man - raises the individual to the level of being God.
 
-Now, I did not ask these questions to test your knowledge of scripture, but to find another witness. That which is recorded in scripture is an external witness of my internal experience. Therefore, who am I other than the Lord Jesus Christ? This is my destiny, as it is yours.
+Now, I did not ask these questions to test your knowledge of scripture, but to find another witness. That which is recorded in scripture is an external witness of my internal experience. Therefore, [who am I](/lectures/who-am-i) other than the Lord Jesus Christ? This is my destiny, as it is yours.
 
 Although limited while I walk the earth, when this limitation is taken off I - who have found God to be my very self - will join that one body, one Spirit, one Lord, one God and Father of all. Having experienced the only history of salvation, I know I am He! Although this experience is uniquely mine, it is not exclusive. Everyone will have this invasion and experience the history of salvation, for that is how God gives himself to man, that man may become God.
 
@@ -39,7 +39,7 @@ Eternity is qualitative, not quantitative. It does not describe duration, but cr
 This is a world of time, where all things begin and end. Although death appears to be, there is none. Those who remain, experience their death; but to themselves they do not die. Instead, they are restored to life in a young body with nothing missing. There they will get older and eventually die, to be instantly restored - again unaccountably new - in a terrestrial world like this one, to go on and on and on. That's restoration; but the birth from above is something entirely different. That occurs when infinite God gives himself to 
 the individual. He does it by inserting his story of salvation into time, possessing the individual, then unfolding himself from within, fulfilling salvation history.
 
-The Bible is an incredible story of how God became man that man could become God. The history of God contains eternity, which has neither beginning nor end; therefore, salvation history is forever taking place. God's will must be being done absolutely and continuously, because it is eternal.
+The Bible is an incredible story of how [God became man](/lectures/god-became-man) that man could become God. The history of God contains eternity, which has neither beginning nor end; therefore, salvation history is forever taking place. God's will must be being done absolutely and continuously, because it is eternal.
 
 When the history of salvation invades you, individually, you will awaken from a long, long sleep to find yourself being born from above. The symbol of your birth as that of a little child wrapped in swaddling clothes will be there, as well as the witnesses. Even then it seems incredible, as you hold the child in your arms - just as scripture states a child was placed in the arms of one called Mary. And if the child is a symbol of the savior, who is the Lord God Jehovah; are you not your own savior?
 
@@ -49,7 +49,7 @@ No one should gloat about this, as everyone will rise as the same being. There i
 
 This glorious, spiritual story doesn't make sense to man, so he believes it in a physical way. And when it is told from experience, few will listen; and even those who do will not understand. Don't expect them to. Just tell it, and leave the thought as a seed for them to dwell upon and maybe begin to hunger and thirst for understanding.
 
-You see, God has already put eternity into the heart of every man. And when the time is fulfilled, He adds a thirst that only eternity can satisfy. So when you tell God's word, and there is no interest, it is because the hunger has not come upon them. But the day will come when God will send a hunger - not for bread or a thirst for water, but for experiencing the word of God; and not a thing can satisfy that hunger but an experience of God.
+You see, God has already put eternity into the heart of every man. And when the time is fulfilled, He adds a thirst that only eternity can satisfy. So when you tell [God's word](/lectures/god-s-word), and there is no interest, it is because the hunger has not come upon them. But the day will come when God will send a hunger - not for bread or a thirst for water, but for experiencing the word of God; and not a thing can satisfy that hunger but an experience of God.
 
 In order for such an experience to happen, God must invade time and possess you. Then you fulfill salvation's story, as everything said in scripture is experienced by you. Having come into the world - and fulfilling scripture - you will interpret Moses, the law, the prophets, and the Psalms, as things concerning yourself; for you will discover that the events recorded as happening to Jesus Christ, have happened in you.
 

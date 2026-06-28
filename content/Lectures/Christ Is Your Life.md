@@ -1,24 +1,24 @@
 This teaching is essentially a revelation of the Risen Christ. I am not speaking of the life of any man between his physical birth and death, but of the Christ who has risen in me and who rises in all. I have no mental image of a being outside of my life, or yours.   
   
-Paul tells us: *"You have died, and your life is hid with Christ in God. When Christ who is our life appears, you will appear with him in glory."* (Col. 3:3,4) Here we see Paul equating your life with Christ. You are alive now, so what does Paul mean when he claims you have died? All of Paul’s letters equate death with a sleep so profound the past is forgotten. It is from the sleep of death he urges you to roust yourself from saying: *"Awake O sleeper and rise from the dead."*   
+Paul tells us: *"You have died, and your life is hid with Christ in God. When Christ who is our life appears, you will appear with him in glory."* (Col. 3:3,4) Here we see Paul equating your life with Christ. You are alive now, so what does Paul mean when he claims you have died? All of Paul’s letters equate death with a sleep so profound the past is forgotten. It is from the sleep of death he urges you to roust yourself from saying: *"[Awake O sleeper](/lectures/awake-o-sleeper) and rise from the dead."*   
   
-The one and only Christ is your life. Now asleep in humanity, this power believes itself to be you. And when it awakens and rises in you, it is you who rise as Christ. God’s power and wisdom is sleeping in you as your own life. God is love! When God died he gave you, his sons, your inheritance. It was not a home or some fabulous land, but the power of his love! The power to create every desire of your heart.   
+The one and only Christ is your life. Now asleep in humanity, this power believes itself to be you. And when it awakens and rises in you, it is you who rise as Christ. God’s [power and wisdom](/lectures/power-and-wisdom) is sleeping in you as your own life. God is love! When God died he gave you, his sons, your inheritance. It was not a home or some fabulous land, but the power of his love! The power to create every desire of your heart.   
   
 Let me start with a point, which has confused some. A gentleman wrote:  “You say others have bodies and lives of their own, but their reality is rooted in you as your reality is rooted in God. I have a desire that involves others, yet I have the feeling that they do not want to be a part of it. Although you say I should not concern myself with influencing others, as the world - rooted in me - will play the part they must play if I am faithful to my objectives; but what right have I to influence others?   
   
-*"Believing that imagining creates reality and that there is no fiction, I start with a premise that has not one thing in the outer world to support it; but in the midst of my project I turn aside, for I cannot influence these men. I now wonder if perhaps this is also their hidden desire and they do not want me in it. You say when I am lovingly exercising my imagination on behalf of another, I am mediating God to that other. I know that what I imagine will benefit all; yet because of my doubt as to their desire to be involved, should I continue to do it?"*   
+*"Believing that [imagining creates](/lectures/imagining-creates) reality and that [there is no fiction](/lectures/there-is-no-fiction), I start with a premise that has not one thing in the outer world to support it; but in the midst of my project I turn aside, for I cannot influence these men. I now wonder if perhaps this is also their hidden desire and they do not want me in it. You say when I am lovingly exercising my imagination on behalf of another, I am mediating God to that other. I know that what I imagine will benefit all; yet because of my doubt as to their desire to be involved, should I continue to do it?"*   
   
 I would say to him, just take the objective. Perhaps because of their talents you have singled them out as partners, but if they moved away would you still have the desire? If so, then they are not essential. If you put yourself in the end by rejoicing in the objective’s fulfillment, those who are equally talented - and maybe more so - will come seeking you; for remaining in the end, you will draw the necessary individuals to play the part they must play to aid the birth of what you are doing.   
   
 Now, you questioned if all things worked for good. The 8th chapter of Romans tells us that it does. This truth is dramatized for us in the 50th chapter of the Book of Genesis. It is the story of Joseph, one of the twelve Sons of Jacob. Joseph had the capacity to dream vividly. His visions were true and he could interpret them. His brothers, becoming envious, plotted to kill him; but Judah interceded, urging them to sell him instead.   
   
-Joseph was sold as a slave, and when no one could interpret Pharaoh's [Dreams](/Dreams) Joseph was brought before him. He interpreted the [Dreams](/Dreams) so accurately, Pharaoh made him equal with himself, and whatever Joseph said was instantly executed. He foretold of the famine that was to come; and when his brothers came seeking food Joseph - now sitting on the throne - recognized them, and said: *"Fear not, you meant evil against me, but God meant it for good."* So everything works for good when there is time to reflect upon the act.   
+Joseph was sold as a slave, and when no one could interpret Pharaoh's Dreams Joseph was brought before him. He interpreted the Dreams so accurately, Pharaoh made him equal with himself, and whatever Joseph said was instantly executed. He foretold of the famine that was to come; and when his brothers came seeking food Joseph - now sitting on the throne - recognized them, and said: *"Fear not, you meant evil against me, but God meant it for good."* So everything works for good when there is time to reflect upon the act.   
   
 I could go back to my own small family. There came a moment in our life when it seemed as though the world had come to its end. My father’s partners, desiring to take control of the little equity he had in the business, succeeded and our world collapsed. We had nothing and even our friends made themselves scarce.   
   
 But what appeared to be an evil thing turned out to be a blessing, for by detaching ourselves from this partnership - which was small in the sense that they couldn’t think big - my father started on his own with sons who could imagine. The family has now turned our business into a large enterprise of many kinds of businesses with no outside partnerships, dwarfing anything we thought possible forty years ago when it happened. It has taken time and reflection, but now we can see that - although my father’s partners intended evil against him - God meant it for good.   
   
-Now, a friend had a dream in which he received a letter with his son’s report card inside, indicating that he must show a decided improvement in four subjects, one of which was algebra. Since his son has always been tops in math, he was annoyed and instantly revised the report card. Suddenly angry with himself he said: *"I am tired of the responsibility of this power and life’s many needs of [Revision](/Revision). My son is a big boy now, let him do it for himself,"* and awoke.   
+Now, a friend had a dream in which he received a letter with his son’s report card inside, indicating that he must show a decided improvement in four subjects, one of which was algebra. Since his son has always been tops in math, he was annoyed and instantly revised the report card. Suddenly angry with himself he said: *"I am tired of the responsibility of this power and life’s many needs of Revision. My son is a big boy now, let him do it for himself,"* and awoke.   
   
 Peter asked the question: *"Lord, if my brother sins against me, how often must I forgive him, seven times?"* and the Lord answered: *"I did not say seven, but seventy times seven."* This does not mean four hundred and ninety times. Seventy is the numerical value of the Hebrew letter ayin, whose symbol is an eye. Seven is the numerical value of the Hebrew letter zayin, whose symbol is a sword.   
   
@@ -34,7 +34,7 @@ So this lesson was given us in the beginning. Whatever you are beholding in your
   
 In the case of my friend, his dream was telling him to continue to revise and not to be afraid of the responsibility of his tremendous power to imagine; for life itself is nothing more than an activity of imagination. When I speak of Christ being your life, I am saying he is your imagination, for life is an activity of imagination. Ask yourself what you are imagining right now and you will discover what Christ has created. For by him all things are created, and without him is not a thing created that is created.   
   
-Everything now formed and called a fact was once only an image in the mind of someone who persisted in that image and projected it onto the screen of space. So do not give up the responsibility of [Revision](/Revision), and - as to influencing others - may I say you cannot help it. As you walk the street you unwittingly influence people there. You simply cannot stop it.   
+Everything now formed and called a fact was once only an image in the mind of someone who persisted in that image and projected it onto the screen of space. So do not give up the responsibility of Revision, and - as to influencing others - may I say you cannot help it. As you walk the street you unwittingly influence people there. You simply cannot stop it.   
   
 Another point I want to bring up is this: The prophets who wrote the Old Testament were servants of the Lord. They recorded what they saw or heard, but they did not understand it. Every true prophet’s vision is foreshortened. Seeing as present what is future: *"The prophets prophesied of the grace that was to be yours. They searched and inquired as to what person or time was indicated by the Spirit of Christ within them when predicting the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving, not themselves but you, in the things that are now being revealed."*   
   
@@ -44,7 +44,7 @@ That brings me to another point which has puzzled my friend. When I speak of God
   
 Greater love has no man than this: that he lay down his life for his friend. Not pretending, but voluntarily abandoning self for those he loved, God died that we may inherit him. What is He that we inherit?   
   
-He has told us *"I AM the light of the world."* One day you will inherit the experience of being the light of the universe. There will be no stars, no sun, no moon, no circumference - only infinite, pulsing, living light, which you know yourself to be. You will inherit God as infinite love. Whatever God was before he became individualized, you will experience as yourself.   
+He has told us *"I AM [the light of the world](/lectures/the-light-of-the-world)."* One day you will inherit the experience of being the light of the universe. There will be no stars, no sun, no moon, no circumference - only infinite, pulsing, living light, which you know yourself to be. You will inherit God as infinite love. Whatever God was before he became individualized, you will experience as yourself.   
   
 God was a father before he became you and when he possesses you, you are the identical father. The 2nd Psalm reveals the son that was his before he became you. But no one knows who that son is except the Father, and no one knows who the Father is except that son and anyone to whom the son chooses to reveal him.   
   
@@ -54,11 +54,11 @@ When you inherit God, you inherit his infinite past, and from that moment on you
   
 John records eight signs of the initiative of God in Man’s redemption. Many scholars have put the first and the last together, the second and the seventh, the third and the sixth and the fourth with the fifth, making four major signs. When these signs begin to unfold in you, count the days and you will discover there are 1260 days between the first vision and the last, as you inherit God.   
   
-You are not some little thing that God animates, gives life to, and owns. God gave himself to you in the ultimate sense of the word, so you shall have no inheritance, for I AM your inheritance. You shall have no possession in Israel, for I AM your possession. If you possess God, whatever He is, you must be!   
+You are not some little thing that God animates, gives life to, and owns. God gave himself to you in [the ultimate sense](/lectures/the-ultimate-sense) of the word, so you shall have no inheritance, for I AM your inheritance. You shall have no possession in Israel, for I AM your possession. If you possess God, whatever He is, you must be!   
   
-I have just quoted the 44th chapter of Ezekiel. Read it carefully. Become aware of possessing God, and you will no longer be the little pygmy you were taught that you are. Don’t react to the nonsense you read in the papers. They record the happenings of the surface mind. What happens to a man between the cradle and the grave should not interest you. Whether he is a cook or a millionaire, the best-dressed man (or woman) of the year, or the most highly publicized - that’s all relevant to this would and hasn’t a thing to do with the Christ in you, who - as your life - will awaken one day and rise.   
+I have just quoted the 44th chapter of Ezekiel. Read it carefully. Become aware of possessing God, and you will no longer be the little pygmy you were taught that you are. Don’t react to the nonsense you read in the papers. They record the happenings of the surface mind. What happens to a man between the cradle and the grave should not interest you. Whether he is a cook or a millionaire, the best-dressed man (or woman) of the year, or the most highly publicized - that’s all relevant to this would and hasn’t a thing to do with the [Christ in you](/lectures/christ-in-you), who - as your life - will awaken one day and rise.   
   
-When Christ awoke in me I was so amazed, as I did not realize I had been asleep. Every morning I had awakened to a new day and retired that night, just as you have done throughout the ages. From the cradle to the grave you have fallen asleep at night and awakened in the morning. In time you have died, only to be restored to life to continue the same long journey. But one day you will awaken in the tomb where awareness was placed in the beginning. To your amazement you won’t even remember falling asleep, and never for one second thought your skull was the tomb where they placed Jesus Christ.   
+When Christ awoke in me I was so amazed, as I did not realize I had been asleep. Every morning I had awakened to a new day and retired that night, just as you have done throughout the ages. From the cradle to the grave you have fallen asleep at night and awakened in the morning. In time you have died, only to be restored to life to continue the same long journey. But one day you will awaken in the tomb where awareness was placed in the beginning. To your amazement you won’t even remember falling asleep, and never for one second thought your skull was the tomb where they placed [Jesus Christ](/lectures/jesus-christ).   
   
 But upon waking your inheritance will unfold, as everything said of Jesus Christ will be experienced by you in a first person, singular, present tense experience. You will discover you are the central actor in the divine drama of descent and ascent, for no one can ascend but he who descended.   
   
@@ -74,11 +74,11 @@ It should not matter what a man does with his life between the cradle and the gr
   
 Whether you play the part of a cook or a king, a carpenter or movie idol, is not important - for your external state means nothing. There are men who are now playing the part of a cook, carpenter, shoeshine boy, or barber, knowing they are redeemed, waiting patiently for that moment in time when they can take off the garment of flesh and blood for the last time. But only the Father knows that moment. Let no one speculate as to when it will happen. Record your visions, but do not interpret them. We are all past masters at misinterpretation of the great mission of God to us.   
   
-As for me, I have already risen. I am of the world, not in it. My [Dreams](/Dreams) and experiences at night are not related to this world, so I play a double life. While I am here there is work to be done to continue to encourage everyone by telling the true story of redemption.   
+As for me, I have already risen. I am of the world, not in it. My Dreams and experiences at night are not related to this world, so I play a double life. While I am here there is work to be done to continue to encourage everyone by telling the true story of redemption.   
   
 Take this wonderful story to heart. It is a true one. Christ is your life which is wholly supernatural. The birth is supernatural. The discovery of the Father is supernatural. The tearing of the temple from top to bottom and the ascent into the kingdom are supernatural, as well as the descent of the dove. No physical dove descends upon your shoulder - it is a supernatural experience, but this fantastic truth has been embodied in a tale that man could understand; for, as Tennyson said: *"Truth embodied in a tale shall enter in at lowly doors."*   
   
-Remember what I have said. Forget influence! Take objectives. Conceive a scene which would imply the fulfillment of your desire and dream noble [Dreams](/Dreams), for nothing is impossible to Christ and Christ is your life!   
+Remember what I have said. Forget influence! Take objectives. Conceive a scene which would imply the fulfillment of your desire and dream noble Dreams, for nothing is impossible to Christ and Christ is your life!   
   
 Now let us go into the silence.
 
@@ -99,7 +99,7 @@ Now let us go into the silence.
 - The story of Joseph in the Bible demonstrates that all things work for good in the end.
 - Personal experiences also illustrate how seemingly negative events can lead to positive outcomes.
 
-### The Responsibility of [Revision](/Revision) and Self-Persuasion
+### The Responsibility of Revision and Self-Persuasion
 - The importance of revising one's imagination and believing in desired outcomes.
 - William James' revelation about inner attitudes producing outer changes in harmony with convictions.
 - The story of Jacob and the animals shows the power of imagination in creating external reality.
@@ -132,14 +132,14 @@ Now let us go into the silence.
 ### Embracing the Truth of Redemption
 - The individual should embrace the true story of redemption.
 - Christ is the individual's life and nothing is impossible for Christ.
-- Focus on objectives and dream noble [Dreams](/Dreams).Christ is a supernatural experience.
+- Focus on objectives and dream noble Dreams.Christ is a supernatural experience.
 - The birth, discovery of the Father, tearing of the temple, and ascent into the kingdom are all supernatural events.
 - The dove descending is a symbol of a supernatural experience.
 
 ### Embracing the Truth of Redemption
 - The individual should embrace the true story of redemption.
 - Christ is the individual's life and nothing is impossible for Christ.
-- Focus on objectives and dream noble [Dreams](/Dreams).[Dreams](/Dreams).
+- Focus on objectives and dream noble Dreams.Dreams.
 
 
 #Revision #Dreams

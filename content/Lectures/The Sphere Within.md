@@ -4,7 +4,7 @@ Everything is housed in you, because Jesus is buried there, and it is from there
 
 In this world a king can bestow a high honor to anyone, but he cannot fit that one for the high office. Now, God not only bestows his honor, but he prepares the individual to receive it. You are here because you are being prepared. We are all part of the corporate destiny of a fabulous play, whose outcome is an entirely different world. In fact, this high honor cannot be conceived of until experienced. 
 
-When you have been prepared, you will be automatically drawn like a magnet into that sphere where your faith lives. Then all that is now contained within you will awaken; and the highest honor will be yours, with the revelation that God gave himself to you, as you. I tell you now: God became as you are, with all of your weaknesses and limitations; and God is going through the horrors of this world with you until you are prepared to receive the high honor, as the story of Jesus Christ (which has already been sown within you) erupts like a garden already planted, and you discover you are God. 
+When you have been prepared, you will be automatically drawn like a magnet into that sphere where your faith lives. Then all that is now contained within you will awaken; and the highest honor will be yours, with the revelation that God gave himself to you, as you. I tell you now: God became as you are, with all of your weaknesses and limitations; and God is going through the horrors of this world with you until you are prepared to receive the high honor, as the story of [Jesus Christ](/lectures/jesus-christ) (which has already been sown within you) erupts like a garden already planted, and you discover you are God. 
 
 Everyone will enter this sphere and know this revelation, but we all have different parts to play in that body. The part you will play has already been written and you were chosen to play it before that the world was. That part to which you have been cast must be prepared to receive your eternal form. 
 
@@ -40,7 +40,7 @@ So, when you see David, you will see your son and know exactly who you are. And 
 
 You came into this world, not as a poor little child, but as God desiring to play that part. I was born into a family of ten who had no money, no social or intellectual background. During that time there were two people in Barbados who foretold the future. 
 
-When I was about four years old one gentleman known as the prophet Gordon told my two eldest brothers that one would become a successful businessman and the other a doctor, which they did. Then he added: *"Don't touch the fourth one, for he belongs to God. He has come to fulfill God's word,"* and that is what I have done. Then, when I was about nine, a lady said she saw my destiny in a vision. 
+When I was about four years old one gentleman known as the prophet Gordon told my two eldest brothers that one would become a successful businessman and the other a doctor, which they did. Then he added: *"Don't touch the fourth one, for he belongs to God. He has come to fulfill [God's word](/lectures/god-s-word),"* and that is what I have done. Then, when I was about nine, a lady said she saw my destiny in a vision. 
 
 Everyone has a pattern to fulfill. You may not know what your pattern will be, and that is right; for if you knew what you were destined to do, at a certain point in time you might hesitate to follow that path; so it is hidden from you that you may be conditioned to receive the high honor, which is God himself. 
 

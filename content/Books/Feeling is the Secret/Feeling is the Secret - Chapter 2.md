@@ -3,7 +3,7 @@ So it is with sleep that we are now concerned. The conscious two-thirds of our l
 
 *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, (Job 33)
 
-It is in sleep and in [Prayer](/Prayer), a [State akin to sleep](/State-akin-to-sleep), that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
+It is in sleep and in Prayer, a State akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
 The subconscious – unlike the woman of the world who marries her husband to change him – has no desire to change the conscious, waking state, but loves it as it is and faithfully reproduces its likeness in the outer world of form.
 
@@ -55,7 +55,7 @@ Disregard appearances and feel that things are as you wish them to be, for *"He 
 
 Proof that you are will follow the consciousness that you are; it will not precede it.
 
-You are an eternal dreamer dreaming non-eternal [Dreams](/Dreams). Your [Dreams](/Dreams) take form as you assume the feeling of their reality.
+You are an eternal dreamer dreaming non-eternal Dreams. Your Dreams take form as you assume the feeling of their reality.
 
 Do not limit yourself to the past.
 

@@ -24,7 +24,7 @@ All imaginative men and women are forever casting forth enchantments, and all pa
 
 There is no form in nature, which is not produced by, and sustained by some imaginal activity. Therefore, any change in the imaginal activity must result in a corresponding change in form. To imagine a substitute-image for unwanted or defective content is to create it. If only we persist in our ideal imaginal activity and do not let lesser satisfactions suffice, ours shall be the victory.
 
-"When I read in 'Seedtime and Harvest' the story of the school teacher who, through her imagination, in daily [Revision](/Revision), transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
+"When I read in '[Seedtime and Harvest](/books/seedtime-and-harvest/seedtime-and-harvest)' the story of the school teacher who, through her imagination, in daily Revision, transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
 
 "To tell all the problems involved would take pages, for my husband has never had such a difficult child nor such a trying parent situation. The lad was too young to be expelled, yet the teachers refused to have him in their classes. To make matters worse, the mother and grandmother literally 'camped' on the school grounds making trouble for everyone.
 

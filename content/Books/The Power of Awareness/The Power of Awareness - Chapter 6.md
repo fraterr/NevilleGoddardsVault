@@ -4,7 +4,7 @@ Attention is forceful in proportion to the narrowness of its focus, that is, whe
 
 Therefore, when you know what you want, you must deliberately focus your attention on the feeling of your wish fulfilled until that feeling fills the mind and crowds all other ideas out of consciousness.
 
-The power of attention is the measure of your inner force. Concentrated observation of one thing shuts out other things and causes them to disappear. The great secret of success is to focus the attention on the feeling of the wish fulfilled without permitting any distraction. All progress depends upon an increase of attention. The ideas which impel you to action are those which dominate the consciousness, those which possess the attention. [The idea which excludes all others from the field of attention discharges in action.]
+The power of attention is the measure of your inner force. Concentrated observation of one thing shuts out other things and causes them to disappear. [The great secret](/lectures/the-great-secret) of success is to focus the attention on the feeling of the wish fulfilled without permitting any distraction. All progress depends upon an increase of attention. The ideas which impel you to action are those which dominate the consciousness, those which possess the attention. [The idea which excludes all others from the field of attention discharges in action.]
 
 This one thing I do, forgetting those things that are behind, I press toward the mark.
 
@@ -22,7 +22,7 @@ This is no easy exercise, but just as specific exercises greatly help in develop
 
 When you attain control of the internal direction of your attention, you will no longer stand in shallow water but will launch out into the deep of life.
 
-You will walk in the [Assumption](/Assumption) of the wish fulfilled as on a foundation more solid even than earth.
+You will walk in the Assumption of the wish fulfilled as on a foundation more solid even than earth.
 
 
 

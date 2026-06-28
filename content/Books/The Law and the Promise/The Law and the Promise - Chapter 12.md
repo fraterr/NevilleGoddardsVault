@@ -1,6 +1,6 @@
 *"Mental Things are alone Real; what is call'd Corporeal, Nobody Knows of its Dwelling Place: it is in Fallacy, and its Existence an Imposture. Where is the Existence Out of Mind or Thought? Where is it but in the Mind of a Fool?"* (William Blake)
 
-Memory, though faulty, is adequate to the call for sameness. If we remember another as we have known him, we recreate him in that image, and the past will be recognized in the present. Imagining creates reality. If there is room for improvement, we should re-construct him with new content; visualize him as we would like him to be, rather than have him bear the burden of our memory of him.
+Memory, though faulty, is adequate to the call for sameness. If we remember another as we have known him, we recreate him in that image, and the past will be recognized in the present. [Imagining creates](/lectures/imagining-creates) reality. If there is room for improvement, we should re-construct him with new content; visualize him as we would like him to be, rather than have him bear the burden of our memory of him.
 
 *"Everything possible to be believed is an image of truth."* (William Blake)
 

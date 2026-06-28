@@ -1,6 +1,6 @@
 *"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* (Jeremiah 18:2-4)
 
-The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an awakened imagination refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* (Isaiah 64:8)
+The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* (Isaiah 64:8)
 
 This conception of creation as a work of imagination, and the Lord our Father as our imagination, will take us further into the mystery of creation than any other guide.
 
@@ -26,13 +26,13 @@ Through the use of her imagination, this talented young artist has made her drea
 
 "Later, during the showing another decorator came and admired my work so much, he asked if he might arrange for me to meet the 'right' interior decorators and the 'right' owners of galleries who would buy and display my work properly. Incidentally, the show was a financial success for the owner of the gallery, as well as for me.
 
-*"The interesting thing about this is that seemingly these three men came to me 'out of the blue'. Certainly, I made no effort during the time of my 'imagining' to contact anyone; but, now, I am getting recognition and have a market for my work. And, now, I know without a shadow of doubt that there is no 'no' when you seriously apply this principle that 'imagining creates reality.'"* ...G.L.
+*"The interesting thing about this is that seemingly these three men came to me 'out of the blue'. Certainly, I made no effort during the time of my 'imagining' to contact anyone; but, now, I am getting recognition and have a market for my work. And, now, I know without a shadow of doubt that there is no 'no' when you seriously apply this principle that '[imagining creates](/lectures/imagining-creates) reality.'"* ...G.L.
 
 She tested the Potter and proved His creativity in performance.
 
 Only the indolent mind would fail to rise to this challenge.
 
-Paul states, *"the spirit of God dwells in you” (1Cor. 3:16, Romans 8:9, 8:11, James 4:5), now, "* Examine yourselves to see whether you are holding to your faith. Test yourselves. Do you not realize that Jesus Christ is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." (2Cor. 13:5,6)
+Paul states, *"the spirit of God dwells in you” (1Cor. 3:16, Romans 8:9, 8:11, James 4:5), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." (2Cor. 13:5,6)
 
 If *"all things were made through Him, and without Him was not anything made that was made” (John 1:3), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." (Rom. 4:17)
 

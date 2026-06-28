@@ -64,7 +64,7 @@ This discovery reveals that all that I have believed God to be I AM.
 
 *"I AM hath sent me"* (Exodus 3:14) reveals my consciousness to be the Lord which sends me into the world in the image and likeness of that which I am conscious of being to live in a world composed of all that I am conscious of.
 
-*"I AM the Lord, and there is no God beside Me"* (Isaiah 45:5) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
+*"[I AM the Lord](/lectures/i-am-the-lord), and there is no God beside Me"* (Isaiah 45:5) declares my consciousness to be the one and only Lord and beside my consciousness there is no God.
 
 *"BE still and know that I AM God"* (Psalm 46:10) means that I should still the mind and know that consciousness is God.
 

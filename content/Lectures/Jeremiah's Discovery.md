@@ -1,4 +1,4 @@
-The body of scripture is the Word of God, which every child born of woman must hear, assimilate, understand, and fully accept. This belief will cause the Word to erupt within him, and as he experiences God's Word, he discovers who he really is. 
+The body of scripture is the Word of God, which every child born of woman must hear, assimilate, understand, and fully accept. This belief will cause the Word to erupt within him, and as he experiences [God's Word](/lectures/god-s-word), he discovers who he really is. 
 
 The Book of John begins: *"In the beginning was the Word, and the Word was with God and the Word was God. He was in the beginning with God: all things were made through him and without him was not anything made that was made. He was in the world, the world was made by him, yet the world knew him not. He came to his own home and his own people received him not."* 
 
@@ -51,7 +51,7 @@ I have mentioned only a few verses, but I could take you through the entire Bibl
 
 When my mother insisted that my son be baptized, I took him down to an Episcopal minister, where he put a little water on his head. The only thing that happened during that ceremony was that my son got his head wet. It certainly did nothing for him spiritually. But, in spite of the warnings mentioned at the end of Proverbs: *"Let no one add to or take from the word of the prophecies of this book,"* and Revelation, regarding the adding to or taking away from the words of the book, our early fathers did not heed them. 
 
-Rather they tried to make the words conform to their traditions and conventions. The Book of John has many mighty I AM statements: *"I Am the light of the world; I AM the bread of life; I AM the door: I AM the way,"* but at no time did he ever say, *"I AM the convention, or I AM the tradition;"* yet, to support the traditions of the church, the early fathers added to the word of God. 
+Rather they tried to make the words conform to their traditions and conventions. The Book of John has many mighty I AM statements: *"I Am [the light of the world](/lectures/the-light-of-the-world); I AM the bread of life; I AM the door: I AM the way,"* but at no time did he ever say, *"I AM the convention, or I AM the tradition;"* yet, to support the traditions of the church, the early fathers added to the word of God. 
 
 I tell you: behind the mask you wear is the only God. Divine Imagination reproduced himself in you as your human imagination; and because Divine Imagination contains all, everything is contained in the human imagination. One day you will awaken to this fact and discover that the world is yourself pushed out, just as the world is God pushed out. As this knowledge awakens in you, you begin to expand in the bosom of Divine Imagination, for you - human imagination and God, Divine Imagination - are one creator. 
 
@@ -65,7 +65,7 @@ You did it in order to expand your power and your wisdom, for your journey is on
 
 Today you may be satisfied with your earnings and the place in which you live in your contracted form; but one day you will eat (experience) the word of God and expand to the awareness of knowing, *"I am He."* This will happen only when the hunger for such an experience comes upon you, as told us in the Book of Amos: *"I will send a famine upon the land. It will not be a hunger for bread, or a thirst for water, but for the hearing of the word of God."* 
 
-The average person is not interested in hearing revealed truth. Yesterday I read a sermon in the paper where the minister said that religion should be rooted in reason. What nonsense! Religion is revealed truth. How could the story of the birth from above be explained logically? How could one like Nicodemus, born from the womb of woman and approaching the grave, be born from above logically? 
+The average person is not interested in hearing revealed truth). Yesterday I read a sermon in the paper where the minister said that religion should be rooted in reason. What nonsense! Religion is [revealed truth](/lectures/revealed-truth). How could the story of the birth from above be explained logically? How could one like Nicodemus, born from the womb of woman and approaching the grave, be born from above logically? 
 
 The world thinks *"above"* is out there - but it is within. You came *"out"* by being born from below. Only by being born from *"within"* can you enter the kingdom of heaven. That withinness is from above, and that aboveness is the skull of Man. That's where the spiritual birth takes place and there is no water present. 
 
@@ -75,7 +75,7 @@ Jeremiah discovered that Jehovah was his own wonderful human imagination. I know
 
 Then I took it off to come into this garment of flesh. While wearing it, all impossibilities are dissolved, as the touch of exaltation which arises in me imparts to my nature; and wherever I go, clothed in that form, is heaven. 
 
-Blake identified the human imagination with the divine body of the Lord Jesus Christ, saying: *"Babel mocks saying there is no God or son of God, but thou, O human imagination, O divine body art all a delusion, but I know thee, O Lord."* 
+Blake identified the human imagination with the divine body of the Lord [Jesus Christ](/lectures/jesus-christ), saying: *"Babel mocks saying there is no God or son of God, but thou, O human imagination, O divine body art all a delusion, but I know thee, O Lord."* 
 
 Knowing exactly what he had experienced and how he traveled across the bridge of incident which led him back into this mundane state called the waking world, he knew - when he opened his weary eyes - that he had returned. But in that realm, whatever he imagined happened; and he knew the power of the creator. He knew that all things were made by imagination, and without imagination was not anything made that was made. 
 
@@ -114,7 +114,7 @@ I know exactly what I had for dinner this night. I cannot deny the food I ate, a
 
 But while we are here, we are given a law whereby, through its operation, we may know who God is. The law is simple. It is stated many ways, one of which is: *"As a man sows, so shall he reap."* As you imagine you are the man (the woman) you would like to be, you are sowing that imaginal thought in your mind. 
 
-To the degree that you are faithful to that [Assumption](/Assumption), you will reap its fruit in your world; but first you must know what you want. You may not desire the wealth of a Rockefeller or the fame of a Richard Burton. I certainly have no desire for that kind of money or fame; but if someone tells me they really want it, I will pray for him that he has it. 
+To the degree that you are faithful to that Assumption, you will reap its fruit in your world; but first you must know what you want. You may not desire the wealth of a Rockefeller or the fame of a Richard Burton. I certainly have no desire for that kind of money or fame; but if someone tells me they really want it, I will pray for him that he has it. 
 
 Everything here is fading and will one day vanish; but the immortal you who does not function in this world, will live forever. Everything you have ever accomplished here will disappear, leaving not a trace behind; but the being of whom I speak is perfect, and functions in a realm of perfection. 
 
@@ -124,13 +124,13 @@ When you read the Book of John, don't think of eating the body of a physical man
 
 Certain portions you may not be able to digest, so reject it for a while. Eventually you will eat the entire loaf as my friend saw it, as alive, pouring forth blood. The beautiful imagery she saw in her vision is telling her that she has completely accepted the truth, and knows that all things spring from her own wonderful human imagination. She has eaten my body and drunk my blood through her acceptance. 
 
-Now she knows she doesn't have to go to church to have a little wafer and drink a sip of wine to eat the body of God. Rather, she knows she is doing it by accepting the fact that imagining creates reality. She may falter in proving it in the testing, but she has completely accepted it. That's why the symbol came to her in a vision which she can always fall back upon. 
+Now she knows she doesn't have to go to church to have a little wafer and drink a sip of wine to eat the body of God. Rather, she knows she is doing it by accepting the fact that [imagining creates](/lectures/imagining-creates) reality. She may falter in proving it in the testing, but she has completely accepted it. That's why the symbol came to her in a vision which she can always fall back upon. 
 
 Now she knows that she cannot pass the buck by blaming her husband or her children, but must turn to self and say: *"No man takes my power from me, I lay it down myself. And no one comes to me save my Father calls him, for he and I are one."* 
 
 Someone may be a rascal and take from you what is yours; but when you know that imagining creates reality, you will acknowledge that no one could come into your life unless you called him. And he could not have taken from you unless you - by your attitude towards life - had allowed it. 
 
-The world is yourself pushed out, and you either control it or you don't. That's the story of scripture. There is no other God other than your own wonderful human imagination. If, when you speak of Jesus Christ, you mentally bow your head (if not physically) do the same thing when you think of your imagination, for that is he. Imagination is the Word of God who is God Himself. The world was created, is supported, and sustained, by your own wonderful human imagination. Change your imagining! Believe the change into being and you will live in a wonderful world of life. 
+The world is yourself pushed out, and you either control it or you don't. That's the story of scripture. There is [no other God](/lectures/no-other-god) other than your own wonderful human imagination. If, when you speak of Jesus Christ, you mentally bow your head (if not physically) do the same thing when you think of your imagination, for that is he. Imagination is the Word of God who is God Himself. The world was created, is supported, and sustained, by your own wonderful human imagination. Change your imagining! Believe the change into being and you will live in a wonderful world of life. 
 
 Now let us go into the silence.
 

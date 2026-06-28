@@ -8,7 +8,7 @@ Embrace the without within and become one who hears only that which implies the 
 Your inner speech is perpetually written all around you in happenings.  
 Learn to relate these happenings to your inner speech and you will become self-taught.  
 By inner speech is meant those mental conversations which you carry on with yourself.  
-They may be inaudible when you are awake because of the noise and distractions of the outer world of becoming, but they are quite audible in deep [Meditation](/Lectures/Radio Lectures/Meditation) and dream.  
+They may be inaudible when you are awake because of the noise and distractions of the outer world of becoming, but they are quite audible in deep Meditation and dream.  
 But whether they be audible or inaudible, you are their author and fashion your world in their likeness.  
 *"There is a God in heaven (and heaven is within you) that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days. Thy dream, and the visions of thy head upon thy bed, are these."* (Daniel 2:28)
 Inner speech from premises of fulfilled desire is the way to create an intelligible world for yourself.  
@@ -18,7 +18,7 @@ Make your inner speech match your fulfilled desire, for your inner speech is man
 The whole manifested world goes to show us what use we have made of the Word – Inner Speech.  
 An uncritical observation of our inner talking will reveal to us the ideas from which we view the world.  
 Inner talking mirrors our imagination, and our imagination mirrors the state with which it is fused. If the state with which we are fused is the cause of the phenomenon of our life, then we are relieved of the burden of wondering what to do, for we have no alternative but to identify ourselves with our aim, and inasmuch as the state with which we are identified mirrors itself in our inner speech, then to change the state with which we are fused, we must first change our inner talking.  
-It is our [Inner conversations](/Inner-conversations) which make tomorrow's facts.  
+It is our Inner conversations which make tomorrow's facts.  
 *"Put off the former conversation, the old man, which is corrupt... and be renewed in the spirit of your mind... put on the new man, which is created in righteousness."* (Ephesians 4:22-24)
 *"Our minds, like our stomachs, are whetted by change of food."* (Quintillian)
 Stop all of the old mechanical negative inner talking and start a new positive and constructive inner speech from premises of fulfilled desire. Inner talking is the beginning, the sowing of the seeds of future action. To determine the action, you must consciously initiate and control your inner talking.  
@@ -44,7 +44,7 @@ Try to notice what you are saying in yourself at this moment, to what thoughts a
 When imagination matches your inner speech to fulfilled desire, there will then be a straight path in yourself from within out, and the without will instantly reflect the within for you, and you will know reality is only actualized inner talking.  
 *"Receive with meekness the inborn Word which is able to save your souls."* (James 1:21)
 Every stage of man's progress is made by the conscious exercise of his imagination matching his inner speech to his fulfilled desire.  
-Because man does not perfectly match them, the results are uncertain, while they might be perfectly certain. Persistent [Assumption](/Assumption) of the wish fulfilled is the means of fulfilling the intention.  
+Because man does not perfectly match them, the results are uncertain, while they might be perfectly certain. [Persistent Assumption](/lectures/persistent-assumption) of the wish fulfilled is the means of fulfilling the intention.  
 As we control our inner talking, matching it to our fulfilled desires, we can lay aside all other processes. Then we simply act by clear imagination and intention.  
 We imagine the wish fulfilled and carry on mental conversations from that premise.  
 Through controlled inner talking from premises of fulfilled desire, seeming miracles are performed.  
@@ -72,7 +72,7 @@ And what we want to be is already existent, but to realize it we must match our 
 *"If two of you shall agree on earth as touching anything that they shall ask, it shall be done for them of My Father which is in heaven."* (Matthew 18:19)
 It is only what is done now that counts.  
 The present moment does not recede into the past. It advances into the future to confront us, spent or invested.  
-Thought is the coin of heaven. Money is its earthly symbol.  
+Thought is [the coin of heaven](/lectures/the-coin-of-heaven). Money is its earthly symbol.  
 Every moment must be invested, and our inner talking reveals whether we are spending or investing.  
 Be more interested in what you are inwardly *"saying now"* than what you *"have said"* by choosing wisely what you think and what you feel now.  
 Any time we feel misunderstood, misused, neglected, suspicious, afraid, we are spending our thoughts and wasting our time.  
@@ -83,7 +83,7 @@ Before us go the results of all that seemingly is behind. Not gone is the last m
 The circumstances of life are the muffled utterances of the inner talking that made them – the word made visible.  
 *"The Word"*, said Hermes, *"is Son, and the Mind is Father of the Word. They are not separate one from the other; for life is the union of Word and Mind."*  
 *"He willed us forth from Himself by the Word of Truth."* (James 1:18)  
-Let us be imitators of God as dear children, (Ephesians 5:1), and use our inner speech wisely to mould an outer world in harmony with our ideal. *"The Lord spake by me, and His Word was in my tongue."* (2Samuel 23:2)  
+Let us [be imitators of God](/lectures/be-imitators-of-god) as dear children, (Ephesians 5:1), and use our inner speech wisely to mould an outer world in harmony with our ideal. *"The Lord spake by me, and His Word was in my tongue."* (2Samuel 23:2)  
 The mouth of God is the mind of man. Feed God only the best.  
 *"Whatsoever things are of good report... think on these things."* (Philippians 4:8)  
 The present moment is always precisely right for an investment, to inwardly speak the right word.  
@@ -128,7 +128,7 @@ But I know from experience,
 
 ### Persuasion Through Inner Speech
 
-- Control outcomes by being fully persuaded in your [Inner conversations](/Inner-conversations)
+- Control outcomes by being fully persuaded in your Inner conversations
 - Listen attentively within to what you want to hear
 - Embrace the wish fulfilled by inner speech matching the outer
 

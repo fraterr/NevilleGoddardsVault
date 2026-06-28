@@ -3,7 +3,7 @@ The creator of the world works in the depth of your soul, underlying all of your
 Because God is pure imagination and the only creator, if you imagine a state and bring it to pass, you have found Him. Remember: God is your consciousness, your
 I AM; so when you are imagining, God is doing it. If you imagine and forget what you imagine, you may not recognize your harvest when it appears. It may be good, bad, or indifferent, but if you forget how it came into being, you have not found God. 
 
-You do not have to be rich to be happy but you must be imaginative. You could have great wealth and be afraid of tomorrow's needs, or have nothing and travel the world over, for all things exist in your own wonderful human imagination. 
+You do not have to be rich to be happy but you must be imaginative. You could have great wealth and be afraid of tomorrow's needs, or have nothing and travel the world over, for [all things exist](/lectures/all-things-exist) in your own wonderful human imagination. 
 
 Let me tell you a story of a lady I know who traveled in her imagination. When this lady was about sixteen she lived in Northern California. She was devoted to her father, who lived high, wide and handsome. He supplied all of the family's needs very well until the day he was killed. Then, overnight, the family discovered they had nothing! Her mother, feeling she could not stand being ridiculed, moved the family to San Francisco, where the girl - although possessing outstanding artistic talent - found employment as a waitress in order to help the family. 
 
@@ -15,9 +15,9 @@ Two weeks later this girl received a check for $3,000 from a law firm in Chicago
 
 Within one month, the girl was on a ship sailing for Samoa. Coming into the bay, she saw a ship plowing through the water leaving lovely white foam in its path. As the moonlight touched the wake, its spray touched her face and a man standing near said: *"Isn't it a heavenly night."* At that moment her outer senses experienced what she had used her inner senses to make real! 
 
-Now, imagination - being spiritual sensation - is the creator of the world. With her five senses (sight, sound, scent, taste, and touch) she transformed a streetcar in San Francisco into a ship in the South Pacific, and within one month she physically fulfilled her imaginal act. 
+Now, imagination - being [spiritual sensation](/lectures/spiritual-sensation) - is the creator of the world. With her five senses (sight, sound, scent, taste, and touch) she transformed a streetcar in San Francisco into a ship in the South Pacific, and within one month she physically fulfilled her imaginal act. 
 
-Many will say that was just coincidence, but it was not! It is reality, but how do I get you to believe me? But whether you believe me or not, I know from experience that God and you are one grand Imagination, and there is no other God! One day, Imagination in you will awaken and you - fully aware of who you really are - will know that all things are subject to you. That is your destiny. 
+Many will say that was just coincidence, but it was not! It is reality, but how do I get you to believe me? But whether you believe me or not, I know from experience that God and you are one grand Imagination, and there is [no other God](/lectures/no-other-god)! One day, Imagination in you will awaken and you - fully aware of who you really are - will know that all things are subject to you. That is your destiny. 
 
 The present moment is a formed imaginal act. Arrest it, and you can change it in yourself by following the advice given in the 18th chapter of the Book of Jeremiah:
 *" 'Arise! Go down to the potter's house and I will let you hear my words.' So I went down to the potter's house and there he was working at his wheel. The image in his hand was misshapen, but he reworked it into another image as it seemed good to the potter to do."* 
@@ -26,7 +26,7 @@ The word translated *"potter,"* means imagination, and we are told that the Lord
 
 Remember the day your boss criticized you, and you are molding an image of yourself based upon what he said. Being undesirable, that image is misshapen. Unable to discard yourself, go down to the potter's house by taking the same scene and reshaping yourself by remembering the day your boss congratulated you on your accomplishments. Will this act change your world? Yes! I tell you: the God of the universe is shaping you morning, noon, and night, as you accept words, actions, and events from seeming others. 
 
-I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the [Assumption](/Assumption) they are true and - because no power can thwart God - what He is imagining, you will experience. 
+I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the Assumption they are true and - because no power can thwart God - what He is imagining, you will experience. 
 
 You are not someone apart from God, for I AM cannot be divided. The Lord, our God, is one I AM, not two! If God's I AM and your I AM is the same I AM, define what you would like to be. Then believe you are the Lord! Be like the lady who transformed a streetcar into a cruise. Lose yourself in your new state, while your world on the outside remains, momentarily, the same. 
 
@@ -54,7 +54,7 @@ You can not only rework your concept of self into a new one, but you can rework 
 
 There must be action, for an idea alone produces nothing. You must act within yourself by entering the idea. When someone calls or makes a request of you, you must act upon it by producing a motor element within yourself. It may be the sound of their voice telling you it has already happened. Or you may feel the touch of his hand. Whatever you do, it must be something that takes the desire from being an idea and moves it into the creative state of fulfillment. 
 
-The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of [Assumption](/Assumption), there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
+The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of Assumption, there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
 
 I know this doesn't make sense, but as Douglas said: *"The secret of imagining is the greatest of all problems, to the solution of which every mystic aspires, for supreme power, supreme wisdom, and supreme delight lie in the solution of this far-off mystery."* 
 

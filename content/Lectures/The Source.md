@@ -12,11 +12,11 @@ Now, the first verse of Genesis and the first verse of John are equated. Genesis
 
 In Hebrew and other Semitic languages, the words for *"head"* and *"beginning"* have the same root. Achaia, one of the great scholars of the first century and a friend and close companion of Paul, translated the ancient manuscript of Hebrew into Greek. In his translation he used the word *"head"* in place of *"beginning"*. His manuscript reads: *"In the head God created the heavens and the earth."* This Hebrew word *"rosh"* is defined in Strong's Concordance as *"the top; the highest part; the beginning; the head; the chief cornerstone."* So, it is in the head that God created the heavens and the earth. 
 
-Blake, claiming that his great poem *"Jerusalem"* was dictated from on high, stated: *"All that you behold, though it appears without, it is within, in your Imagination of which this world of mortality is but a shadow."* 
+Blake, claiming that his great poem *"Jerusalem"* was dictated from on high, stated: *"[All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your Imagination of which this world of mortality is but a shadow."* 
 
 Blake meant us to take that statement literally. All that you are conscious of is within you. Where else could it be? Looking out, and seeing this world as mechanical and not spiritual, causes you to remain lost in your search, for the world is your minor. You are its source. Everything you perceive is within, for it is in the head that God created the heavens and the earth. 
 
-I am not speaking of your mortal head. It is only a symbol, a reflection of your immortal one. The day will come when your mortal head will return to dust, but there is a head that survives this one. A head capable of instantly restoring and clothing you in a mortal frame just like your present one - only young - to find yourself in a terrestrial world just like this. That is the head in which God sleeps. It is there that the pattern is buried. And it is in that head that the pattern man unfolds to reveal you as the source. 
+I am not speaking of your mortal head. It is only a symbol, a reflection of your immortal one. The day will come when your mortal head will return to dust, but there is a head that survives this one. A head capable of instantly restoring and clothing you in a mortal frame just like your present one - only young - to find yourself in a terrestrial world just like this. That is the head in which God sleeps. It is there that the pattern is buried. And it is in that head that [the pattern man](/lectures/the-pattern-man) unfolds to reveal you as the source. 
 
 Man finds it difficult to believe he is the cause of all life, yet I say there is no other. Look into the eye of your friend - or enemy - and you will see only yourself. You will see Jacob, the apple (little man) of God's eye. 
 
@@ -40,7 +40,7 @@ Dwell upon this change in meaning. It is not in the beginning of time and space,
 
 In the September 7, 1957 issue of the Saturday Evening Post, Harold H. Martin wrote an article entitled, *"The Amazing Kennedys."* In it he said: *"Kennedy admirers look forward confidently to the day that they will see Jack in the White House, Bobby in the Cabinet as Attorney General, and Teddy as a senator from Massachusetts."* 
 
-Here is a family who dared to break one of the most frightful barriers which ever existed in our country concerning the White House - to be a Catholic! My friend David always used the word, *"WASP"*, (meaning White Anglo-Saxon Protestant), claiming that if you were not a WASP you could not seek the highest office in our land. Well, Kennedy was white, Anglo-Saxon, and Catholic. His entire family were ardent Catholics, yet they broke that barrier. Why? Because imagining creates reality. 
+Here is a family who dared to break one of the most frightful barriers which ever existed in our country concerning the White House - to be a Catholic! My friend David always used the word, *"WASP"*, (meaning White Anglo-Saxon Protestant), claiming that if you were not a WASP you could not seek the highest office in our land. Well, Kennedy was white, Anglo-Saxon, and Catholic. His entire family were ardent Catholics, yet they broke that barrier. Why? Because [imagining creates](/lectures/imagining-creates) reality. 
 
 Back in 1957, the imaginal acts of Kennedy admirers were printed for all to see. They did not say that Bobby would have a cabinet post, but specified what post! Or that Teddy would be a senator, but from which state he would represent - and it all came to pass. If it did not last, that is not the point; it came to pass! And because of the assassinations, their imaginal acts will remain indelibly impressed upon the history of our country. Lincoln, as well as those who are not important as presidents, live longer in the minds of men when they are assassinated. So here we find that ardent admirers, determining what they admired, persisted, and it came to pass. Why? Because the whole thing is within! 
 
@@ -64,7 +64,7 @@ You must believe you are in a certain state. You cannot forget it if you want to
 
 If you know what you want, give it to yourself, for there is only one source of causation. That source is God. He is the dreamer in you who will awaken from this wonderful dream of life; and when he does, you will realize you have been dreaming all along. Many great poets have tried to tell this, but man cannot comprehend that the poet - in touch with a deeper layer of his own being - was awakened and recorded his experiences, until it happens in the individual. 
 
-The dreamer in you is God. It is he who is the source, the cause of your life. Dream fervently! Dream with intensity! Use the recorded techniques such as, *"Come close, my son that I may feel you."* You can, by a spiritual sensation, persuade yourself that you are experiencing something physically. 
+The dreamer in you is God. It is he who is the source, the cause of your life. Dream fervently! Dream with intensity! Use the recorded techniques such as, *"Come close, my son that I may feel you."* You can, by a [spiritual sensation](/lectures/spiritual-sensation), persuade yourself that you are experiencing something physically. 
 
 I know a lady in New York City who - as a combination seamstress and designer - was not earning much, and wanted not only to have a better income, but to do more designing than sewing. When she discussed this with me and told me the amount of money she wanted to make, I urged her not to limit herself asking: *"Would you like to supervise those who do the sewing, as well as doing the designing?"* And when she told me she would love that, I urged her to write down the amount of money she would like to make, deduct her taxes, and determine the balance. 
 
@@ -80,7 +80,7 @@ I urge you not to despair. If you have tried and tried to imagine, yet failed, d
 
 Dwell upon the fact that it is in the head that God created the heavens and the earth. Knowing where the head is, you will know where the source is. Then you will know where God is, for he is in the head. 
 
-Look in the mirror and see God! Look at anything that reflects your face, and you are seeing God. Then one day when you stand in His presence you will know him. Called the Universal Humanity, because He takes one after the other into his one body, when you see that body, you see love! You commune as man to man, embrace, and become one with the risen Christ, even though it will take 30 years for confirmation to appear. But the joy that is in store for you when the time is fulfilled and scripture erupts, is well worth the wait, for you will experience all that is said of Jesus Christ - even to God's Son calling you father. 
+Look in the mirror and see God! Look at anything that reflects your face, and you are seeing God. Then one day when you stand in His presence you will know him. Called the Universal Humanity, because He takes one after the other into his one body, when you see that body, you see love! You commune as man to man, embrace, and become one with the risen Christ, even though it will take 30 years for confirmation to appear. But the joy that is in store for you when the time is fulfilled and scripture erupts, is well worth the wait, for you will experience all that is said of [Jesus Christ](/lectures/jesus-christ) - even to God's Son calling you father. 
 
 Scripture really means what it says, for it is David who claims the Lord called him his son (Psalms 2) and it is you who will declare: *"I have found David. He cried to me, 'Thou art my Father, my God and the Rock of my salvation.' "* (Psalms 89) David is buried in the head, where God created everything in the heavens and the earth. It is in the head that God is buried and it is from the head that his fatherhood is revealed. 
 
@@ -134,7 +134,7 @@ Now let us go into the silence.
 - The divine name of Lord is placed upon the Risen Christ after the resurrection.
 
 ### The Supernatural Discovery of God
-- The search for God is a supernatural discovery that is only known through personal experience.
+- [The search](/books/the-search) for God is a supernatural discovery that is only known through personal experience.
 - Share your experience, even if it is not immediately understood by others.
 
 ### Imagination Creates Reality

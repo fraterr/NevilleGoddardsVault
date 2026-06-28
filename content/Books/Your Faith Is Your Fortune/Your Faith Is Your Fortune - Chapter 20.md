@@ -4,7 +4,7 @@ The story tells us that the prophet took the dead child from the Widow’s bosom
 
 Man’s desires can be symbolized as the dead child. The mere fact that he desires is positive proof that the thing desired is not yet a living reality in his world. He tries in every conceivable way to nurse this desire into reality, to make it live, but finds in the end that all attempts are fruitless.
 
-Most men are not aware of the existence of the infinite power within themselves as the prophet. They remain indefinitely with a dead child in their arms, not realizing that the desire is the positive indication of limitless capacities for its fulfillment.
+Most men are not aware of the existence of the [infinite power](/lectures/infinite-power) within themselves as the prophet. They remain indefinitely with a dead child in their arms, not realizing that the desire is the positive indication of limitless capacities for its fulfillment.
 
 Let man once recognize that his consciousness is a prophet who breathes life into all that he is conscious of being, and he will close the door of his senses against his problem and fix his attention solely on that which he desires, knowing that by so doing his desires are certain to be realized. He will discover recognition to be the breath of life, for he will perceive — as he consciously claims himself to be now expressing or possessing all he desires to be or to have — that he will be breathing the breath of life into his desire. The quality claimed for the desire (in a way unknown to him)will begin to move and become a living reality in his world.
 

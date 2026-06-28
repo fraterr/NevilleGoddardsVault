@@ -4,11 +4,11 @@ Let us turn to the first chapter of the epistle of James. *"Ask in faith with no
 
 How do you go about being a doer in place of a hearer only? By acting in faith. Scripture’s central character, called Jesus, set no limit upon the love of God and the power of faith. In fact all of his great deeds were prefaced with the words: *"According to your faith."* Now, faith encompasses feeling. If you have faith you will act, and if you act God in you is acting, for God is your own wonderful human imagination whose eternal name is I AM. He acts only when you feel it. This is true even in the most practical way.
 
-If I tell you what I would like to be and you tell me to go my way, as I am already it - and for one fleeting moment I see the world as I would see it if it were true, then turn and walk away, forgetting what the world looked like only a moment before - I am a forgetful hearer. But if I am a doer of the word and not a hearer only, I persevere; or - as the word is translated in the King James Version - I *"continue in"* the state, for all things are possible to the power of the word.
+If I tell you what I would like to be and you tell me to go my way, as I am already it - and for one fleeting moment I see the world as I would see it if it were true, then turn and walk away, forgetting what the world looked like only a moment before - I am a forgetful hearer. But if I am a doer of the word and not a hearer only, I persevere; or - as the word is translated in the King James Version - I *"continue in"* the state, for [all things are possible](/lectures/all-things-are-possible) to the power of the word.
 
 Look in a mirror and you will see your face reflected there, but you have another mirror which you can look into. That is the mirror of your friends; if they heard your good news, their faces would reflect it would they not? Assume your desire is now a fact. Feel its substance and reality. Then let your friends see you in that state. They are your living mirror.
 
-Now persevere in that state and do not turn away and quickly forget what you are like. Walk through this door tonight in the [Assumption](/Assumption) that you are the man (or woman) you want to be. It doesn’t make any difference if the outside denies it; you have seen the expression on the faces of your friends and heard their congratulations on the inside, with faith. Now, carry this feeling into the deep and persevere. Conjure a living mirror of friends and acquaintances who have heard your good news and accepted it as permanent. See your face reflected in theirs. If they love you, you will see empathy. They will be rejoicing because of your good fortune. Now, persevere in that awareness and do not forget what you have seen in your living mirror. If you do, you will be blessed in the doing, as you are told in the first chapter of the Book of Psalms: *"Blessed is the man who delights in the law of the Lord; the perfect law of liberty, for in all that he does, he prospers."*
+Now persevere in that state and do not turn away and quickly forget what you are like. Walk through this door tonight in the Assumption that you are the man (or woman) you want to be. It doesn’t make any difference if the outside denies it; you have seen the expression on the faces of your friends and heard their congratulations on the inside, with faith. Now, carry this feeling into the deep and persevere. Conjure a living mirror of friends and acquaintances who have heard your good news and accepted it as permanent. See your face reflected in theirs. If they love you, you will see empathy. They will be rejoicing because of your good fortune. Now, persevere in that awareness and do not forget what you have seen in your living mirror. If you do, you will be blessed in the doing, as you are told in the first chapter of the Book of Psalms: *"Blessed is the man who delights in the law of the Lord; the perfect law of liberty, for in all that he does, he prospers."*
 
 Were you not liberated from your past when you saw your friend’s faces reflecting what you wanted them to see? If you had left the state of poverty, sickness, or weakness behind and moved into the state of wealth, health, or strength - and your friends knew it - you would be set free from your former limitation. So, looking into the perfect law of liberty and persevering, you are blessed in all that you do.
 
@@ -24,7 +24,7 @@ I have told this story before, and someone in the audience once said; *"Was that
 
 Do you really want an experience of God? Apply this principle towards it. Do what I did when I wanted to leave Barbados and come to America. I looked into the perfect law of liberty and persevered. God doesn’t give you one law for your desires of this world and another law for your search for him. It’s the same law. If you have had the experience of which I speak, would you tell someone about it? Is it a consuming desire, or do you want something other than that first? Perhaps you want a lovely home, security in the sense of money in the bank that you can touch, or stocks and bonds that pay dividends. If you want to feel wealthy, travel, and have lots of things before you thirst for an experience of Christ, it is secondary, so don’t try it. But if an experience of Christ is your consuming desire then don’t hesitate to put it to the test. Put first things first. If your first desire is to be recognized in the work that I am doing, then apply this principle towards it and let that thirst for God take its own good time to envelop you, and when it does apply this principle towards it.
 
-Feel in depth, for what you feel deeply is more vital than what you think. Every day you can think about how wonderful it would be if - and never act. But if every day you would feel how wonderful it is now, it will become true. Shakespeare said: *"Assume a virtue if you have it not."* A virtue must be felt to be assumed. Refrain from the [Assumption](/Assumption) tonight and it will be easy to refrain next week and still easier the next. But if you will assume your desire is fulfilled now, and persevere in that [Assumption](/Assumption) through the sense of feeling, it will be externalized as a literal fact in your world.
+Feel in depth, for what you feel deeply is more vital than what you think. Every day you can think about how wonderful it would be if - and never act. But if every day you would feel how wonderful it is now, it will become true. Shakespeare said: *"Assume a virtue if you have it not."* A virtue must be felt to be assumed. Refrain from the Assumption tonight and it will be easy to refrain next week and still easier the next. But if you will assume your desire is fulfilled now, and persevere in that Assumption through the sense of feeling, it will be externalized as a literal fact in your world.
 
 I am calling upon everyone to put this into practice. Every desire contains its own satisfaction to be fed upon. It’s entirely up to you. You may feed your hunger by thinking of your desire, or feed its satisfaction by thinking from its fulfillment. It is God who gives you every desire, be it for things of this age or the age to come - as told us in the Book of Amos: *"I will send a famine upon the world. It will not be a hunger for bread or a thirst for water, but for the hearing of the word of God."*
 
@@ -44,7 +44,7 @@ You are buried in the skull and in that skull you will remain, dreaming your dre
 
 In the 25th and 27th chapters of the Book of Genesis, the story is told of Isaac, who had two sons. The first son, Esau, had hair all over while the second son, Jacob, was hairless. Being blind, Isaac calls Esau and asks him to go get some venison for dinner. Jacob, having overheard the request, clothed himself in the skins of his brother Esau and took the venison to his father. Isaac, hearing Jacob’s voice began to doubt, until he felt his reality and caught his odor. Satisfying himself that the son was real, Jacob was given the father’s blessing. When Esau returned from the hunt Jacob disappeared, but Isaac said: *"Although your brother came through deception, I have given him your blessing and I cannot take it back."*
 
-After smothering yourself in feeling, you have sent it on its way and cannot take it back, for [Prayer](/Prayer) is nothing more than the subjective appropriation of an objective hope. Imagine by giving objective reality to your hope. Hair is the most objective thing on a man. Bring your hope so close that you can feel what it would be like if it were objective to you.
+After smothering yourself in feeling, you have sent it on its way and cannot take it back, for Prayer is nothing more than the subjective appropriation of an objective hope. Imagine by giving objective reality to your hope. Hair is the most objective thing on a man. Bring your hope so close that you can feel what it would be like if it were objective to you.
 
 Clothe yourself in that feeling - and you have clothed yourself in the reality of an Esau. The world will not immediately reflect your feeling, but you have set your desire in motion and cannot take it back. You have given a subjective state your blessing by giving it objective reality. Now it must fulfill its destiny so that you will be blessed in all that you are doing.
 
@@ -52,7 +52,7 @@ If you don’t give your subjective hope objective reality, you can’t be bless
 
 In this story we see the importance of feeling. Isaac asked Jacob to come close and kiss him. The word translated *"kiss"* means, *"to set on fire; to burn; to touch."* That’s an emotion, an intense feeling. Reality is felt through the sense of touch. Feeling is touch. Tasting is touch. Scripture tells us he tasted death for all of us. How do you taste death? By experiencing it. Jesus tasted death by dying in all, that all may know who he is.
 
-Now I urge you to put his teaching into practice. He taught you to simply appropriate a subjective state which is your objective hope, and know it must externalize itself in your world. Do that and it will. Ask in faith, without a doubt, for those who doubt are like the wave of the sea that is driven and tossed by the wind. They are double-minded, for they know what they are while desiring to be something else. You must be single-minded by dropping what you believe you are and assuming that you are already what you desire to be, for you cannot desire something you already possess. Look into the wonderful law of liberty which sets you free, and you will see your freedom in the faces of your friends. Persist in your [Assumption](/Assumption) and it must come to pass.
+Now I urge you to put his teaching into practice. He taught you to simply appropriate a subjective state which is your objective hope, and know it must externalize itself in your world. Do that and it will. Ask in faith, without a doubt, for those who doubt are like the wave of the sea that is driven and tossed by the wind. They are double-minded, for they know what they are while desiring to be something else. You must be single-minded by dropping what you believe you are and assuming that you are already what you desire to be, for you cannot desire something you already possess. Look into the wonderful law of liberty which sets you free, and you will see your freedom in the faces of your friends. Persist in your Assumption and it must come to pass.
 
 Now let us go into the silence.
 
@@ -68,23 +68,23 @@ Now let us go into the silence.
 - Faith encompasses feeling, and God acts when we feel deeply
 - Faith and feeling are practical in all aspects of life
 
-### The power of [Assumption](/Assumption)
-- [Assumption](/Assumption) is key to being a doer rather than a hearer only
-- Use the power of [Assumption](/Assumption) to bring desired states into reality
+### The power of Assumption
+- Assumption is key to being a doer rather than a hearer only
+- Use the power of Assumption to bring desired states into reality
 - Your friends serve as a living mirror and reflect the state you assume
 
-### Persevering in [Assumption](/Assumption)
-- Perseverance in [Assumption](/Assumption) is necessary for manifestation
-- Do not forget what you have seen and experienced through [Assumption](/Assumption)
+### Persevering in Assumption
+- Perseverance in Assumption is necessary for manifestation
+- Do not forget what you have seen and experienced through Assumption
 - The perfect law of liberty brings blessings in all actions
 
-### Personal experience with [Assumption](/Assumption)
-- Personal experience confirms the effectiveness of [Assumption](/Assumption)
+### Personal experience with Assumption
+- Personal experience confirms the effectiveness of Assumption
 - Test the law for yourself and speak with authority on the matter
 
 ### Applying the law to desired experiences of God
 - Thirst for a deep experience of God
-- Apply the same law of [Assumption](/Assumption) towards that desire
+- Apply the same law of Assumption towards that desire
 - Do not hesitate to test and prove the law for spiritual experiences
 
 ### Feelings are powerful
@@ -114,14 +114,14 @@ Now let us go into the silence.
 
 ### Put teachings into practice
 - Follow Jesus' teachings of assuming and appropriating subjective states
-- Ask in faith without doubt, and persist in [Assumption](/Assumption) for manifestation
+- Ask in faith without doubt, and persist in Assumption for manifestation
 - Silence is an opportunity to reflect and put these teachings into actioneling and touch are central to experiencing reality
 - Tasting and touching are all forms of feeling
 - Jesus tasted death to bring knowledge and awareness to all
 
 ### Put teachings into practice
 - Follow Jesus' teachings of assuming and appropriating subjective states
-- Ask in faith without doubt, and persist in [Assumption](/Assumption) for manifestation
+- Ask in faith without doubt, and persist in Assumption for manifestation
 - Silence is an opportunity to reflect and put these teachings into action action
 
 

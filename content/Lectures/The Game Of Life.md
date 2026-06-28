@@ -15,10 +15,10 @@ There are those who are depressed all day long and remain that way all of their 
 
 But if you apply this law you can predict your future. Feel a new mood rise within you. Sustain it and soon you will meet people who embody this new state. Even inanimate objects are under the sway of these affinities. In a certain mood I have gone to my library and removed a book I have not touched in years. And when I casually open it, I find confirmation of my mood. A table, though remaining the same, will be seen differently based upon your momentary mood, for everything reflects it. It is your mood which decides your fortune, not your fortune that decides your mood. People feeling poor attract poverty, not knowing that if they felt rich they would attract wealth.
 
-In the Book of Proverbs, it is said: *"The spirit of man is the lamp of the Lord."* Now, the lamp of the Lord is the light of the world. We contain that light; and nature - the genie - is our slave, fashioning the world as our mood dictates. By nature I mean all of humanity - the animal, plant, and mineral world. In fact, everything that appears on the outside is a slave of this lamp. Fashioned from within, this slave will fashion your world to reflect your thoughts; and no power can stop their fulfillment.
+In the Book of Proverbs, it is said: *"The spirit of man is the lamp of the Lord."* Now, the lamp of the Lord is [the light of the world](/lectures/the-light-of-the-world). We contain that light; and nature - the genie - is our slave, fashioning the world as our mood dictates. By nature I mean all of humanity - the animal, plant, and mineral world. In fact, everything that appears on the outside is a slave of this lamp. Fashioned from within, this slave will fashion your world to reflect your thoughts; and no power can stop their fulfillment.
 Become aware of what you are thinking, and you will recognize a law between your mood and your surrounding circumstances. Then you will predict with certainty, because you know certain events - being in harmony with your mood - must appear. Everything - whether a living being or an inanimate object such as a book - must appear to bear witness to your mood.
 
-Now, in order to play the game of life, you must know what you want to replace what you have. When you know what it is, you must assume the feeling that you have it. Although your reason and senses will deny its existence, persistence will cause your [Assumption](/Assumption) to harden into fact and objectify itself upon your screen of space. Play the game this way. You may think it doesn't work, but that's because you have not tried it. You may believe the idea is stupid, but I tell you: the mood decides your fortune. Believe me, for I have proved this principle over and over again in my life.
+Now, in order to play the game of life, you must know what you want to replace what you have. When you know what it is, you must assume the feeling that you have it. Although your reason and senses will deny its existence, persistence will cause your Assumption to harden into fact and objectify itself upon your screen of space. Play the game this way. You may think it doesn't work, but that's because you have not tried it. You may believe the idea is stupid, but I tell you: the mood decides your fortune. Believe me, for I have proved this principle over and over again in my life.
 
 It was Winston Churchill who galvanized the Western world by putting his words into practice. In spite of the horrors and bombing in London, Mr. Churchill sustained the mood of victory, and even in the darkest days he would not waver. Knowing the mood would externalize itself around the world, he sustained the mood - while his opponents, not knowing the law, put their trust in armies and machinery of war.
 
@@ -145,7 +145,7 @@ Now let us go into the silence.
 - Responsibility lies within the individual for their own life and experiences.
 
 ### Letters and Visions as Examples
-- Letters and [Dreams](/Dreams) shared by individuals highlight successful manifestations and visions.
+- Letters and Dreams shared by individuals highlight successful manifestations and visions.
 - Each vision is a foreshadowing of a great event that will happen within everyone, symbolizing the rise of the Son of God within.
 
 ### Playing the Game of Life

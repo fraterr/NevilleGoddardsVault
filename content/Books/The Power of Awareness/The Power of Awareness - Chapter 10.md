@@ -6,11 +6,11 @@ The whole of creation exists in you, and it is your destiny to become increasing
 
 If creation is finished, and all events are taking place now, the question that springs naturally to the mind is *“what determines your time track?”* That is, what determines the events which you encounter? And the answer is your concept of yourself . Concepts determine the route that attention follows. Here is a good test to prove this fact. Assume the feeling of your wish fulfilled and observe the route that your attention follows.
 
-You will observe that as long as you remain faithful to your [Assumption](/Assumption), so long will your attention be confronted with images clearly related to that [Assumption](/Assumption). For example; if you assume that you have a wonderful business, you will notice how in your imagination your attention is focused on incident after incident relating to that [Assumption](/Assumption). Friends congratulate you, tell you how lucky you are.
+You will observe that as long as you remain faithful to your Assumption, so long will your attention be confronted with images clearly related to that Assumption. For example; if you assume that you have a wonderful business, you will notice how in your imagination your attention is focused on incident after incident relating to that Assumption. Friends congratulate you, tell you how lucky you are.
 
 Others are envious and critical. From there your attention goes to larger offices, bigger bank balances, and many other similarly related events.
 
-Persistence in this [Assumption](/Assumption) will result in actually experiencing in fact that which you assumed.
+Persistence in this Assumption will result in actually experiencing in fact that which you assumed.
 
 The same is true regarding any concept. If your concept of yourself is that you are a failure, you would encounter in your imagination a whole series of incidents in conformance to that concept.
 
@@ -39,7 +39,7 @@ You increasingly become aware of its infinite wonders.
 
 Your concept of self directs the route of attention.
 Assuming wish fulfilled focuses attention on related incidents.
-Persisting in [Assumption](/Assumption) manifests it physically.
+Persisting in Assumption manifests it physically.
 Failure concept makes you encounter conforming events.
 
 ### You Shape Present and Future

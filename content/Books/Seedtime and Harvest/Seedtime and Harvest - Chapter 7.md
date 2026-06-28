@@ -10,7 +10,7 @@ When he knows this truth, he will stop the futile struggle of self-contention an
 *"Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms."*
 (Tagore)
 
-In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his [Dreams](/Dreams) and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - Genesis 3:1 - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
+In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - Genesis 3:1 - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
 
 *"...was made subject to vanity, not willingly, but by reason of him who hath subjected the same in hope... For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for it? But if we hope for that we see not, then do we have patience wait for it."*
 (Romans 8:20, 24, 25)
@@ -71,7 +71,7 @@ But how to persuade man this is true - that imaginative life is the only living;
 
 To see as *"though widening chambers of delight"* what living in the realms of imagination means, to appreciate and enjoy the world, one must live imaginatively; one must dream and occupy his dream, then grow and outgrow the dream, forever and ever.
 
-The unimaginative man, who will not lose his life on one level that he may find it on a higher level, is nothing but a Lot's wife - a pillar of self-satisfied salt. On the other hand, those who refuse form as being unspiritual and who reject incarnation as separate from God are ignorant of the great mystery: *"Great is the mystery, God was manifest in the flesh."*
+The unimaginative man, who will not lose his life on one level that he may find it on a higher level, is nothing but a Lot's wife - a pillar of self-satisfied salt. On the other hand, those who refuse form as being unspiritual and who reject incarnation as separate from God are ignorant of [the great mystery](/lectures/the-great-mystery): *"Great is the mystery, God was manifest in the flesh."*
 
 Your life expresses one thing, and one thing only, your state of consciousness.
 

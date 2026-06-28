@@ -8,7 +8,7 @@ If you seek to realize your future dream, it must become a present fact in your 
   
 The purpose of this teaching is to stir the highest in you to confidence and self assertion. The command constantly given us in scripture is to arise. If we are to understand the reason for this, we must recognize that the universe, understood internally, is an infinite series of levels, and man is what he is according to where he is in that series.  
   
-As we lift up our consciousness, our world reshapes itself in harmony with the level to which we have risen. One whose [Prayer](/Prayer) has been granted, rises from his [Prayer](/Prayer) a better man.  
+As we lift up our consciousness, our world reshapes itself in harmony with the level to which we have risen. One whose Prayer has been granted, rises from his Prayer a better man.  
   
 To change your present state you, like Dr. Millikan, must rise to a higher level of consciousness. This rise is accomplished by affirming that you already are what you want to be, and assuming the feeling of your fulfilled desire.  
   
@@ -40,7 +40,7 @@ Accept my challenge! Embody a new and higher value of yourself as Dr. Millikan d
   
 The ideal you serve and hope to achieve is ready and waiting for a new incarnation, but it is incapable of birth unless you offer it human parentage. You must assume that you already are what you hope to be and live as though you were.  
   
-You must know, like Dr. Millikan did, that your [Assumption](/Assumption), though false to the outer world, will harden into fact by your persistence. The perfect man judges not after appearances, but judges righteously. He hears what he wants to hear and sees only the good. Knowing the truth that sets him free, he is lead to all good.  
+You must know, like Dr. Millikan did, that your Assumption, though false to the outer world, will harden into fact by your persistence. The perfect man judges not after appearances, but judges righteously. He hears what he wants to hear and sees only the good. Knowing the truth that sets him free, he is lead to all good.  
   
 Character is largely the result of the direction and persistence of voluntary action; therefore, think truly and your thoughts shall the world's famine feed. Speak truly and each word shall be a fruitful seed. Live truly and your life shall be a great and noble creed.
 

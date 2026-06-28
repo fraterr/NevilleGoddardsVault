@@ -16,7 +16,7 @@ A friend recently wrote, saying: "Not understanding why I read the Bible but nev
 
 My friend was shown how discriminating one must become. The moment you contemplate something you become the very thing you behold. Entertaining a state in sympathy, my friend entered it. That night her heavenly Father taught her a great lesson. That no matter how awake one may be in this world, no one is exempt from falling into a state.
 
-Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly [Dreams](/Dreams) of good and evil, when it left paradise following the serpent."* The serpent, the wisest of God's creations, is the personification of God's wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
+Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly Dreams of good and evil, when it left paradise following the serpent."* The serpent, the wisest of God's creations, is the personification of God's wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
 
 Entering a world of death, you will seem to die to those who cannot follow you - but not to yourself. Instead, you are restored to an unaccountably young body. You may leave an old body with missing hair and teeth, to find yourself in a healthy, new body with your hair and teeth intact. This I know to be true, for my vision is open and I have seen those who have departed this life. I know they are not gone, but are restored to wear a new, young, and healthy body.
 
@@ -69,19 +69,19 @@ Step out of this garment and you will instantly step into another. Ninety per ce
 
 In your night dream you take everything for granted - until you begin to become aware that you are dreaming. If you find yourself waking, try to grab a solid object, like a post - but not an animal, no matter how tame he appears to be. Hold the object and will yourself to wake up, and you will awaken in your dream to find yourself in a world which is just as real as this one. 
 
-When this happens don't get panicky, as you will come back. Instead, if you have any red blood in you investigate the world you find yourself in, and you will discover the people there are just as stupid, just as ambitious, and just as sound asleep as they are here. I have been shut out of this world many times, to return to find this body cataleptic for maybe twenty or twenty-five seconds before I could animate it again. If sometime I do not get back, the doctors will cut up the body to see why I died. They will come to some conclusion; but if they are honest with themselves, they will know that there was no physical reason for my death. I simply left and did not return.
+When this happens don't get panicky, as you will come back. Instead, if you have any red blood in you investigate the world you find yourself in, and you will discover the people there are just as stupid, just as ambitious, and just as sound asleep as they are here. I have been shut [out of this world](/books/out-of-this-world/out-of-this-world) many times, to return to find this body cataleptic for maybe twenty or twenty-five seconds before I could animate it again. If sometime I do not get back, the doctors will cut up the body to see why I died. They will come to some conclusion; but if they are honest with themselves, they will know that there was no physical reason for my death. I simply left and did not return.
 
-But while you are here, why not live well? I think we will all agree that it is easier living when we have wealth than when we are poor. I have no desire to have lots of things, but if anything can be mine by the simple act of [Assumption](/Assumption), why not assume it? No power on earth can stop you from imagining. The morning paper records what happened, but they do not tell you the cause. Who knows who is dreaming what is happening today?
+But while you are here, why not live well? I think we will all agree that it is easier living when we have wealth than when we are poor. I have no desire to have lots of things, but if anything can be mine by the simple act of Assumption, why not assume it? No power on earth can stop you from imagining. The morning paper records what happened, but they do not tell you the cause. Who knows who is dreaming what is happening today?
 
 Two years ago I watched the Kentucky Derby on television. Willie Shoemaker was riding a horse which was favored to win. The night before the race, the owner of the horse had a dream in which he saw Shoemaker - leading by lengths - misjudge the finish line and ride the saddle to ease the horse too soon.
 
 That is exactly what happened. Shoemaker, a truly great jockey, misjudged the finish line, then - realizing his mistake - he could not get enough energy again to win the race and therefore lost it. But who controlled Shoemaker's behavior? The owner told Shoemaker the dream before the race and he listened attentively; then, in the physical event, he couldn't do anything about it. Shoemaker took the brunt. He was condemned and received his sentence, which was a financial loss to him; but Shoemaker didn't have the dream - the owner of the horse did!
 
-You do not have to have a dream of the night to influence the behavior of others. You can dream during the day and influence them, as everyone is contained within you. *"All that you behold, though it appears without it is within, in your Imagination of which this world of mortality is but a shadow."* (William Blake) If everyone is contained within you, you do not need their permission to be used to externalize your dream! The owner used the horse, the jockey and everyone who bet on the event, to externalize his dream. He entered the state unknowingly but couldn't escape its effect. He lost the race in the same manner in which he had envisioned it.
+You do not have to have a dream of the night to influence the behavior of others. You can dream during the day and influence them, as everyone is contained within you. *"[All that you behold](/lectures/all-that-you-behold), though it appears without it is within, in your Imagination of which this world of mortality is but a shadow."* (William Blake) If everyone is contained within you, you do not need their permission to be used to externalize your dream! The owner used the horse, the jockey and everyone who bet on the event, to externalize his dream. He entered the state unknowingly but couldn't escape its effect. He lost the race in the same manner in which he had envisioned it.
 
 You can sit quietly and enter a glorious dream. If it's shadowy, you are not in it. Persist until you enter it, and it will become the only reality. Live in the state of your fulfilled desire now, knowing that in a way unknown and unnoticed by you it will erupt to become an objective fact.
 
-Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your [Assumption](/Assumption) and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
+Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your Assumption and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
 
 One day you will leave this play, knowing you are God the Father who conceived it all. Beginning as the one God, we fell as the gods. But we will return to the one God, for it takes all of us to form the Lord. *"Hear O Israel, the Lord our God, is one Lord."*
 
@@ -98,7 +98,7 @@ Now let us go into the silence.
 
 ## Summary
 
-### Living as if your [Dreams](/Dreams) were already facts
+### Living as if your Dreams were already facts
 
 - Every fact is a dream made visible
 - Live as though your dream is already a fact
@@ -120,7 +120,7 @@ Now let us go into the silence.
 - Entertaining a state in sympathy makes you enter it
 - Be aware that contemplating something makes you become it
 - No one is exempt from falling into a state, regardless of how awake they seem
-- Recognize the states of sleep we fall into in our [Dreams](/Dreams) of good and evil
+- Recognize the states of sleep we fall into in our Dreams of good and evil
 
 ### Becoming what you contemplate
 
@@ -154,22 +154,22 @@ Now let us go into the silence.
 - If you don't like your current state, it is up to you to get out of it
 - Example of helping someone with stomach problems by moving her out of the state causing the issue
 
-### Living well and externalizing [Dreams](/Dreams)
+### Living well and externalizing Dreams
 
-- If anything can be yours by [Assumption](/Assumption), why not assume it?
-- No one can stop you from imagining, and you can use others to externalize your [Dreams](/Dreams)
+- If anything can be yours by Assumption, why not assume it?
+- No one can stop you from imagining, and you can use others to externalize your Dreams
 - Everyone is contained within you, so you don't need their permission to externalize your dream
 - Persist in assuming the feeling of the wish fulfilled, even if reason and senses deny it
 
 ### Realizing the divine nature
 
-- The Father who became you is speaking to you through [Dreams](/Dreams) and revealing Himself in visions
+- The Father who became you is speaking to you through Dreams and revealing Himself in visions
 - You are God the Father who conceived it all, and you will return to the one Godu don't need their permission to externalize your dream
 - Persist in assuming the feeling of the wish fulfilled, even if reason and senses deny it
 
 ### Realizing the divine nature
 
-- The Father who became you is speaking to you through [Dreams](/Dreams) and revealing Himself in visions
+- The Father who became you is speaking to you through Dreams and revealing Himself in visions
 - You are God the Father who conceived it all, and you will return to the one Godone God
 
 

@@ -1,4 +1,4 @@
-God only acts and is in existing beings or men. Embracing the fires of experience, God was consumed by the flames, rose from their ashes, and continues to rise as Jesus Christ, or Divine Imagination. Good and evil are not conditions imposed by some benevolent deity, but states the soul must experience in order to surpass them and awaken as God Himself.   
+[God only acts](/lectures/god-only-acts) and is in existing beings or men. Embracing the fires of experience, God was consumed by the flames, rose from their ashes, and continues to rise as [Jesus Christ](/lectures/jesus-christ), or Divine Imagination. Good and evil are not conditions imposed by some benevolent deity, but states the soul must experience in order to surpass them and awaken as God Himself.   
   
 Tonight I will share with you an experience of a friend, a lady who wrote, saying: *"In my dream I possessed the power to be anything I wanted to be. The moment I observed the being or thing I became it, felt its emotion, and shared its thoughts and environment. This I did throughout the night and awoke reluctantly because I was so enjoying the experience."*   
   
@@ -6,7 +6,7 @@ Now let me tell you what Aldous Huxley wrote about his friend, D. H. Lawrence: *
   
 I am quite sure my friend never read that letter, but I gave her my immortal eyes. The eye of Imagination is now open in her and she has shared her experience of going from state to state, from things to persons, knowing their feelings and emotions. How is that possible? Because God is the only actor.  
   
-Blake makes this statement: *"Eternity Exists and All things in Eternity Independent of Creation which was an act of Mercy. By this it will be seen that I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep into which the Soul may fall in its deadly [Dreams](/Dreams) of Good and Evil when it leaves Paradise following the Serpent."*   
+Blake makes this statement: *"Eternity Exists and All things in Eternity Independent of Creation which was an act of Mercy. By this it will be seen that I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep into which the Soul may fall in its deadly Dreams of Good and Evil when it leaves Paradise following the Serpent."*   
   
 Everything in the world is yourself pushed out. Every animal there can be entered by you, and you can experience its emotion, for that animal is your very self.   
   
@@ -22,7 +22,7 @@ Look at yourself in the mirror and you are seeing the mask God is wearing in thi
   
 You see, God only acts. Sitting in my chair and seeing what I should not see, I acted by consciously entering into the image I was viewing, to discover it was not a flat surface, but a 3-dimensional reality, complete and ready for occupancy.   
   
-My friend knows what it is like to become anything that intrigues her, and I am quite sure she never read the letter Huxley wrote of his friend D. H. Lawrence. This is the same Huxley who showed no interest when I tried to tell him of my birth from above, of David and the visions I have shared with you. He liked me as a friend but he had his own limitations, as everyone does. In a certain social world, if you pronounce a certain word differently you are cataloged as one who is not *"in,"* as it were, and Huxley would not listen to my visions because I did not speak as he thought everyone should. I could have told him things beyond the wildest [Dreams](/Dreams) of his friend D. H. Lawrence, but because of his little stumbling block Aldous could not hear my words.   
+My friend knows what it is like to become anything that intrigues her, and I am quite sure she never read the letter Huxley wrote of his friend D. H. Lawrence. This is the same Huxley who showed no interest when I tried to tell him of my birth from above, of David and the visions I have shared with you. He liked me as a friend but he had his own limitations, as everyone does. In a certain social world, if you pronounce a certain word differently you are cataloged as one who is not *"in,"* as it were, and Huxley would not listen to my visions because I did not speak as he thought everyone should. I could have told him things beyond the wildest Dreams of his friend D. H. Lawrence, but because of his little stumbling block Aldous could not hear my words.   
   
 But I tell you who are seated here tonight: you are the only God. You will know this from experience, for the day is coming when - instead of seeing your thoughts in your minds eye, you will see them 3-dimensionally, just as you are now seeing the speaker. When the eye of imagination opens you will instantly move into the thought, whether it is regarding something that took place ten thousand years ago or exists in what you might think to be the future. I tell you: there is nothing that is not here and now, ready for you to enter and become one with.   
   
@@ -36,9 +36,9 @@ In the Book of Genesis we are told: *"The serpent spoke and said to the woman, �
   
 Blake added this wonderful thought, saying that we left paradise following the serpent. This implies that we did not begin here on earth, but left paradise following the serpent of generation who told us that when we embraced the great experience of good and evil we would be consumed in its fire and yet not die, but would rise from it. In his book, John tells it in a lovely way as: *"I came out from the Father and came into the world. Again I am leaving the world and returning to the Father."* So we did not begin here, but - coming out from the Father - we found these garments that seemed to begin in time, but really are an eternal part of the structure of the universe. In my own case this little garment seemed to begin in 1905, but it was always so. It was always growing into manhood and departing in its sixties. Always appearing, occupied by God, moving towards a certain point and then disappearing.   
   
-All of these are but garments to be picked up and worn. People think they are the garments they wear. That is because they do not know who God is, for he is in the one who is wearing the garment. It is God, your own wonderful human imagination, who acts and is in existing beings or men. There is no other God, no other actor in the universe.   
+All of these are but garments to be picked up and worn. People think they are the garments they wear. That is because they do not know who God is, for he is in the one who is wearing the garment. It is God, your own wonderful human imagination, who acts and is in existing beings or men. There is [no other God](/lectures/no-other-god), no other actor in the universe.   
   
-If you want to test God, you may. Your immortal eyes and ears need not be open to test your creative power. Simply assume you are the one you want to be. Remain faithful to your [Assumption](/Assumption) and, although everything denies it, you will become it. It does not matter who you are or what the world thinks of you; anything is possible to the *"I"* of imagination. As I mentioned earlier, had Aldous only listened to my message, rather than my English, I could have told him things beyond the wildest [Dreams](/Dreams) of D. H. Lawrence. But I am a Colonial in his eyes and, like all Englishmen; the Colonials are looked down upon. If you don’t speak with the Oxford or Cambridge accent, you are a Colonial in their eyes and not one of the boys.   
+If you want to test God, you may. Your immortal eyes and ears need not be open to test your creative power. Simply assume you are the one you want to be. Remain faithful to your Assumption and, although everything denies it, you will become it. It does not matter who you are or what the world thinks of you; anything is possible to the *"I"* of imagination. As I mentioned earlier, had Aldous only listened to my message, rather than my English, I could have told him things beyond the wildest Dreams of D. H. Lawrence. But I am a Colonial in his eyes and, like all Englishmen; the Colonials are looked down upon. If you don’t speak with the Oxford or Cambridge accent, you are a Colonial in their eyes and not one of the boys.   
   
 If Aldous had only listened, I could have told him what it was like to not only be the wave, but to be the ocean. When I was but a boy, years before puberty (in fact it stopped at puberty), I would know the night it was going to happen and was afraid to go to sleep. It was marvelous to be the ocean, but to be the breaking wave (a small portion of my being) was frightening. I - the ocean would toss myself - the wave into the skies and then catch myself upon my own bosom as I fell. This experience would happen to me once a month over a period of years. I could have told him what it was like to be infinite light with no circumference, but my accent put barriers in his mind and he could not hear me. This is true the world over.   
   
@@ -70,7 +70,7 @@ Now let us go into the silence.
 - Good and evil are not imposed by a benevolent deity, but experiences the soul must go through to surpass them and awaken as God.
 
 ### The Power of Imagination
-- Imagination allows one to become anything they want to be in [Dreams](/Dreams).
+- Imagination allows one to become anything they want to be in Dreams.
 - Aldous Huxley described his friend D. H. Lawrence as having the ability to see and experience things beyond mortal perception.
 - Imagination allows one to enter into the thoughts and emotions of other beings or objects because God is the only actor.
 
@@ -99,7 +99,7 @@ Now let us go into the silence.
 - Embracing the fires of experience and being consumed leads to rising as God Himself.
 
 ### Tests of Imagination and Creativity
-- The power of imagination can be tested by assuming one's desired identity and remaining faithful to that [Assumption](/Assumption).
+- The power of imagination can be tested by assuming one's desired identity and remaining faithful to that Assumption.
 - One's accent or external appearance does not define their creative power.
 
 ### The Greater Self and God

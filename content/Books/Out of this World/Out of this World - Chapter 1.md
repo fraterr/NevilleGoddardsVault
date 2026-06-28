@@ -1,7 +1,7 @@
 *"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – (John 14:29)
 
 MANY persons, myself included, have observed events before they occurred; that is, before they occurred in this world of three dimensions. Since man can observe an event before it occurs in the three dimensions of space, life on earth must proceed according to plan, and this plan must exist else-where in another dimension and be slowly moving through our space.
-If the occurring events were not in this world when they were observed, then, to be perfectly logical, they must have been out of this world.
+If the occurring events were not in this world when they were observed, then, to be perfectly logical, they must have been [out of this world](/books/out-of-this-world/out-of-this-world).
 
 And whatever is there to be seen before it occurs here must be *"Predetermined"* from the point of view of man awake in a three-dimensional world.
 
@@ -15,7 +15,7 @@ It is determined by his attitudes rather than by his acts.
 
 The cornerstone on which all things are based is man's concept of himself. He acts as he does and has the experiences that he does, because his concept of himself is what it is, and for no other reason. Had he a different concept of self, he would act differently. A change of concept of self automatically alters his future: and a change in any term of his future series of experiences reciprocally alters his concept of self.
 
-Man's assumptions which he regards as insignificant produce effects that are considerable; therefore man should revise his estimate of an [Assumption](/Assumption), and recognize its creative power.
+Man's assumptions which he regards as insignificant produce effects that are considerable; therefore man should revise his estimate of an Assumption, and recognize its creative power.
 
 All changes take place in consciousness. The future, although prepared in every detail in advance, has several outcomes.
 
@@ -53,11 +53,11 @@ Desires always have some personal gain in view, the greater the anticipated gain
 
 The spiritual man speaks to the natural man through the language of desire.
 
-The key to progress in life and to the fulfillment of [Dreams](/Dreams) lies in ready obedience to its voice.
+The key to progress in life and to the fulfillment of Dreams lies in ready obedience to its voice.
 
-Unhesitating obedience to its voice is an immediate [Assumption](/Assumption) of the wish fulfilled. To desire a state is to have it.
+Unhesitating obedience to its voice is an immediate Assumption of the wish fulfilled. To desire a state is to have it.
 
-As Pascal has said, ―You would not have sought me had you not already found me. Man, by assuming the feeling of his wish fulfilled, and then living and acting on this conviction, alters the future in harmony with his [Assumption](/Assumption).
+As Pascal has said, ―You would not have sought me had you not already found me. Man, by assuming the feeling of his wish fulfilled, and then living and acting on this conviction, alters the future in harmony with his Assumption.
 
 Assumptions awaken what they affirm.
 
@@ -81,7 +81,7 @@ Thirdly: immobilize the physical body and induce a condition akin to sleep – l
 
 It is important always to remember that the proposed action must be one which follows the fulfillment of your desire; and, also, you must feel yourself into the action until it has all the vividness and distinctness of reality.
 
-For example: suppose you desired promotion in office. Being congratulated would be an event you would encounter following the fulfillment of your desire. Having selected this action as the one you will experience in imagination, immobilize the physical body, and induce a [State akin to sleep](/State-akin-to-sleep) – a drowsy state – but one in which you are still able to control the direction of your thoughts – a state in which you are attentive without effort. Now, imagine that a friend is standing before you. Put your imaginary hand into his. First feel it to be solid and real, then carry on an imaginary conversation with him in harmony with the action. Do not visualize yourself at a distance in point of space and at a distance in point of time being congratulated on your good fortune. Instead, make elsewhere here, and the future now. The future event is a reality now in a dimensionally larger world; and, oddly enough, now in a dimensionally larger world, is equivalent to here in the ordinary three-dimensional space of everyday life.
+For example: suppose you desired promotion in office. Being congratulated would be an event you would encounter following the fulfillment of your desire. Having selected this action as the one you will experience in imagination, immobilize the physical body, and induce a State akin to sleep – a drowsy state – but one in which you are still able to control the direction of your thoughts – a state in which you are attentive without effort. Now, imagine that a friend is standing before you. Put your imaginary hand into his. First feel it to be solid and real, then carry on an imaginary conversation with him in harmony with the action. Do not visualize yourself at a distance in point of space and at a distance in point of time being congratulated on your good fortune. Instead, make elsewhere here, and the future now. The future event is a reality now in a dimensionally larger world; and, oddly enough, now in a dimensionally larger world, is equivalent to here in the ordinary three-dimensional space of everyday life.
 
 The difference between feeling yourself in action, here and now, and visualizing yourself in action, as though you were on a motion-picture screen, is the difference between success and failure.
 
@@ -91,7 +91,7 @@ Desire, physical immobility bordering on sleep, and imaginary action in which se
 
 But whether we awaken there or not, we are actually performing the action in the fourth-dimensional world, and we will re-enact it in the future, here in the third-dimensional world.
 
-Experience has taught me to restrict the imaginary action, to condense the idea which is to be the object of our [Meditation](/Lectures/Radio Lectures/Meditation) into a single act, and to re-enact it over and over again until it has the feeling of reality. Otherwise, the attention will wander off along an associational track, and hosts of associated images will be presented to our attention. In a few seconds they will lead us hundreds of miles away from our objective in point of space, and years away in point of time.
+Experience has taught me to restrict the imaginary action, to condense the idea which is to be the object of our Meditation into a single act, and to re-enact it over and over again until it has the feeling of reality. Otherwise, the attention will wander off along an associational track, and hosts of associated images will be presented to our attention. In a few seconds they will lead us hundreds of miles away from our objective in point of space, and years away in point of time.
 
 If we decide to climb a particular flight of stairs, because that is the likely event to follow the realization of our desire, then we must restrict the action to climbing that particular flight of stairs. Should our attention wander off, we must bring it back to its task of climbing that flight of stairs and keep on doing so until the imaginary action has all the solidity and distinctness of reality. The idea must be maintained in the field of presentation without any sensible effort on our part. We must, with the minimum of effort, permeate the mind with the feeling of the wish fulfilled.
 
@@ -103,9 +103,9 @@ If, however, we seek a conscious projection into a dimensionally larger world, t
 
 Experience in imagination, with all the distinctness of reality, what would be experienced in the flesh were you to achieve your goal; and you shall, in time, meet it in the flesh as you met it in your imagination.
 
-Feed the mind with premises – that is, assertions presumed to be true, because assumptions, though unreal to the senses, if persisted in, until they have the feeling of reality, will harden into facts. To an [Assumption](/Assumption) all means which promote its realization are good. It influences the behavior of all by inspiring in all the movements, the actions, and the words which tend towards its fulfillment.
+Feed the mind with premises – that is, assertions presumed to be true, because assumptions, though unreal to the senses, if persisted in, until they have the feeling of reality, will harden into facts. To an Assumption all means which promote its realization are good. It influences the behavior of all by inspiring in all the movements, the actions, and the words which tend towards its fulfillment.
 
-To understand how man molds his future in harmony with his [Assumption](/Assumption) we must know what we mean by a dimensionally larger world, for it is to a dimensionally larger world that we go to alter our future. The observation of an event before it occurs implies that the event is predetermined from the point of view of man in the three-dimensional world. Therefore, to change the conditions here in the three dimensions of space we must first change them in the four dimensions of space.
+To understand how man molds his future in harmony with his Assumption we must know what we mean by a dimensionally larger world, for it is to a dimensionally larger world that we go to alter our future. The observation of an event before it occurs implies that the event is predetermined from the point of view of man in the three-dimensional world. Therefore, to change the conditions here in the three dimensions of space we must first change them in the four dimensions of space.
 
 Man does not know exactly what is meant by a dimensionally larger world, and would no doubt deny the existence of a dimensionally larger self.
 

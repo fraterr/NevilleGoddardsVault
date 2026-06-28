@@ -16,7 +16,7 @@ Faith is feeling or living in the consciousness of being the thing desired; fait
 
 It is faith which enables you to become conscious of being the thing desired; again, it is faith which seals you in this conscious state until your invisible claim ripens to maturity and expresses itself, is made visible.
 
-Faith or feeling is the secret of this appropriation. Through feeling, the consciousness desiring is joined to the thing desired.
+Faith or [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of this appropriation. Through feeling, the consciousness desiring is joined to the thing desired.
 
 How would you feel if you were that which you desire to be?
 
@@ -26,7 +26,7 @@ If you had the faith of a grain of mustard seed you would this day through the m
 
 In this mental stillness or tomblike state you would remain, confident that you need no one to roll away the stone (Matthew 28:2; Mark 16:3; Luke 24:2; John 20:1), for all the mountains, stones and inhabitants of earth are nothing in your sight (Isaiah 40:17; Daniel 4:32). That which you now recognize to be true of yourself (this present conscious state) will do according to its nature among all the inhabitants of earth, and none can stay its hand or say unto it, *"What doest Thou?"* (Daniel 4:32). None can stop this conscious state in which you are sealed from embodying itself, nor question its right to be.
 
-This conscious state when properly sealed by faith is a Word of God, I AM, for the man so seated is saying, *"I AM so and so,"* and the Word of God (my fixed conscious state) is spirit and cannot return unto me void but must accomplish whereunto it is sent. God’s word (your conscious state) must embody itself that you may know: *"I AM the Lord… there is no God beside Me"* (Isaiah 45:5). *"The Word was made flesh and dwelt among us"* (John 1:14), and *"He sent His word and healed him"* (Psalm 107:20).
+This conscious state when properly sealed by faith is a Word of God, I AM, for the man so seated is saying, *"I AM so and so,"* and the Word of God (my fixed conscious state) is spirit and cannot return unto me void but must accomplish whereunto it is sent. God’s word (your conscious state) must embody itself that you may know: *"[I AM the Lord](/lectures/i-am-the-lord)… there is no God beside Me"* (Isaiah 45:5). *"The Word was made flesh and dwelt among us"* (John 1:14), and *"He sent His word and healed him"* (Psalm 107:20).
 
 You too can send your word, God’s Word, and heal a friend. Is there something that you would like to hear of a friend? Define this something that you know he would love to be or to possess. Now with your desire properly defined you have a Word of God. To send this Word on its way, to speak this Word into being, you simply do this. Sit quietly where you are and assume the mental attitude of listening; recall your friend’s voice; with this familiar voice established in your consciousness, imagine that you are actually hearing his voice and that he is telling you that he is or has that which you wanted him to be or to have.
 

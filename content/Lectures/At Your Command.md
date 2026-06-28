@@ -16,7 +16,7 @@ If you, the reader, will give up all of your former beliefs in a God apart from 
   
 Jesus discovered this glorious truth and declared himself to be one with God – not a God that man had fashioned. For he never recognized such a God. He said, *"If any man should ever come, saying, ‘Look here or look there,’ believe them not, for the kingdom of God is within you."* Heaven is within you. Therefore, when it is recorded that *"He went unto his father,"* it is telling you that he rose in consciousness to the point where he was just conscious of _being_, thus transcending the limitations of his present conception of himself, called ‘Jesus.’  
   
-In the _awareness of being_ all things are possible, he said, *"You shall decree a thing and it shall come to pass."* This is his decreeing – rising in consciousness to the naturalness of being the thing desired. As he expressed it, *"And I, if I be lifted up, I shall draw all men unto me."* If I be lifted up in consciousness to the naturalness of the thing desired I will draw the manifestation of that desire unto me. For he states, *"No man comes unto me save the father within me draws him, and I and my father are one."* Therefore, consciousness is the father that is drawing the manifestations of life unto you.  
+In the _awareness of being_ [all things are possible](/lectures/all-things-are-possible), he said, *"You shall decree a thing and it shall come to pass."* This is his decreeing – rising in consciousness to the naturalness of being the thing desired. As he expressed it, *"And I, if I be lifted up, I shall draw all men unto me."* If I be lifted up in consciousness to the naturalness of the thing desired I will draw the manifestation of that desire unto me. For he states, *"No man comes unto me save the father within me draws him, and I and my father are one."* Therefore, consciousness is the father that is drawing the manifestations of life unto you.  
   
 You are, at this very moment, drawing into your world that which you are now conscious of being. Now you can see what is meant by, *"You must be born again."* If you are dissatisfied with your present expression in life the only way to change it, is to take your attention away form that which seems so real to you and rise in consciousness to that which you desire to be. You cannot serve two masters, therefore to take your attention from one state of consciousness and place it upon another is to die to one and live to the other.  
   
@@ -36,7 +36,7 @@ You are told, *"Seek ye first the kingdom of Heaven and all things shall be adde
   
 Apply this principle and you will know what it is to ‘prove me and see.” The story of Mary is the story of every man. Mary was not a woman – giving birth in some miraculous way to one called ‘Jesus.’ Mary is the _awareness of being_ that ever remains virgin, no matter how many desires it gives birth to. Right now look upon yourself as this virgin Mary – being impregnated by yourself through the medium of desire – becoming one with your desire to the point of embodying or giving birth to your desire.  
   
-For instance: It is said of Mary (whom you now know to be yourself) that she know not a man. Yet she conceived. That is, you, John Smith, have no reason to believe that that which you now desire is possible, but having discovered your _awareness of being_ to be God, you make this awareness your husband and conceive a man child (manifestation) of the Lord, *"For thy maker is thine husband; the Lord of hosts is his name; the Lord God of the whole earth shall he be called."* Your ideal or ambition is this conception – the first command to her, which is now to yourself, is *"Go, tell no man."* That is, do not discuss your ambitions or desires with another for the other will only echo your present fears. Secrecy is the first law to be observed in realizing your desire.  
+For instance: It is said of Mary (whom you now know to be yourself) that she know not a man. Yet she conceived. That is, you, John Smith, have no reason to believe that that which you now desire is possible, but having discovered your _awareness of being_ to be God, you make this awareness [your husband](/lectures/your-husband) and conceive a man child (manifestation) of the Lord, *"For thy maker is thine husband; the Lord of hosts is his name; the Lord God of the whole earth shall he be called."* Your ideal or ambition is this conception – the first command to her, which is now to yourself, is *"Go, tell no man."* That is, do not discuss your ambitions or desires with another for the other will only echo your present fears. Secrecy is the first law to be observed in realizing your desire.  
   
 The second, as we are told in the story of Mary, is to *"Magnify the Lord."* We have identified the Lord as your _awareness of being_. Therefore, to ‘magnify the Lord’ is to revalue or expand one’s present conception of one’s self to the point where this revaluation becomes natural. When this naturalness is attained you give birth by becoming that which you are one with in consciousness.  
   
@@ -92,7 +92,7 @@ To get into the nature easily, general amnesty is necessary. We are told, *"Forg
   
 Consciousness, being God, if you hold in consciousness anything against man, you are binding that condition in your world. But to release man from all condemnation is to free yourself so that you may rise to any level necessary; there is therefore, no condemnation to those in Christ Jesus.  
   
-Therefore, a very good practice before you enter into your [Meditation](/Lectures/Radio Lectures/Meditation) is first to free every man in the world from blame. For LAW is never violated and you can rest confidently in the knowledge that every man’s conception of himself is going to be his reward. So you do not have to bother yourself about seeing whether or not man gets what you consider he should get. For life makes no mistakes and always gives man that which man first gives himself.  
+Therefore, a very good practice before you enter into your Meditation is first to free every man in the world from blame. For LAW is never violated and you can rest confidently in the knowledge that every man’s conception of himself is going to be his reward. So you do not have to bother yourself about seeing whether or not man gets what you consider he should get. For life makes no mistakes and always gives man that which man first gives himself.  
   
 This brings us to that much abused statement of the Bible on tithing. Teachers of all kinds have enslaved man with this affair of tithing, for not themselves understanding the nature of tithing and being themselves fearful of lack, they have led their followers to believe that a tenth part of their income should be given to the Lord. Meaning, as they make very clear, that, when one gives a tenth part of his income to their particular organization he is giving his *"tenth part"* to the Lord – (or is tithing). But remember, *"_I AM_"* the Lord.” Your _awareness of being_ is the God that you give to and you ever give in this manner.  
   
@@ -128,7 +128,7 @@ It is said, ‘You believe in God. Believe also in me for I am he.” Have the f
   
 *"Except the Lord build the house they labor in vain that build it."* ‘The Lord,’ being your consciousness, except that which you seek is first established in your consciousness, you will labor in vain to find it. All things must begin and end in consciousness.  
   
-So, blessed indeed is the man that trusteth in himself – for man’s faith in God will ever be measured by his confidence in himself. You believe in a God, believe also in ME.  
+So, blessed indeed is the man that trusteth in himself – for man’s [faith in God](/lectures/faith-in-god) will ever be measured by his confidence in himself. You believe in a God, believe also in ME.  
   
 Put not your trust in men for men but reflect the being that you are, and can only bring to you or do unto you that which you have first done unto yourself.  
   
@@ -180,7 +180,7 @@ I am nameless but will take upon myself every name (nature) that you call me. Re
   
 Now let me instruct you in the art of fishing. It is recorded that the disciples fished all night and caught nothing. Then Jesus came upon the scene and told them to cast their nets in once more, into the same waters that only a moment before were barren – and this time their nets were bursting with the catch.  
   
-This story is taking place in the world today right within you, the reader. For you have within you all the elements necessary to go fishing. But until you find that Jesus Christ, (your awareness) is Lord, you will fish, as did these disciples, in the night of human darkness. That is, you will fish for THINGS thinking things to be real and will fish with the human bait – which is a struggle and an effort – trying to make contact with this one and that one: trying to coerce this being or the other being; and all such effort will be in vain. But when you discover your _awareness of being_ to be Christ Jesus you will let him direct your fishing. And you will fish in consciousness for the things that you desire. For your desire – will be the fish that you will catch, because your consciousness is the only living reality you will fish in the deep waters of consciousness.  
+This story is taking place in the world today right within you, the reader. For you have within you all the elements necessary to go fishing. But until you find that [Jesus Christ](/lectures/jesus-christ), (your awareness) is Lord, you will fish, as did these disciples, in the night of human darkness. That is, you will fish for THINGS thinking things to be real and will fish with the human bait – which is a struggle and an effort – trying to make contact with this one and that one: trying to coerce this being or the other being; and all such effort will be in vain. But when you discover your _awareness of being_ to be Christ Jesus you will let him direct your fishing. And you will fish in consciousness for the things that you desire. For your desire – will be the fish that you will catch, because your consciousness is the only living reality you will fish in the deep waters of consciousness.  
   
 If you would catch that which is beyond your present capacity you must launch out into deeper waters, for, within your present consciousness such fish or desires cannot swim. To launch out into deeper waters, you leave behind you all that is now your present problem, or limitation, by taking your ATTENTION AWAY from it. Turn your back completely upon every problem and limitation that you now possess.  
   
@@ -214,9 +214,9 @@ When you have taken your attention away completely by shutting out the evidence 
   
 Recognition is the power that conjures in the world. Every state that you have ever recognized, you have embodied. That which you are recognizing as true of yourself today is that which you are experiencing. So be as the widow and recognize joy, no matter how little the beginnings of recognition, and you will be generously rewarded – for the world is a magnified mirror, magnifying everything that you are conscious of being.  
   
-*"_I AM_ the Lord the God, which has brought thee out of the land of Egypt, out of the house of bondage; thou shalt have no other gods before me."* What a glorious revelation, your _awareness_ now revealed as the Lord thy God! Come, awake from your dream of being imprisoned. Realize that the earth is yours, *"and the fullness thereof; the world, and all that dwells therein."*  
+*"_I AM_ the Lord the God, which has brought thee out of the land of Egypt, out of the house of bondage; thou shalt have [no other god](/lectures/no-other-god)s before me."* What a glorious revelation, your _awareness_ now revealed as the Lord thy God! Come, awake from your dream of being imprisoned. Realize that the earth is yours, *"and the fullness thereof; the world, and all that dwells therein."*  
   
-You have become so enmeshed in the belief that you are man that you have forgotten the glorious being that you are. Now with your memory restored DECREE the unseen to appear and it SHALL appear, for all things are compelled to respond to the Voice of God, Your _awareness of being_ – the world is _AT YOUR COMMAND!_
+You have become so enmeshed in the belief that you are man that you have forgotten the glorious being that you are. Now with your memory restored DECREE the unseen to appear and it SHALL appear, for all things are compelled to respond to the Voice of God, Your _awareness of being_ – the world is _[AT YOUR COMMAND](/books/at-your-command)!_
 
 
 ## Summary
@@ -238,11 +238,11 @@ You have become so enmeshed in the belief that you are man that you have forgott
 
 ### The Power of "I AM"
 - By claiming God as one's awareness of being, like Jesus and the prophets did, one can transform their world.
-- [Prayer](/Prayer) is recognizing oneself to be what is desired, rather than petitioning an external God.
+- Prayer is recognizing oneself to be what is desired, rather than petitioning an external God.
 - Consciousness is the way through which things appear.
 
 ### Building a New Consciousness
-- To change one's world, one must lay the foundation of "I AM the Lord," realizing that consciousness is the only reality.
+- To change one's world, one must lay the foundation of "[I AM the Lord](/lectures/i-am-the-lord)," realizing that consciousness is the only reality.
 - By making oneself one with the desired state in consciousness, one gives life and form to that desire.
 - The secret to success is to drop the old consciousness and rise to a higher level through faith.
 

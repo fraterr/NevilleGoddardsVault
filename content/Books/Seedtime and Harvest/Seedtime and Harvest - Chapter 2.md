@@ -7,7 +7,7 @@
 *"I see four men loose, walking  in the midst of the fire, and they  have no hurt; and the form of  the fourth is like the Son of  God."*  
 (Daniel 3:25)
 
-*"Four Mighty Ones are in every man."* (William Blake)
+*"[Four Mighty Ones](/lectures/four-mighty-ones) are in every man."* (William Blake)
 
 The *"Four Mighty Ones"* constitute the selfhood of man, or God in man. There are *"Four Mighty Ones"* in every man, but these *"Four Mighty Ones"* are not four separate beings, separated one from the other as are the fingers of his hand.
 
@@ -15,7 +15,7 @@ The *"Four Mighty Ones"* are four different aspects of his mind, and differ from
 
 The *"Four Mighty Ones"* may be equated with the four Hebrew characters: [Yodh, He, Waw, He, from right to left] which form the four-lettered mystery-name of the Creative Power [*"Yahweh"* or even occasionally as *"Jehovah"*] from and combining within itself the past, present and future forms of the verb *"to be."*
 
-The [Tetragrammaton](/Tetragrammaton) is revered as the symbol of the Creative Power in man - I AM - the creative four functions in man reaching forth to realize in actual material phenomena qualities latent in Itself.
+The Tetragrammaton is revered as the symbol of the Creative Power in man - I AM - the creative four functions in man reaching forth to realize in actual material phenomena qualities latent in Itself.
 
 We can best understand the *"Four Mighty Ones"* by comparing them to the four most important characters in the production of a play.
 
@@ -51,7 +51,7 @@ The *"Four Mighty Ones"* are the four quarters of the human soul. The first is J
 
 The drama of life is a joint effort of the four quarters of the human soul.
 
-*"All that you behold, tho' it appears without,  it is within, in your imagination, of which this  world of mortality is but a shadow."*  
+*"[All that you behold](/lectures/all-that-you-behold), tho' it appears without,  it is within, in your imagination, of which this  world of mortality is but a shadow."*  
 (William Blake)
 
 All that we behold is a visual construction contrived to express a theme - a theme which has been dramatized, rehearsed and performed elsewhere. What we are witnessing on the stage of the world is an optical construction devised to express the themes which have been dramatized, rehearsed and performed in the imagination of men.
@@ -95,7 +95,7 @@ In the production of my play - the sailing on a boat that would bring me to New 
 
 This being done, events and people moved swiftly to conform, in the outer world, to the play I had constructed and enacted in my imagination.
 
-*"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own [Dreams](/Dreams)."*  
+*"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own Dreams."*  
 (George William Russell)
 
 I told this story to an audience of mine in San Francisco, and a lady in the audience told me how she had unconsciously used the same technique, when she was a young girl.
@@ -168,7 +168,7 @@ In the intervening years, she had many opportunities to use her imagination cons
 
 ### The Mystic Vision Flows into Reality
 
-- Inner acts shape outer reality; [Dreams](/Dreams) become the worlde world
+- Inner acts shape outer reality; Dreams become the worlde world
 
 
 #Dreams #Tetragrammaton

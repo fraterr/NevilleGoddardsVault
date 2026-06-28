@@ -2,7 +2,7 @@ There is something in this changing, changing world that never changes, and Scri
 
 Now he defines Christ as 'the power of God and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
 
-He saw Christ as a plan ' God's plan of redemption of man. But really, it was the redemption of himself, because God became man, that man might become God. So, he saw Christ differently and there was no one to this day who was greater than Paul concerning the spread of the knowledge of the truth of Christ.
+He saw Christ as a plan ' God's plan of redemption) of man. But really, it was the redemption of himself, because [God became man](/lectures/god-became-man), that man might become God. So, he saw Christ differently and there was no one to this day who was greater than Paul concerning the spread of the knowledge of the truth of Christ.
 
 He neverchanged his religion. He said, 'I am of the seed of Abraham of the tribe of Benjamin, a Pharisee of the Pharisees.' He knew his Law backwards. But he reinterpreted Scripture in the light of his own experiences, and Paul was the first one to use the word Christ, for his letters preceded the Gospels by at least 25 to 30 years. The Gospels were written after the letters of Paul ' whoever Paul was.
 
@@ -18,17 +18,17 @@ As the Psalmist said, 'Rouse thyself. Why sleepest Thou, O Lord? Awake! Do not c
 
 I tell you, you are God dreaming this Dream of Life. You may not know you are; I am telling you that you are. You can put it to the test, and no power in the world can stop it because there is no other power. 'Christ is the power of God and the wisdom of God.' That Power is buried in you! When you say, 'I am,' that's God!
 
-Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your [Assumption](/Assumption)? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
+Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your Assumption? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
 
 Let me share with you some of my own discoveries. We go back, now, to the Psalmist, and the Psalmist asks the question concerning this life: he said, 'Send Thy light and Thy truth to me. Let them bring me to Thy holy hill and to Thy dwelling.' (Psalm 43:3)
 
-Now, when the story is told, it takes a man to tell it, for it takes a man to express the power of God and the wisdom of God, and this one makes the claim, 'I am the Light of the world. I am the Truth.' So, when the Psalmist pleads to the Light and the Truth to lead him, and to lead him to the hill and the dwelling of God, one comes into the world in whom the Light unfolds and the Truth unfolds, and he declares, 'I am the Light of the world. I am the Truth.' Yes, 'I am the Way, I am the Truth, I am the Light' ' the one and only true and living way. To what?
+Now, when the story is told, it takes a man to tell it, for it takes a man to express the power of God and the wisdom of God, and this one makes the claim, 'I am [the Light of the world](/lectures/the-light-of-the-world). I am the Truth.' So, when the Psalmist pleads to the Light and the Truth to lead him, and to lead him to the hill and the dwelling of God, one comes into the world in whom the Light unfolds and the Truth unfolds, and he declares, 'I am the Light of the world. I am the Truth.' Yes, 'I am the Way, I am the Truth, I am the Light' ' the one and only true and living way. To what?
 
 To the Source of all creation, called in Scripture 'the Father.'
 
 'No one comes to the Father but by Me, for I am the Way and the Truth and the Life.'
 
-But Paul discovered this was not a man. This was a pattern. So, in him, Christ became the Pattern Man. 'Follow the pattern of the true words which you have heard from me. Guard the truth which has been entrusted to you by the Holy Spirit who dwells within us.' Do not turn to the left or the right. You guard this Truth; and the Truth is the pattern of 'the true words, which you have heard from me.'
+But Paul discovered this was not a man. This was a pattern. So, in him, Christ became [the Pattern Man](/lectures/the-pattern-man). '[Follow the pattern](/lectures/follow-the-pattern) of the true words which you have heard from me. Guard the truth which has been entrusted to you by the Holy Spirit who dwells within us.' Do not turn to the left or the right. You guard this Truth; and the Truth is the pattern of 'the true words, which you have heard from me.'
 
 He knew his Old Testament. There was no other testament. He never quoted any other book. He didn't quote the great classics proceeding the age, only the Old Testament. And here he saw it in an entirely different light. He saw the Old Testament as an adumbration, an intimation, and then, when it happened in him, he reinterpreted the Old in the light of his own experience, and then he told it.
 
@@ -74,7 +74,7 @@ Everything that man has imagined, is now imagining, or will imagine, will be exp
 
 For the whole search of man is for the key, the Source of the phenomena of life. And there's only one God, and that God is your own wonderful human imagination. So, you are in search of that God, You will find Him, may I tell you, because Truth in Scripture is that which is firm and unchangeable. Let no one tell you that you will find it by dieting, by going to holy places, by attending services on Sunday morning, by going to Mass, by any outside ritual. Forget it.
 
-You are told: 'Blessed are the pure in heart, for they shall see God.' (Matthew 5:8) Well, how do I think I'm 'pure in heart'? By diets? By going to church? By doing all the things that people tell me to do? No.
+You are told: 'Blessed are [the pure in heart](/lectures/the-pure-in-heart), for they shall see God.' (Matthew 5:8) Well, how do I think I'm 'pure in heart'? By diets? By going to church? By doing all the things that people tell me to do? No.
 
 Man is purified by the death of his delusions.
 
@@ -94,7 +94,7 @@ So here, if I am ever to ascend, well then, I must be the One who descended, and
 
 Well, where is heaven? 'The kingdom of heaven is within you,' we are told in the 17th [chapter] of Luke. So, if I would go into heaven, where would I go? I'd return within myself, into this immortal skull, and it reverberates when I re-enter that state. So, I return 'like the fiery serpent.'
 
-Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he [Dreams](/Dreams) the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! Catch the mood. What would the feeling be like if it were true?
+Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he Dreams the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! [Catch the mood](/lectures/catch-the-mood). What would the feeling be like if it were true?
 
 I told you a few, I think, maybe, months ago of a friend of mine who called me. She never had money. I gave her away because she asked me to give her away. She said, 'I have no father to give me.' Whether the father was here, I do not know. And so I said, 'Willingly, I'll give you away.' So, I arranged it ' almost like a funeral. When they said, 'Who giveth this woman to this man?' I stepped forward and said, 'I do.' So, I gave her away. At the reception, this lady came by along with these people, and this one said, 'Who are you?' I said, 'I am the bride's 'father'; I just gave her away.' She said, 'I know you gave her away all right, but who are you?' I said, 'I am her 'father.'' She said, 'Yes, but I happen to be her sister!'
 
@@ -110,7 +110,7 @@ She grew into the consciousness of being wealthy. And they do it as you would fi
 
 'Hear, O Israel, the Lord our God, the Lord is one.'
 
-There are infinite states of consciousness, and we are pilgrims passing through. When you pass through and you are in the state of poverty, and I say, 'Who is poor?' you would answer, 'I am.' Well, you have called the name of God! And then I meet some one who thinks he has a billion or two billion dollars, and I say, 'Who is a fabulously wealthy person?' and he will say, 'I am,' with great pride; but he doesn't differ in name, the name of God, from the poor one who can't pay the rent. It's only a difference in state.
+There are [infinite states](/lectures/infinite-states) of consciousness, and we are pilgrims passing through. When you pass through and you are in the state of poverty, and I say, 'Who is poor?' you would answer, 'I am.' Well, you have called the name of God! And then I meet some one who thinks he has a billion or two billion dollars, and I say, 'Who is a fabulously wealthy person?' and he will say, 'I am,' with great pride; but he doesn't differ in name, the name of God, from the poor one who can't pay the rent. It's only a difference in state.
 
 'So I do not consider either the just or the wicked to be in a supreme state, but to be everyone of them states of the sleep into which the Soul may fall in its deadly dream of good and evil.' [Blake, from 'A Vision of the Last Judgment']
 
@@ -132,7 +132,7 @@ Then he begins to analyze what he means by Christ. Christ is the power, the crea
 
 So, everyone here ' in the interval, do not turn from left to right; do not go after any false gods. '... Why stand we here trembling around, Calling on God for Help, and not ourselves, in whom God dwells?' [Blake, from 'Jerusalem']
 
-Why should I turn to someone else when He dwells in me? Well, find out Who He Is in me. He is my own wonderful human imagination. That's God. Now, how can I prove that? Well, set a goal for yourself. I want this, that or the other. 'All things are possible to God.'
+Why should I turn to someone else when He dwells in me? Well, find out Who He Is in me. He is my own wonderful human imagination. That's God. Now, how can I prove that? Well, set a goal for yourself. I want this, that or the other. '[All things are possible](/lectures/all-things-are-possible) to God.'
 
 'And you tell me my imagination is God? All right, well then, how do I prove that?
 
@@ -146,11 +146,11 @@ You do not know the Scripture. 'Call no man on earth 'father,' for you have but 
 
 Elohim is plural, gods: one made up of others. So, we are the gods that came down and assumed these limitations. And as the gods, we are brothers, everlasting brothers, expanding forever and forever by reason of this experience. So, do not be led astray. If someone wants you to go and see some holy man, run for your life! Go to some holy place? Go and take all these courses and diets? Food cannot commend you to God. You are no worse off if you do not eat, and no better off if you do.
 
-So, when this one comes into the world, having had the experience, they call him a drunkard, they call him a glutton, a leper, and a friend of publicans and sinners, because He's in all of them. He sees nothing to condemn in the world. He sees them only in states. The whole vast drama is the falling into states. And he came to redeem them out of their states of suffering, until that moment in time when they find the Father. And when they find the Father, who had been the Father but themselves! And they go out thinking, 'I will never again see my father's face'; and that Father built is built in Eternity within themselves. And we go here, there and elsewhere, looking for Him, and He is exactly where He was standing before you started the search. But we go in search of Him. And one day He appears, not as another, He comes in the form of a son, and the son reveals you as God the Father! And that son is David.
+So, when this one comes into the world, having had the experience, they call him a drunkard, they call him a glutton, a leper, and a friend of publicans and sinners, because He's in all of them. He sees nothing to condemn in the world. He sees them only in states. The whole vast drama is the falling into states. And he came to redeem them out of their states of suffering, until that moment in time when they find the Father. And when they find the Father, who had been the Father but themselves! And they go out thinking, 'I will never again see my father's face'; and that Father built is built in [Eternity within](/lectures/eternity-within) themselves. And we go here, there and elsewhere, looking for Him, and He is exactly where He was standing before you started [the search](/books/the-search). But we go in search of Him. And one day He appears, not as another, He comes in the form of a son, and the son reveals you as God the Father! And that son is David.
 
 Let the whole vast world rise in opposition. They can never, in Eternity, disprove it. David, as told us in the 2nd Psalm, is the Son of God. 'And I will tell of the decree of the Lord. He said unto me, Thou art my son. Today I have begotten thee.' And to confirm it in the 4th chapter of the book of Acts, read the story ' how by the voice of the Father 'and thy servant,' and the word translated servant is better translated, son. The footnote in the Revised Standard Version gives the alternate translation and it's preferred as the word, son. So, 'Thy son David has said' and then he quotes the 2nd Psalm, telling who is the author, the writer of that Psalm.
 
-But revealed Truth cannot be logically proven. It's not truth based upon what the world would call truth. That is this level, but the Truth spoken of in Scripture is revealed Truth and that cannot be logically proven. You accept it on faith, or you reject it. But may I tell you, even though you reject it ' it may take Eternity, but you will not be lost. One day you will accept it on faith alone, and then it will happen in you and your memory returns and you return to the Being that you really are. And the Being that you are is the Elohim, the brotherhood of the gods, for we fell as one man, and we became fragmented in this world of unnumbered beings, but none will be lost 'in all my holy mountain' ' not one.
+But revealed Truth) cannot be logically proven. It's not truth based upon what the world would call truth. That is this level, but the Truth spoken of in Scripture is [revealed Truth](/lectures/revealed-truth) and that cannot be logically proven. You accept it on faith, or you reject it. But may I tell you, even though you reject it ' it may take Eternity, but you will not be lost. One day you will accept it on faith alone, and then it will happen in you and your memory returns and you return to the Being that you really are. And the Being that you are is the Elohim, the brotherhood of the gods, for we fell as one man, and we became fragmented in this world of unnumbered beings, but none will be lost 'in all my holy mountain' ' not one.
 
 I cannot conceive of one of my brothers that I have known in Eternity being lost. If you play the part of a Hitler, play the part of a Stalin, or any monster in the world, you have fallen into a state, and I must redeem you from that state. So, redeem a man from the state of loneliness, if he is lonely, he wants a companion. What's more marvelous than that in the world? He wants a companion, or she wants a companion. We should all have. If he wants to pay rent, what's wrong with that?
 
@@ -206,7 +206,7 @@ In the 14th chapter of John, he does say, 'but my Father is greater than I.' As 
 
 ### Revealed Truth and Faith
 
-- Revealed Truth cannot be logically proven, it must be accepted on faith
+- Revealed Truth) cannot be logically proven, it must be accepted on faith
 - One day, everyone will accept it and experience it within themselves
 - We are all the brotherhood of gods, and no one will be lost
 - Our purpose is to redeem each other from different states and bring each other back to our true beingnd experience it within themselves

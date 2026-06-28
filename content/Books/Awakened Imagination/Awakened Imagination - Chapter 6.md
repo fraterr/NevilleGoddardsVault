@@ -1,4 +1,4 @@
-THE INNER world was as real to Blake as the outer land of waking life. He looked upon his [Dreams](/Dreams) and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
+THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
 *"The Kingdom of Heaven is within you."* (Luke 17:21)  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
 *"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* (John 6:44; 10:30)  
@@ -6,15 +6,15 @@ The world which is described from observation is a manifestation of the mental a
 When man discovers that his world is his own mental activity made visible, that no man can come unto him except he draws him, and that there is no one to change but himself, his own imaginative self, his first impulse is to reshape the world in the image of his ideal.  
 But his ideal is not so easily incarnated. In that moment when he ceases to conform to external discipline, he must impose upon himself a far more rigorous discipline, the self-discipline upon which the realization of his ideal depends.  
 Imagination is not entirely untrammeled and free to move at will without any rules to constrain it. In fact, the contrary is true. Imagination travels according to habit  
-Imagination has choice, but it chooses according to habit. Awake or asleep, man's imagination is constrained to follow certain definite patterns. It is this benumbing influence of habit that man must change; if he does not, his [Dreams](/Dreams) will fade under the paralysis of custom.  
-Imagination, which is Christ in man, is not subject to the necessity to produce only that which is perfect and good. It exercises its absolute freedom from necessity by endowing the outer physical self with free will to choose to follow good or evil, order or disorder.  
+Imagination has choice, but it chooses according to habit. Awake or asleep, man's imagination is constrained to follow certain definite patterns. It is this benumbing influence of habit that man must change; if he does not, his Dreams will fade under the paralysis of custom.  
+Imagination, which is [Christ in man](/lectures/christ-in-man), is not subject to the necessity to produce only that which is perfect and good. It exercises its absolute freedom from necessity by endowing the outer physical self with free will to choose to follow good or evil, order or disorder.  
 *"Choose this day whom ye will serve."* (Joshua 24:15)  
-But after the choice is made and accepted so that it forms the individual's habitual consciousness, then imagination manifests its infinite power and wisdom by moulding the outer sensuous world of becoming in the image of the habitual inner speech and actions of the individual.  
+But after the choice is made and accepted so that it forms the individual's habitual consciousness, then imagination manifests its infinite [power and wisdom](/lectures/power-and-wisdom) by moulding the outer sensuous world of becoming in the image of the habitual inner speech and actions of the individual.  
 To realize his ideal, man must first change the pattern which his imagination has followed.  
 Habitual thought is indicative of character.  
 The way to change the outer world is to make the inner speech and action match the outer speech and action of fulfilled desire.  
 Our ideals are waiting to be incarnated, but unless we ourselves match our inner speech and action to the speech and action of fulfilled desire, they are incapable of birth.  
-Inner speech and action are the channels of God's action. He cannot respond to our [Prayer](/Prayer) unless these paths are offered.  
+Inner speech and action are the channels of God's action. He cannot respond to our Prayer unless these paths are offered.  
 The outer behaviour of man is mechanical. It is subject to the compulsion applied to it by the behaviour of the inner self, and old habits of the inner self hang on till replaced by new ones. It is a peculiar property of the second or inner man that he gives to the outer self something similar to his own reality of being. Any change in the behavior of the inner self will result in corresponding outer changes.  
 The mystic calls a change of consciousness *"death"*. By death he means, not the destruction of imagination and the state with which it was fused, but the dissolution of their union.  
 Fusion is union rather than oneness. Thus the conditions to which that union gave being vanish. *"I die daily"*, said Paul to the Corinthians (1Corinthians 15:31). Blake said to his friend Crabbe Robinson:  

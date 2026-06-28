@@ -14,7 +14,7 @@ The lady in the following story so successfully felt the feeling of her wish ful
 
 "Most of us read and love fairy stories, but we all know that stories of improbable riches and good fortune are for the delight of the very young. But are they? I want to tell you of something unbelievably wonderful that happened to me through the power of my imagination — and I am not 'young' in years.
 
-We live in an age which believes in neither fable nor magic, and yet everything I could possibly want in my wildest day-[Dreams](/Dreams) was given to me by the simple use of what you teach — that 'imagining creates reality' and that 'feeling' is the secret of imagining.
+We live in an age which believes in neither fable nor magic, and yet everything I could possibly want in my wildest day-Dreams was given to me by the simple use of what you teach — that '[imagining creates](/lectures/imagining-creates) reality' and that 'feeling' is the secret of imagining.
 
 "At the time this wonderful thing happened to me I was out of a job and had no family to fall back upon for support. I needed just about everything. To find a decent job I needed a car to look for it, and though I had a car, it was so worn out it was ready to fall apart. I was behind in my rent; I had no proper clothes to seek a job; and today it's no fun for a woman of fifty-five to apply for a job of any kind. My bank account was almost depleted and there was no friend to whom I could turn.
 
@@ -32,7 +32,7 @@ I would say over and over to myself as I fell asleep, 'Isn't it wonderful! Somet
 
 *"If the fool would persist in his folly He would become wise."* — William Blake
 
-Sir Winston calls on us to act on the [Assumption](/Assumption) that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
+Sir Winston calls on us to act on the Assumption that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
 
 Is this not the secret of *"miracles"*?
 

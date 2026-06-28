@@ -1,4 +1,4 @@
-Many times I have heard someone say: *"I believe that imagining creates reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For God's name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human imagination and there is no other God. 
+Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For God's name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human imagination and there is [no other God](/lectures/no-other-god). 
 
 When you imagine you may include others, but do not think in terms of influence. Rather, think only in terms of clarity of form. 
 
@@ -8,7 +8,7 @@ The law, to be effective, needs feeling with form. Build a structure that would 
 
 Knowing what you want, place your attention on its clarity of form, and then watch what you are imagining. Are you remembering when you imagined something greater than what you have? If so, you are confessing you are not now imagining your desire fulfilled. If imagining creates reality, you must change your memory and become aware of what you are imagining right now. 
 
-Let me now tell you of a series of [Dreams](/Dreams) I received from a friend. The series began one night when she found herself with a group of children, trying to find something that was lost. Seeing a brown paper bag tied with string, she opened it and removed a watch, as one of the children said: 'That is a treasure,' and the dream ended. 
+Let me now tell you of a series of Dreams I received from a friend. The series began one night when she found herself with a group of children, trying to find something that was lost. Seeing a brown paper bag tied with string, she opened it and removed a watch, as one of the children said: 'That is a treasure,' and the dream ended. 
 
 The next night she found herself moving as if on wheels, with everything she sees moving with her. Then she said to herself: 'This is not what I want. Everything is moving, while I still have the sense of longing,' and she awoke. 
 
@@ -28,9 +28,9 @@ Now a dream is egocentric, with every aspect of it taking place in the individua
 
 Returning to this level, the first words given us by the one who comes to reveal this truth - that imagining creates reality - are: 'Repent and believe in the gospel.' Repentance, which is a radical change of attitude, can cause your powerful imagination to burst through this world of death. So I ask you to repent. To test this wonderful law by changing your attitude towards life and watch what happens. 
 
-A gentleman recently dreamed he was peeling his head, bringing the skin down to his neck then pulling it back again. As he did, he realized that he was generating light from the inside and knew that the outside was completely dark. This gentleman saw the truth. Blake said it so beautifully: 'All that you behold, though it appears without it is within, in your imagination of which this world of mortality is but a shadow.' Now he knows that the outer world is being lit by the light of awareness which comes from within. 
+A gentleman recently dreamed he was peeling his head, bringing the skin down to his neck then pulling it back again. As he did, he realized that he was generating light from the inside and knew that the outside was completely dark. This gentleman saw the truth. Blake said it so beautifully: '[All that you behold](/lectures/all-that-you-behold), though it appears without it is within, in your imagination of which this world of mortality is but a shadow.' Now he knows that the outer world is being lit by the light of awareness which comes from within. 
 
-While listening to a taped lecture of mine, this gentleman fell asleep and was awakened by two terrific blows on the right side of his head and saw the index finger of the right hand extended. Having peeled his head, he has removed the outer skin of Esau. Knowing he must continue to wear it while here, this gentleman will put it back on; but now he knows the world is made alive from within - and that in itself is quite a blow. This man has been coming to hear me for only a short time. He has appeared at the eleventh hour and is receiving the same fruit as those who came at the first hour. Everyone receives the same message and the same blows, as they are essential to the awakening of the sleeping one within all. 
+While listening to a taped lecture of mine, this gentleman fell asleep and was awakened by two terrific blows on the right side of his head and saw the [index](/index) finger of the right hand extended. Having peeled his head, he has removed the outer skin of Esau. Knowing he must continue to wear it while here, this gentleman will put it back on; but now he knows the world is made alive from within - and that in itself is quite a blow. This man has been coming to hear me for only a short time. He has appeared at the eleventh hour and is receiving the same fruit as those who came at the first hour. Everyone receives the same message and the same blows, as they are essential to the awakening of the sleeping one within all. 
 
 In his wonderful hymn, Isaac Watts says: *"Wrapped within the silence of the tomb the great redeemer sleeps. Hail and death combined their force to hold our Lord, but the great conqueror arose and broke the fragile chain."* Your heavenly Father sleeps within you as your own wonderful human Imagination. One day He will break the chain and you will rise as He! But in the meantime, put him to the test, and you will discover that neither hail nor death combining their force will keep your desires from being fulfilled. 
 
@@ -54,7 +54,7 @@ Practice the art of imagining, and you will discover you can go anywhere and ent
 
 The world goes on and on, as the actors - playing their numberless parts - desire more and more things that vanish. Man is forever fighting for something that passes away; yet he is told: *"Do not lay up treasures on earth where thieves can take and the moth corrupt, but lay up treasures in heaven where no man can take from you."*
 
-The treasures of earth can be withdrawn at any moment, but the treasures in the instructions I am giving you now are forever. Only one being was pierced, and that is Jesus Christ, your true identity. The crucifixion is over. You have been crucified with Christ, and your resurrection will take place in you, in its own wonderful time. 
+The treasures of earth can be withdrawn at any moment, but the treasures in the instructions I am giving you now are forever. Only one being was pierced, and that is [Jesus Christ](/lectures/jesus-christ), your true identity. The crucifixion is over. You have been crucified with Christ, and your resurrection will take place in you, in its own wonderful time. 
 
 I ask you to test your imagination! Go all out and believe in what you have imagined. Do not try to influence anyone. Instead, put all of your energies into clarity of form. 
 
@@ -77,8 +77,8 @@ Now let us go into the silence.
 ### Awareness of Current Imagining:
 - Be aware of what you are imagining right now and change your memory if it does not align with your desire.
 
-### [Dreams](/Dreams) and Interpretation:
-- A series of [Dreams](/Dreams) was received by a friend, including the presence of children, moving with a sense of longing, attending lectures with memory loss, and meeting the God of love.
+### Dreams and Interpretation:
+- A series of Dreams was received by a friend, including the presence of children, moving with a sense of longing, attending lectures with memory loss, and meeting the God of love.
 - The dream symbols reveal the incorporation of the God of love and the importance of unity and individuality.
 
 ### Repentance and Test:

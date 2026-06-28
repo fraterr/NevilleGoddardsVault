@@ -8,7 +8,7 @@ Him, that is able to do more than you can ask or think, is your imagination, and
 
 He was in the world, and the world was made by him and the world knew him not.
 
-The mystery hid from the ages; Christ in you, the hope of glory.
+The mystery hid from the ages; [Christ in you](/lectures/christ-in-you), the hope of glory.
 
 The *“He,”* in the first of these quotations, is your imagination. As previously explained, there is only one substance. This substance is consciousness. It is your imagination which forms this substance into concepts, which concepts are then manifested as conditions, circumstances, and physical objects. Thus imagination made your world. This supreme truth with but few exceptions man is not conscious of.
 

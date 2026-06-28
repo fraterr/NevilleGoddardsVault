@@ -26,9 +26,9 @@ The following story tells of one who went *"through the glass"* and broke the ch
 
 *"One morning, I moved from my bed to a couch and had started to sit up when I was seized with such an excruciating pain my entire body became paralyzed. I could neither sit up nor lie down. This terrible pain lasted for more than a full minute, but when it stopped — I was free! It seemed as if all the wires binding my legs had been cut. One moment I was bound; the next moment I was free. Not by degrees, but instantly."* ...V.H.
 
-*"We walk by faith, not by sight."*  (2Cor. 5:7)
+*"We walk by faith), not by sight."*  (2Cor. 5:7)
 
-When we walk by sight, we know our way by objects which our eyes see. When we walk by faith, we order our life by scenes and actions which only imagination sees.
+When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only imagination sees.
 
 Man perceives by the Eye of Imagination or by Sense.
 
@@ -36,13 +36,13 @@ But two mental attitudes to perception are possible, the creative imaginative ef
 
 Man has within him the principle of life and the principle of death.
 
-One is the imagination building its imaginal structures out of the generous [Dreams](/Dreams) of fancy. The other is the imagination building its imaginal structures from images reflected by the chill wind of fact.
+One is the imagination building its imaginal structures out of the generous Dreams of fancy. The other is the imagination building its imaginal structures from images reflected by the chill wind of fact.
 
 One creates. The other perpetuates.
 
 Man must adopt either the way of faith or the way of sight.
 
-To the extent that man builds from [Dreams](/Dreams) of fancy, he is alive; and, therefore, the development of the faculty to pass through the reflective glass of the senses is an increase of life.
+To the extent that man builds from Dreams of fancy, he is alive; and, therefore, the development of the faculty to pass through the reflective glass of the senses is an increase of life.
 
 It follows that restricting the imagination by *"staying the eye"* on the reflective glass of the senses is a reduction of life.
 
@@ -86,7 +86,7 @@ This lady *"let go"* with immediate and miraculous results.
 
 *"This took place the night after he had entered the hospital. The following day his wife telephoned me saying, 'It is unbelievable! The doctor can't account for it, Jo, but no operation is necessary. He's so improved that they have agreed to release him tomorrow.' The following Monday, my brother went back to his work and has been perfectly well since that day."* ...J.S.
 
-Not facts — but [Dreams](/Dreams) of fancy shape our lives.
+Not facts — but Dreams of fancy shape our lives.
 
 She needed no compass to find her brother, nor tools to operate, only the *"Eye of Imagination"*.
 
@@ -144,7 +144,7 @@ Paul states: *"I know a man in Christ who fourteen years ago was caught up to th
 
 Paul is telling us that he is that man and that he traveled by the power of imagination or Christ.
 
-In his next letter to the Corinthians, he writes: *"Test yourselves. Do you not realize that Jesus Christ is in you?"* (2Corinthians 13:5). We need not be 'dead' in order to enjoy spiritual privileges. *"Man is All Imagination and God is Man."* (William Blake, from *"Annotations to Berkeley"*). Test yourselves as this mother did.
+In his next letter to the Corinthians, he writes: *"[Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"* (2Corinthians 13:5). We need not be 'dead' in order to enjoy spiritual privileges. *"Man is All Imagination and God is Man."* (William Blake, from *"Annotations to Berkeley"*). Test yourselves as this mother did.
 
 Sir Arthur Eddington said that all we have a right to say of the external world is that it is a *"shared experience"*. Things are more or less 'real' according to the extent to which they are capable of being shared with others or with ourselves at another time.
 
@@ -178,7 +178,7 @@ Vividly imagining the beach scene daily, she was suddenly freed from the paralyz
 
 ### Faith sees the unseen
 
-Walk by faith in scenes and actions only imagination sees, not outer things sight rests upon.
+Walk by faith) in scenes and actions only imagination sees, not outer things sight rests upon.
 
 ### Choose imagining or reflecting
 

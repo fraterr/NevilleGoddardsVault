@@ -1,6 +1,6 @@
 *"But whom say ye that I AM?"* (Matt. 16:15)
 
-*“I AM the Lord; that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*
+*“[I AM the Lord](/lectures/i-am-the-lord); that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*
 
 This I AM within you, the reader, this awareness, this consciousness of being, is the Lord, the God of all Flesh. I AM is He that should come; stop looking for another. As long as you believe in a God apart from yourself you will continue to transfer the power of your expression to your conceptions, forgetting that you are the conceiver.
 
@@ -30,9 +30,9 @@ I AM He. Right now I am overshadowing you, the reader, my living temple, with my
 
 Just how my words, your desires, will be fulfilled is not your concern. My words have a way ye know not of. Their ways are past finding out. All that is required of you is to believe. Believe your desires to be garments your savior wears. Your belief that you are now that which you desire to be is proof of your acceptance of life’s gifts. You have opened the door for your Lord, clothed in your desire, to enter the moment you establish this belief.
 
-When ye pray believe that ye have received and it shall be so. All things are possible to him who believes. Make the impossible possible through your belief; and the impossible (to others) will embody itself in your world.
+When ye pray believe that ye have received and it shall be so. [All things are possible](/lectures/all-things-are-possible) to him who believes. Make the impossible possible through your belief; and the impossible (to others) will embody itself in your world.
 
-All men have had proof of the power of faith. The faith that moves mountains is faith in yourself. No man has faith in God who lacks confidence in himself. Your faith in God is measured by your confidence in yourself. I and my Father are one, man and his God are one, consciousness and manifestation are one.
+All men have had proof of the power of faith. The faith that moves mountains is faith in yourself. No man has [faith in God](/lectures/faith-in-god) who lacks confidence in himself. Your faith in God is measured by your confidence in yourself. I and my Father are one, man and his God are one, consciousness and manifestation are one.
 
 And God said, *“Let there be a firmament in the midst of the waters.”* In the midst of all the doubts and changing opinions of others, let there be a conviction, a firmness of belief, and you shall see the dry land; your belief will appear. The reward is to him that endureth unto the end. A conviction is not a conviction if it can be shaken. Your desire will be as clouds without rain unless you believe.
 

@@ -1,11 +1,12 @@
 import type { Metadata } from "next";
-import { Outfit } from "next/font/google";
+import { EB_Garamond } from "next/font/google";
 import "./globals.css";
 import Sidebar from "@/components/Sidebar";
 
-const outfit = Outfit({
+const garamond = EB_Garamond({
   subsets: ["latin"],
-  variable: "--font-outfit",
+  variable: "--font-garamond",
+  weight: ["400", "500", "600", "700"],
 });
 
 export const metadata: Metadata = {
@@ -19,7 +20,7 @@ export default function RootLayout({
   children: React.ReactNode;
 }>) {
   return (
-    <html lang="en" className={outfit.variable}>
+    <html lang="en" className={garamond.variable}>
       <body>
         <div className="app-container">
           <Sidebar />

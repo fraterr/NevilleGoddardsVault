@@ -1,4 +1,4 @@
-*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* (John 1) Our physical birth is God's incarnation, for incarnation signifies the [Assumption](/Assumption) by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* (John 1) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   
@@ -37,7 +37,7 @@ My friend called it the departure. This does not necessarily mean that he goes t
   
 This crown is not something filled with jewels, but is the victor's crown. Only when one has finished the race can the crown be given. He has fought his own battle with himself, and he has won. His flight into the heavens is a plan which will erupt, causing him to depart this world of Caesar to personally experience Christmas.   
   
-Christmas is not the incarnation of God, but the departure of Man as God; for God became Man that Man may become God. In my friend's dream he took the images of the twentieth century, and since everything contains within itself the capacity for symbolic significance, an airplane symbolizes that which takes off towards the heavens. It's destined to rise above the earth. The *"P"* is the plan of departure which begins with a spiritual birth, followed by the revelation of man's true identity.   
+Christmas is not the incarnation of God, but the departure of Man as God; for [God became Man](/lectures/god-became-man) that Man may become God. In my friend's dream he took the images of the twentieth century, and since everything contains within itself the capacity for symbolic significance, an airplane symbolizes that which takes off towards the heavens. It's destined to rise above the earth. The *"P"* is the plan of departure which begins with a spiritual birth, followed by the revelation of man's true identity.   
   
 There is no way of knowing who you really are until God's Son reveals it, for *"No one knows who the Son is except the Father, and no one knows who the Father is except the son and anyone to whom the Son chooses to reveal him."* The Son must choose to reveal you, for only then do you know you are God the Father.   
   
@@ -63,7 +63,7 @@ Christmas marks the birth of man as God, not the birth of God as man. There is a
   
 When God is born in you it will be in the city of David. At that moment you are born as God. And from then on you will grow in stature. You will grow in favor of the Father because you will know yourself to be one with him. You will continue to remain incarnate, however, until that moment when you express your last breath. Then you will discover yourself to be life itself, for you will have entered the one body, one Spirit, one Lord, one God and Father of all.   
   
-Once individuality became defused in all, as told us in the 82nd Psalm: *"I say, 'You are gods, sons of the Most High, all of you; nevertheless, you will die like men and fall as one man, O princes.' "*Here is this universal diffusion of the one I AM. You say, I am. I say, I am. We say, I am. That's the one being who fell, incarnating himself by becoming Man.   
+Once individuality became defused in all, as told us in the 82nd Psalm: *"I say, 'You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you will die like men and fall as one man, O princes.' "*Here is this universal diffusion of the one I AM. You say, I am. I say, I am. We say, I am. That's the one being who fell, incarnating himself by becoming Man.   
   
 I don't care what is said about Buddha's or Confucius' way; I have told you the only way back to the Father. My testimony is not based upon theory, but upon my own personal experience, and I tell you a truth: there is only one way. I am the way!   
   
@@ -89,7 +89,7 @@ The three witnesses are there, as well as the child wrapped in swaddling clothes
   
 Then, because no one has ever seen God but his only begotten son who is in the bosom of the Father, the second event occurs, when God's son stands before you and makes you known to yourself. Then you, too, will say: *"I am the root and the offspring of David."* For, coming out of the garment you have worn throughout your journey in the world of death, you are David, God's only begotten son!   
   
-There is no other way back to the realization of being God the Father, for He literally became you that you may become God. We are told that Jesus Christ is God's son, yet it is he who claims: I and my Father are one. He who sent me has seen the Father. Claiming to be the son who is the Father is a paradox; yet it is resolved when you realize that the son - coming out from the Father - remains the Father, but is restricted by incarnation.   
+There is no other way back to the realization of being God the Father, for He literally became you that you may become God. We are told that [Jesus Christ](/lectures/jesus-christ) is God's son, yet it is he who claims: I and my Father are one. He who sent me has seen the Father. Claiming to be the son who is the Father is a paradox; yet it is resolved when you realize that the son - coming out from the Father - remains the Father, but is restricted by incarnation.   
   
 God the Father takes upon himself the form of a slave, and - becoming the son - he is obedient until death, even death upon the cross of Man. This God wears, as He moves from one state to another, to another in what the world calls death, until God experiences the one definite plan to return to himself - the Father. So Christmas marks, not the incarnation of God, but the birth of man, as God.   
   

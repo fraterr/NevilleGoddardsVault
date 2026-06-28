@@ -22,7 +22,7 @@ Therefore, through his power to imagine and feel and his freedom to choose the i
 
 The mechanism of creation is hidden in the very depth of the subconscious, the female aspect or womb of creation.
 
-The subconscious transcends reason and is independent of induction. It contemplates a feeling as a fact existing within itself and on this [Assumption](/Assumption) proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a feeling and ends in a volition to act.
+The subconscious transcends reason and is independent of induction. It contemplates a feeling as a fact existing within itself and on this Assumption proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a feeling and ends in a volition to act.
 
 Ideas are impressed on the subconscious through the medium of feeling.
 
@@ -66,7 +66,7 @@ The conscious (objective) or male aspect truly is the head and dominates the sub
 
 However, this leadership is not that of the tyrant, but of the lover.
 
-So, by assuming the feeling that would be yours were you already in possession of your objective, the subconscious is moved to build the exact likeness of your [Assumption](/Assumption).
+So, by assuming the feeling that would be yours were you already in possession of your objective, the subconscious is moved to build the exact likeness of your Assumption.
 
 Your desires are not subconsciously accepted until you assume the feeling of their reality, for only through feeling is an idea subconsciously accepted and only through this subconscious acceptance is it ever expressed.
 
@@ -88,7 +88,7 @@ In short, you express and have only that which you are conscious of being or pos
 
 Mastery of self-control of your thoughts and feelings is your highest achievement.
 
-However, until perfect self-control is attained, so that, in spite of appearances, you feel all that you want to feel, use sleep and [Prayer](/Prayer) to aid you in realizing your desired states.
+However, until perfect self-control is attained, so that, in spite of appearances, you feel all that you want to feel, use sleep and Prayer to aid you in realizing your desired states.
 
 These are the two gateways into the subconscious.
 
@@ -119,10 +119,10 @@ These are the two gateways into the subconscious.
 - It does not judge, simply manifests what you feel to be true.
 - Change feeling  change manifestation.
 
-### [Assumption](/Assumption) and [Prayer](/Prayer)
+### Assumption and Prayer
 
 - Assume the feeling of your wish fulfilled.
-- [Prayer](/Prayer) and sleep aid subconscious impression.
+- Prayer and sleep aid subconscious impression.
 - Master self-control of thoughts/feelings.elings.
 
 

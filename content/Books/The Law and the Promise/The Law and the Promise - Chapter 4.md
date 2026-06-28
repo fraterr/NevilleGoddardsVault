@@ -1,6 +1,6 @@
 *"The distinction between what is real and what is imaginary is not one that can be finally maintained... all existing things are, in an intelligible sense, imaginary."* — John S. MacKenzie
 
-There is no fiction. If an imaginal activity can produce a physical effect, our physical world must be essentially imaginal. To prove this would require merely that we observe our imaginal activities and watch to see whether or not they produce corresponding external effects. If they do, then we must conclude that there is no fiction. Today's imaginal drama — fiction — becomes tomorrow's fact.
+[There is no fiction](/lectures/there-is-no-fiction). If an imaginal activity can produce a physical effect, our physical world must be essentially imaginal. To prove this would require merely that we observe our imaginal activities and watch to see whether or not they produce corresponding external effects. If they do, then we must conclude that there is no fiction. Today's imaginal drama — fiction — becomes tomorrow's fact.
 
 If we had this wider view of causation — that causation is mental, not physical — that our mental states are causative of physical effects, then we would realize our responsibility as a creator and imagine only the best imaginable.
 
@@ -12,7 +12,7 @@ But causation does not lie in the external world of facts. The drama of life ori
 
 The following stories could define *"causation"* as the assemblage of mental states, which occurring, creates that which the assemblage implies.
 
-The foreword from Walter Lord's *"A Night To Remember"* illustrates my claim, *"Imagining Creates Reality."*
+The foreword from Walter Lord's *"A Night To Remember"* illustrates my claim, *"[Imagining Creates](/lectures/imagining-creates) Reality."*
 
 "In 1898, a struggling author, named Morgan Robertson, concocted a novel about a fabulous Atlantic liner, far larger than any that had ever been built. Robertson loaded his ship with rich and complacent people and then wrecked it one cold April night on an iceberg. This somehow showed the futility of everything, and in fact, the book was called 'FUTILITY' when it appeared that year, published by the firm of M. F. Mansfield.
 
@@ -55,11 +55,11 @@ Imaginative writers communicate not their vision of the world but their attitude
 
 *"Prophets”, wrote Blake, "* in the modern sense of the word, have never existed. Jonah was no prophet in the modern sense, for his prophesy of Nineveh failed. Every honest man is a prophet; he utters his opinion both of private & public matters. Thus: If you go on So, the result is So. He never says, such a thing shall happen let you do what you will. A Prophet is a Seer, not an Arbitrary Dictator." The function of the Prophet is not to tell us what is inevitable, but to tell us what can be built up out of persistent imaginal activities.
 
-The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your [Dreams](/Dreams) and the visions of your head as you lay in bed"* (Daniel 2:28). *"Would that all the Lord's people were prophets"* (Numbers 11:29) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
+The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your Dreams and the visions of your head as you lay in bed"* (Daniel 2:28). *"Would that all the Lord's people were prophets"* (Numbers 11:29) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
 
 *"...The mind can make Substance, and people planets of its own with beings brighter than have been, and give a breath to forms which can outlive all flesh..."* (Lord G. Byron) "
 
-As my story begins at the age of nineteen I was a mildly successful dancing teacher and continued in this static state for almost five years. At the end of this time I met a young lady who talked me into attending your lectures. My thought, upon hearing you say 'Imagining creates reality', was that the entire idea was ridiculous. However, I decided to accept your challenge and disprove your thesis. I bought your book 'Out of This World' and read it many times. Still unconvinced, I set myself a rather ambitious goal. My present position was as an instructor with the Arthur Murray Dance Studio and my goal was to own a franchise and be boss of an Arthur Murray studio myself!
+As my story begins at the age of nineteen I was a mildly successful dancing teacher and continued in this static state for almost five years. At the end of this time I met a young lady who talked me into attending your lectures. My thought, upon hearing you say 'Imagining creates reality', was that the entire idea was ridiculous. However, I decided to accept your challenge and disprove your thesis. I bought your book '[Out of This World](/books/out-of-this-world/out-of-this-world)' and read it many times. Still unconvinced, I set myself a rather ambitious goal. My present position was as an instructor with the Arthur Murray Dance Studio and my goal was to own a franchise and be boss of an Arthur Murray studio myself!
 
 "This seemed the most unlikely thing in the world as franchises were extremely difficult to secure, but on top of this fact, I was completely without the necessary funds to begin such an operation. Nevertheless. I assumed the feeling of my wish fulfilled as night after night, in my imagination, I went to sleep managing my own studio. Three weeks later a friend called me from Reno, Nevada. He had the Murray Studio there and said it was too much for him to cope with alone. He offered me a partnership and I was delighted; so delighted, in fact, that I hastened to Reno on borrowed money and promptly forgot all about you and your story of Imagination!
 
@@ -91,7 +91,7 @@ There is no fiction. Imagining fulfills itself in what our lives become.
 
 The Greeks were right: *"The Gods have come down to us in the likeness of men!"* (Acts 14:11). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
 
-*"Real are the [Dreams](/Dreams) of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
+*"Real are the Dreams of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
 
 E.B., an author, is fully aware that *"today's fiction can become tomorrow's fact"*. In this letter, she writes
 

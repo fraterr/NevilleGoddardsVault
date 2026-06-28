@@ -6,7 +6,7 @@ If we are faithful to vision, the image will create for itself the only physical
 
 We speak of the *"reality"* of a thing when we mean its material substance. That is exactly what an imaginist means by its *"unreality"* or shadow.
 
-Imagining is spiritual sensation.
+Imagining is [spiritual sensation](/lectures/spiritual-sensation).
 
 Enter into the feeling of your wish fulfilled. Through spiritual sensation — through your use of imaginal sight, sound, scent, taste and touch — you will give to your image the sensory vividness necessary to produce that image in your outer or shadow world.
 
@@ -24,11 +24,11 @@ Approaching the salesman I had seen in imagination that morning, I said, 'Do you
 
 *"As I turned to leave the shop, I noticed on a top shelf what I thought to be an advertisement of this set of records and remarked to the salesman, 'If you don't have the merchandise, you shouldn't advertise it.' 'That's right', he replied, and as he reached up to take it down, discovered it to be a complete album, with all five records! The scene wasn't played exactly as I had constructed it, but the result confirmed what my imagined scene implied. How can I thank you?"* ...F.B.
 
-After reading F.B.'s letter, we must agree with Anthony Eden that *"An [Assumption](/Assumption), though false, if persisted in, will harden into fact."* F.B.'s fancy, fusing with the sense-field of the record shop, enriched aspects of it and made them 'his' — what he perceived.
+After reading F.B.'s letter, we must agree with Anthony Eden that *"An Assumption, though false, if persisted in, will harden into fact."* F.B.'s fancy, fusing with the sense-field of the record shop, enriched aspects of it and made them 'his' — what he perceived.
 
 Our future is our imagining in its creative march. F.B. used his imagination for a conscious purpose representing life as he desired it to be and thereby affecting life instead of merely reflecting it. So sure was he that his imaginal drama was the reality — and the physical act but a shadow — that when the salesman said *"No, we haven't"*, F.B. mentally said, *"That's not what I heard you say!"* He not only remembered what he had heard, but he was still remembering it. Imagining the wish fulfilled is the seeking that finds, the asking that receives, the knocking to which is opened. He saw and heard what he desired to see and hear; and would not take *"No, we haven't"* for an answer.
 
-The imaginist [Dreams](/Dreams) while awake. He is not the servant of his Vision, but the master of the direction of his attention. Imaginative constancy controls perception of events in space-time. Unfortunately, most men are...
+The imaginist Dreams while awake. He is not the servant of his Vision, but the master of the direction of his attention. Imaginative constancy controls perception of events in space-time. Unfortunately, most men are...
 
 "Ever changing, like a joyless eye
 That finds no object worth its constancy..."
@@ -46,11 +46,11 @@ Mrs. G.R., too, had imaginatively heard what she wanted to physically hear and k
 
 *"I turned to my imagination, and this is what I did. Completely disregarding all that had been said by attorneys, witnesses and the judge who seemed to favor the plaintiff, I thought only of the words I wanted to hear. In my imagination, I listened intently and heard the foreman of the jury say, 'We find the defendant not guilty'. I listened until I knew it was true. I closed my mind's ear to everything said in that courtroom and heard only those words, 'We find the defendant not guilty!' The jury deliberated from noon recess until four-thirty that afternoon, and all during those hours I sat in the courtroom and heard those words over and over in my imagination. When the jurors returned, the Judge asked the foreman to stand and give their verdict. The foreman stood up and said, 'We find the defendant NOT guilty'."* ...Mrs. G.R.
 
-"If there were [Dreams](/Dreams) to sell
+"If there were Dreams to sell
 What would you buy?"
 (Thomas Lovell Beddoes, *"Dream-Pedlary"*)
 
-Would you not buy your wish fulfilled? Your [Dreams](/Dreams) are without price and without money. By locking up the jury in her imagination — hearing only what she wanted to hear, she called the jury to unanimity on her behalf. Imagining being the reality of all that exists, with it the lady achieved her wish fulfilled.
+Would you not buy your wish fulfilled? Your Dreams are without price and without money. By locking up the jury in her imagination — hearing only what she wanted to hear, she called the jury to unanimity on her behalf. Imagining being the reality of all that exists, with it the lady achieved her wish fulfilled.
 
 Hebbel's statement that *"the poet creates from contemplation"* is true of imaginists as well.
 
@@ -74,7 +74,7 @@ By imagining that she was seated in her own chair, in her own living room, surro
 
 Your imagination is most creative when you imagine things as you desire them to be, building a new experience out of a dream of fancy. To build such a dream of fancy in her imagination, F.G. brought to play all of her senses — sight, sound, touch, smell — even taste. This is her story:
 
-"Since childhood, I have dreamed of visiting far-away places. The West Indies, particularly, fired my fancy, and I would revel in the feeling of actually being there. [Dreams](/Dreams) are wonderfully inexpensive and as an adult I continued to dream my [Dreams](/Dreams), for I had no money or time to make them 'come true'. Last year I was taken to the hospital in need of surgery. I had heard your teaching and, while recuperating, had decided to intensify my favorite daydream while I had time on my hands. I actually wrote to the Alcoa Steamship Line asking for free travel folders and pored over them, hour after hour, choosing the ship and the stateroom and the seven ports I desired most to see. I would close my eyes and, in my imagination, would walk up the gangplank of that ship and feel the movement of water as the great liner pushed its way into free ocean. I heard the thud of waves breaking against the sides of the ship, felt the steaming warmth of a tropical sun on my face and smelled and tasted salt in the air as we all sailed through blue waters.
+"Since childhood, I have dreamed of visiting far-away places. The West Indies, particularly, fired my fancy, and I would revel in the feeling of actually being there. Dreams are wonderfully inexpensive and as an adult I continued to dream my Dreams, for I had no money or time to make them 'come true'. Last year I was taken to the hospital in need of surgery. I had heard your teaching and, while recuperating, had decided to intensify my favorite daydream while I had time on my hands. I actually wrote to the Alcoa Steamship Line asking for free travel folders and pored over them, hour after hour, choosing the ship and the stateroom and the seven ports I desired most to see. I would close my eyes and, in my imagination, would walk up the gangplank of that ship and feel the movement of water as the great liner pushed its way into free ocean. I heard the thud of waves breaking against the sides of the ship, felt the steaming warmth of a tropical sun on my face and smelled and tasted salt in the air as we all sailed through blue waters.
 
 *"For one solid week, confined to a hospital bed, I lived the free and happy experience of actually being on that ship. Then, the day before my release from the hospital, I tucked the colored folders away and forgot them. Two months later, I received a telegram from an advertising agency telling me I had won a contest. I remembered having deposited a contest coupon some months before in a neighborhood supermarket but had completely forgotten the act. I had won first prize and — wonder of wonders — it entitled me to a Caribbean cruise sponsored by the Alcoa Steamship Line. But the wonder didn't stop there. The very stateroom I had imaginatively lived in and moved about in while confined to a hospital bed had been assigned to me. And to make an unbelievable story even more unbelievable, I sailed on the one ship I had chosen — which stopped in not one, but all of the seven ports I had desired to visit!"* ...F.G.
 
@@ -109,7 +109,7 @@ F.B. imagined consciously, affecting life rather than just reflecting it. He wou
 
 ### Imaginative constancy controls perception of events
 
-The imaginist [Dreams](/Dreams) while awake, master of his attention's direction. Mrs. G.R. imagined desired court verdict and persisted until physically hearing it.
+The imaginist Dreams while awake, master of his attention's direction. Mrs. G.R. imagined desired court verdict and persisted until physically hearing it.
 
 ### Buy your wish fulfilled
 

@@ -2,7 +2,7 @@ The mystery of creation is to be understood in terms of faith, so what is faith?
   
 *"Many suppose that before creation, all was solitude and chaos. That is the most pernicious idea that can enter the mind of man, for it robs the Bible of all sublimity and the nature of the man who entertains that idea a little grubbing worm outside of himself. Eternity exists and all things in eternity, independent of creation which was an act of mercy."* (William Blake)  
   
-All things exist, and the mystery of their creation must be understood in terms of faith. But faith does not give reality to that which is unseen. Faith is loyalty to the unseen reality! Only in this sense can the meaning of faith be understood.   
+[All things exist](/lectures/all-things-exist), and the mystery of their creation must be understood in terms of faith. But faith does not give reality to that which is unseen. Faith is loyalty to the unseen reality! Only in this sense can the meaning of faith be understood.   
   
 If you have a goal, although it is unseen, it already exists. Your normal mortal eye cannot see it, but by rearranging the structure of your mind, you can see it clearly. If, as the days follow one another, you remain loyal to this unseen reality, and your goal is reached, you will have discovered the mystery of creation.   
   
@@ -14,13 +14,13 @@ Having been promised that if they could believe, it would come to pass, they bel
   
 God's promise has fulfilled itself in me. I have recorded it for posterity as vividly and as accurately as I can in my book, Resurrection. You can read of my experiences and believe them or disbelieve them. It's up to you. Perhaps at the present time you do not want to leave this sphere and enter the kingdom of heaven.   
   
-Now, *"By faith we understand that the world was created by the word of God,"* which is His power and wisdom, called Christ. Any Christ other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
+Now, *"By faith we understand that the world was created by the word of God,"* which is His [power and wisdom](/lectures/power-and-wisdom), called Christ. Any Christ other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
   
-Paul tells us: *"The mystery hidden from the ages, Christ in you, is the hope of glory."* Any hope you have of entering a glory that transcends all earthly power and wisdom is already in you, but hidden. Christ is the way, the pattern to follow for entrance into that glory.   
+Paul tells us: *"The mystery hidden from the ages, [Christ in you](/lectures/christ-in-you), is the hope of glory."* Any hope you have of entering a glory that transcends all earthly power and wisdom is already in you, but hidden. Christ is the way, the pattern to follow for entrance into that glory.   
   
 If everything exists, whether visible or invisible, then my father and mother who have departed this world exist, and would revel in anything that I accomplish here. Although my mother left this world in 1941 and my father in `59, I can bring them into my mind's eye and hear them speak of their pride in their son. Believing that everything I can conceive is part of the structure of the universe, I can assume they are fully aware of my accomplishments, so I listen to their joy.   
   
-Now, can I remain faithful to that scene? My faith is not going to give it reality, but my loyalty to the unseen reality will. I listen and remember what I heard, and in the tomorrows I continue to remember. Then, in its own appointed time, when that which I have been faithful to externalizes itself, I will have found the great secret of creation.   
+Now, can I remain faithful to that scene? My faith is not going to give it reality, but my loyalty to the unseen reality will. I listen and remember what I heard, and in the tomorrows I continue to remember. Then, in its own appointed time, when that which I have been faithful to externalizes itself, I will have found [the great secret](/lectures/the-great-secret) of creation.   
   
 God tells us he does not create something out of nothing, for all things are! That he calls a thing that is not now seen as though it were seen, and the unseen becomes seen. (Romans 4:17) Instead of calling something out of nothing, you simply rearrange that which already is until it implies what you want. Then you remain loyal to that unseen reality.   
   
@@ -55,7 +55,7 @@ Or it is no virtue at all. 
 And love is forgiving what is unforgivable,  
 Or it is no virtue at all.   
   
-These are the three virtues under which the civilized world comes - Faith, Hope and Love.   
+These are the three virtues under which the civilized world comes - [Faith, Hope and Love](/lectures/faith-hope-and-love).   
   
   
 You may not be able to see the fulfillment of your desires with your mortal eye. Your senses and reason may deny their existence, but this is the way God created the world. You are invited to imitate him as a dear child, by remaining faithful to the unseen reality in your mind until it becomes seen in your world. And when it does you will have proved God's law.   
@@ -66,7 +66,7 @@ All of the promises of God have found their Yes in me. I remain with you now onl
   
 I have described the pattern for entrance into that world. It consists of a series of four mystical events which, when experienced, frees the individual from this level and opens the door into the world of the promise. I have shared my experiences; yet men - believing I am Neville who will die as everyone does here - do not believe they are the Messiah which is to come, so they turn a deaf ear in my direction.   
   
-But I will continue to share my experiences and leave them behind in my books, just as Paul did in the form of letters, and those who experienced the visions recorded the gospels. Those who wrote the gospels knew what they had experienced; but man has misinterpreted the message, believing Jesus Christ is external to self and not realizing he is God's creative power and wisdom.   
+But I will continue to share my experiences and leave them behind in my books, just as Paul did in the form of letters, and those who experienced the visions recorded the gospels. Those who wrote the gospels knew what they had experienced; but man has misinterpreted the message, believing [Jesus Christ](/lectures/jesus-christ) is external to self and not realizing he is [God's creative power](/lectures/god-s-creative-power) and wisdom.   
   
 My visions have paralleled those recorded in the Book of Luke. Luke does not claim that his experiences were chronologically accurate, but that he feels better qualified to write the source material. I have told it chronologically, just as it happened to me.   
   
@@ -78,7 +78,7 @@ Scripture exists, so use it to construct your scene. It is said that three men w
   
 Imagine, and then watch the mystery of creation unfold in terms of faith, by remaining loyal to the unseen reality of that which already exists. *"Unto you is born this day a Savior..."* And the only Savior is the Lord God! The infant wrapped in swaddling clothes is only a sign, given to tell you that what I have told you is true. Imagine anything that would imply God's birth has already happened. Remain faithful to that scene, and when it happens there will be no uncertainty on your part.   
   
-Salvation history is over! We are not here to sow, for the fields are already white with harvest. Because all things are, and the harvest is, you are not here to till the soil and plant the seed, but to reap that which you did not sow. If you know that faith is simply loyalty to unseen reality, you can construct a scene, remain loyal to it and harvest it, for everything is already completed.   
+[Salvation history](/lectures/salvation-history) is over! We are not here to sow, for the fields are already white with harvest. Because all things are, and the harvest is, you are not here to till the soil and plant the seed, but to reap that which you did not sow. If you know that faith is simply loyalty to unseen reality, you can construct a scene, remain loyal to it and harvest it, for everything is already completed.   
   
 God conceived the history of salvation, plotted it, and fulfilled it by becoming humanity. Believing that he already did accomplish his purpose, humanity is raised to enter the kingdom once more and God's second coming has been fulfilled.   
   
@@ -88,7 +88,7 @@ Now I want to share a dream of a friend, as it contains a message for us all. Be
   
 In this lady's dream she encounters her mother, yet knows she is herself. Her husband, yet her father, was missing, and her mother said: *"Listen, I can hear his voice."* Then the scene changed, and she and her mother are being entertained by four little men, each one foot high. As she looked into the eyes of one of them, she realized he was her father. Calling her mother's attention to this fact, her mother approached, touched him and said something in code. Then suddenly she knew that her father was not free to identify himself and she awoke sobbing.   
   
-This dream speaks volumes. Remember, all [Dreams](/Dreams) are egocentric, with God as the dreamer. Everyone is seeking the Father, the cause of the phenomena of life, not realizing he is imprisoned in all. Belief, however, will set him free! If you will imagine David standing before you and feel the Father/Son relationship. Remain loyal to that scene, you will release your heavenly Father!   
+This dream speaks volumes. Remember, all Dreams are egocentric, with God as the dreamer. Everyone is seeking the Father, the cause of the phenomena of life, not realizing he is imprisoned in all. Belief, however, will set him free! If you will imagine David standing before you and feel the Father/Son relationship. Remain loyal to that scene, you will release your heavenly Father!   
   
 Because of one's former religious training, when the truth is heard that will set him free, he is torn between the two. To think that one can come to hear my message, yet still believe in what the churches teach, is like what someone once said to me: *"I have given up all belief in numerology and astrology, but the moon is passing Venus tonight and because he is in my second house I know what to expect tomorrow."* They have completely given up their belief BUT... That big *"BUT"* happens in all.   
   
@@ -100,15 +100,15 @@ I have had people say|: *"I'll come hear you. You are interesting, but I know th
   
 Another lady wrote, sharing a very long dream filled with scriptural symbology. The crystal clear water rising. Logs cut to the height of men who were carrying them vertically. A dog with a human face. A piece of rope becoming animated and acting like a serpent, entangling the little dog. Each symbol was perfect, and when properly arranged reveals the mystery of salvation. The wood is the spinal cord upon which God is crucified as Man. Caleb, the symbol of faith wears a human face, dies only for a moment, for faith is destined to be freed.   
   
-Another lady wrote, saying: *"I woke laughing, hearing these words, 'It's so easy to know you are God. All you need to do is to expand.' “This is true. William Blake began his great poem, "*Jerusalem,*" on the sixth line, saying: "*Awake! Awake O sleeper of the land of shadows, wake! Expand! I am in you and you in me, mutual in love divine." Love's secret is expansion. Contract your senses and you see multitudes. Expand them and you will see one Man, one Love!   
+Another lady wrote, saying: *"I woke laughing, hearing these words, 'It's so easy to know you are God. All you need to do is to expand.' “This is true. William Blake began his great poem, "*Jerusalem,*" on the sixth line, saying: "*Awake! [Awake O sleeper](/lectures/awake-o-sleeper) of the land of shadows, wake! Expand! [I am in you](/lectures/i-am-in-you) and you in me, mutual in love divine." Love's secret is expansion. Contract your senses and you see multitudes. Expand them and you will see one Man, one Love!   
   
 Dwell upon this great mystery of creation in terms of faith. All ministers, rabbis, and preachers teach faith - but faith in what? In little icons? A lighted candle? Our maid comes every Monday and we always give her our used candles. This afternoon we gave her two, which she will take to her church to light. She has faith in a discarded, lighted candle!   
   
 All of these things are on the outside. Faith in any power other than He who is within you is false, and anyone who teaches a power on the outside is a false teacher. Christ in you is your hope of glory, and there is no other power.   
   
-The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the [Assumption](/Assumption) of unseen reality and loyalty to its assemblage.   
+The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the Assumption of unseen reality and loyalty to its assemblage.   
   
-In spite of denial by your senses and reason, if you will be faithful to your unseen [Assumption](/Assumption), it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
+In spite of denial by your senses and reason, if you will be faithful to your unseen Assumption, it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
   
 Knowing what you want, close your eyes and enter its fulfillment, knowing that God is seeing what you are seeing. That He is hearing what you are saying; and what God sees and hears and remains loyal to, He externalizes.   
   
@@ -163,7 +163,7 @@ Now let us go into the silence.
 - Belief in one's own human imagination releases God from within
 
 ### Dream Interpretation
-- [Dreams](/Dreams) come from God and contain messages
+- Dreams come from God and contain messages
 - Belief sets God free, and imagination can be used to construct scenes implying fulfillment
 
 ### The Mystery of Salvation

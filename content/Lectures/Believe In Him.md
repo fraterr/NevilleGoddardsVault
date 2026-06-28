@@ -26,7 +26,7 @@ One is first called, incorporated into the body of love, and then sent. This goe
 
 The pattern begins by your birth as spirit. This is followed by the discovery of the fatherhood of God. Your spiritual body will be torn from top to bottom as you ascend into heaven. And the symbol of the Holy Spirit will descend upon you to smother you with love, completing the pattern.
 
-Jesus Christ is not a man, but a pattern, which I have come to renew. To believe that Jesus Christ existed is not a belief in him, for he is the way to salvation!
+[Jesus Christ](/lectures/jesus-christ) is not a man, but a pattern, which I have come to renew. To believe that Jesus Christ existed is not a belief in him, for he is the way to salvation!
 
 Now, once the ship is encrusted with barnacles, one is called and sent to scrape them off by retelling the story as something that happened to him. When I told my family, they could not believe me and questioned me, saying: *"Neville, you mean you do not believe in Jesus Christ?"* And I replied: *"I believe in him far more than you do!"* *"Don’t you believe that he existed?’’ ‘‘Yes, but not as a man."*
 
@@ -44,7 +44,7 @@ It was a spiritual incorporation into the body of love, yet it seemed to be soli
 
 Don’t believe in Neville as a man, for he is frail and subject to all of the weaknesses of the flesh. Rather, believe in what I have experienced. I have unfolded scripture for you and shown you where my experiences were foretold. I have repeated this over and over in the hope that those who hear my words will believe them, for I have tied the gospel to its reality.
 
-The Book of Acts, once part of the Book of Luke, was detached for a purpose. The story of Jesus, the pattern man, is not found in the Book of Acts. Rather, the story of the apostles is recorded there; for the apostles are sent to tell exactly how it happened in them. I do not know, however, of any part of scripture where the story is told as graphically as I have told it to you.
+The Book of Acts, once part of the Book of Luke, was detached for a purpose. The story of Jesus, [the pattern man](/lectures/the-pattern-man), is not found in the Book of Acts. Rather, the story of the apostles is recorded there; for the apostles are sent to tell exactly how it happened in them. I do not know, however, of any part of scripture where the story is told as graphically as I have told it to you.
 
 In the Old Testament, the question is asked: *"Can a man bear a child? Why then do I see every man with his hands pulling himself out of himself just like a woman in labor. Why does every face turn pale?"* *"To us a child is born; to us a son is given."*
 
@@ -52,7 +52,7 @@ When a woman forms a child within herself, is that child not part of her body? A
 
 Five months later I fulfilled the 89th Psalm. When David stood before me, I knew I was his father, as there was no uncertainty as to this relationship. I am telling you what I have experienced. Scripture foretold these visions, which must take place before you can depart this world. What must you do to bring them about? Believe in the story I have been sent to tell; for if you do, and set your hope fully upon having these experiences, your salvation is assured. Eventually everyone will believe. Rejection delays the birth, however, for it comes only after acceptance of the story told by the one who was sent.
 
-I did not choose to be sent. When I fell asleep that night, I would have been the last person I would have chosen as worthy to be called into the presence of the Risen Lord. The Beatitudes tell us that only the pure in heart will see God, and I certainly did not feel myself to be pure in heart. My wife and I were separated, and my little boy was moving back and forth between us. With the conflicts which go with all these silly little things, I would never have judged myself worthy of being pure in heart.
+I did not choose to be sent. When I fell asleep that night, I would have been the last person I would have chosen as worthy to be called into the presence of the Risen Lord. The Beatitudes tell us that only [the pure in heart](/lectures/the-pure-in-heart) will see God, and I certainly did not feel myself to be pure in heart. My wife and I were separated, and my little boy was moving back and forth between us. With the conflicts which go with all these silly little things, I would never have judged myself worthy of being pure in heart.
 
 But God does not see what man sees. God sees the heart. He sees the motive behind the act, never the outer picture. Was the thought brought forth in love, or to get even? Was its motive to inflict pain, or to express love? God sees the heart, and when He judges it as pure, that individual is called.
 
@@ -80,11 +80,11 @@ A lady recently called, who had heard me many years ago in Detroit and Minneapol
 
 Her only brother was a very thrifty businessman, who lived frugally. He died, and three weeks later his wife died, leaving everything to this lady. Now she has the money to live in luxury, just as she had imagined. This lady assumed wealth without knowing where it would come from, and now she has it.
 
-The law will not fail you here or in the world of God, for you must believe both stories. I tell you: an [Assumption](/Assumption), though false, if persisted in will prove itself in the world of Caesar, as it did in her case. I also tell you an incredible story: that you will awaken in your skull and experience a spiritual birth as described in scripture; for you are the one spoken of there.
+The law will not fail you here or in the world of God, for you must believe both stories. I tell you: an Assumption, though false, if persisted in will prove itself in the world of Caesar, as it did in her case. I also tell you an incredible story: that you will awaken in your skull and experience a spiritual birth as described in scripture; for you are the one spoken of there.
 
 Can you believe both stories? If you believe one enough to test it, and it proves itself in performance, try to believe the other; for unless you believe both, you cannot prove them. If you believe the one in the world of Caesar, you can have money as this lady has. But you must believe the other in order to live where you do not need money, for there you know that the earth is yours and all within it. When you are incorporated into the body of God, you know you are God and everything is yours. Then you will tell your story, depart this world, and return to the Father - who is yourself!
 
-But while you are here, where you do not know the world is all yours, apply the law of [Assumption](/Assumption). Assume the feeling of the wish fulfilled and let God’s law work for you. Learn to believe the story on this level through application, and one day you will believe the incredible story on the higher level.
+But while you are here, where you do not know the world is all yours, apply [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption). Assume the feeling of the wish fulfilled and let God’s law work for you. Learn to believe the story on this level through application, and one day you will believe the incredible story on the higher level.
 
 What must we do to be doing the work of God? Believe in him whom he has sent. Though born of flesh and blood, with four brothers and sisters, and a carpenter by trade, after the second birth he was no longer the man one knew, but an entirely different being. After telling you what happened in him, he asks you to believe it. If you do, you believe in the way you are saved. If you do not, you believe in and will remain in the world of death with its many blows.
 
@@ -126,7 +126,7 @@ Now let us go into the silence.
 
 - Belief in both the world of Caesar (material reality) and the world of God (spiritual reality) is necessary.
 - Assuming the feeling of the wish fulfilled on the material level can lead to its manifestation.
-- Applying the law of [Assumption](/Assumption) and believing in the incredible story of spiritual birth will lead to salvation.
+- Applying the law of Assumption and believing in the incredible story of spiritual birth will lead to salvation.
 
 ### True Belief
 

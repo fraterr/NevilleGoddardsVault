@@ -4,7 +4,7 @@ There is an enormous difference between attention directed objectively and atten
 
 the objective world and of focusing it subjectively. In other words, concentrate on those thoughts or moods which you deliberately determine. Then those things that now restrict you will fade and drop away. The day you achieve control of the movements of your attention in the subjective world, you are master of your fate.
 
-You will no longer accept the dominance of outside conditions or circumstances. You will not accept life on the basis of the world without. Having achieved control of the movements of your attention, and having discovered the mystery hid from the ages, that Christ in you is your imagination, you will assert the supremacy of imagination and put all things in subjection to it.
+You will no longer accept the dominance of outside conditions or circumstances. You will not accept life on the basis of the world without. Having achieved control of the movements of your attention, and having discovered the mystery hid from the ages, that [Christ in you](/lectures/christ-in-you) is your imagination, you will assert the supremacy of imagination and put all things in subjection to it.
 
 
 

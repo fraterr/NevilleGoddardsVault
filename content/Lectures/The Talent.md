@@ -6,7 +6,7 @@ You may wonder when you read this story how the Lord of the universe could be so
 
 Now, the parable tells us that those to whom the gifts were given were asked for an accounting, and those who had multiplied them were highly commended and invited into the joy of expansion. Blake, in his preface to the 4th fourth chapter of his wonderful poem, *"Jerusalem,"* addresses the Christians saying: *"I know of no other Christianity and of no other Gospel other than the liberty, both of body and mind to exercise the Divine Arts of Imagination. Imagination, the real and eternal World of which this Vegetable Universe is but a faint shadow, and into which we shall go in our Eternal, or Imaginative Bodies when these Vegetable, Mortal Bodies are no more."* Then he adds this thought: *"The Apostles knew of no other Gospel."*
 
-Jesus Christ is your own wonderful human imagination. Crucified on humanity, Jesus is buried in you and will rise in you to the degree that you exercise your talent - your Human Imagination'
+[Jesus Christ](/lectures/jesus-christ) is your own wonderful human imagination. Crucified on humanity, Jesus is buried in you and will rise in you to the degree that you exercise your talent - your Human Imagination'
 
 Christianity is a mystery. When speaking of Christ, Paul uses the word *"mystery"* no less than twenty times. The secret of imagining is the greatest of all problems, to the solution of which everyone should aspire, for supreme power, supreme wisdom, and supreme delight lie in the solution of this great mystery. When you unravel the mystery of imagining, you have conquered death.
 
@@ -24,13 +24,13 @@ Crucified on the cross of your body of flesh and blood, Jesus Christ is your own
 
 Start now to exercise God's gift of himself to you, for He so loved you He became you. Can you conceive of any greater gift? But the gift, like the muscles, if not exercised will atrophy and die. You have the greatest of all talents, which is God's gift of himself to you, which is your own wonderful human Imagination.
 
-Now, an idea which is only a thought produces nothing. In order to be awakened, motor elements must be employed, for imagination is spiritual sensation. As an example, imagine a rose. See it in your mind's eye, feel its velvet petals with your hand, smell the rose - and you have used three talents. Now, if you can detect the fragrance of a rose, see it, and touch it, isn't the rose there? If it is not, then why is its fragrance in the air?
+Now, an idea which is only a thought produces nothing. In order to be awakened, motor elements must be employed, for imagination is [spiritual sensation](/lectures/spiritual-sensation). As an example, imagine a rose. See it in your mind's eye, feel its velvet petals with your hand, smell the rose - and you have used three talents. Now, if you can detect the fragrance of a rose, see it, and touch it, isn't the rose there? If it is not, then why is its fragrance in the air?
 
 You may question my example, but I know, if you have used your talents as I encouraged you to do, the rose will come. I am not saying it will magically appear in your vase by falling out of the atmosphere. But I am saying that in its own wonderful way the rose will be yours. Do not concern yourself as to how the rose (or roses) will appear; simply go to the end and dwell there.
 
 When you know what you want, use your sense of feeling. Let the feeling of satisfaction so fill your being that the idea ceases to be a desire, but has evoked motor elements. These awaken sensory sensations within you causing the desire's fulfillment. Imagination is nothing more than sensory states. Learn to go beyond an idea by feeling its reality. Then turn to another and still another, as the being who is feeling it begins to awaken within you. Fulfill all of your desires while you are here, and then when you least expect it, the Divine Breath will breathe upon that immortal tomb where you are buried. And you will awaken to find yourself completely sealed in your Holy Sepulcher where you have been dreaming your life into being.
 
-This world is made up of horrible [Dreams](/Dreams) which the one within every individual is dreaming. That one must and will awaken, as you hear the story and put it into practice through repentance. The word *"repentance"* comes from the Greek word *"metanoia,"* which means *"a radical change of attitude."* This change must be so radical that it gets right down to the root, the I AM. Think of your world as your mirror. Do you like what you see there? You know you can live with it or ignore it, but perhaps you would like to see it differently. If you would, repent by persuading yourself that you are seeing a world to your liking. Persist in your repentance, for to the degree that you are self-persuaded it is so, it will be so.
+This world is made up of horrible Dreams which the one within every individual is dreaming. That one must and will awaken, as you hear the story and put it into practice through repentance. The word *"repentance"* comes from the Greek word *"metanoia,"* which means *"a radical change of attitude."* This change must be so radical that it gets right down to the root, the I AM. Think of your world as your mirror. Do you like what you see there? You know you can live with it or ignore it, but perhaps you would like to see it differently. If you would, repent by persuading yourself that you are seeing a world to your liking. Persist in your repentance, for to the degree that you are self-persuaded it is so, it will be so.
 
 If you attempt to change the world before you change your attitude towards it, your struggle will be in vain. That which you dislike will change only to the degree that you change your attitude towards it. Until you do it cannot change, for the dislike is coming from within you. *"Man is all Imagination, and God is Man and Exists in us and we in Him. The Eternal Body of Man is the Imagination and that is God himself."*
 
@@ -48,9 +48,9 @@ Whatever your desire may be, is possible and can be yours if you will imagine it
 
 To one five talents were given. To another, two and another, one. Then came the day of accounting and all those who had expanded their talents were invited to enter into the joy of their master. And those who were afraid to test their Imagination, who wouldn't even try it, were condemned, and the knowledge of the power that they are was taken from them.
 
-The talent is God's gift to you. It is entrusted to you for your use. Use your talent tonight by sleeping in the [Assumption](/Assumption) that you are now - not tomorrow - but now, the person you would like to be. In the morning, persist in your [Assumption](/Assumption) by allowing the world to see you as they would have to see you, were you now the one you would like to be. Although your reason and senses deny your [Assumption](/Assumption), if you persist your desire will harden into fact.
+The talent is God's gift to you. It is entrusted to you for your use. Use your talent tonight by sleeping in the Assumption that you are now - not tomorrow - but now, the person you would like to be. In the morning, persist in your Assumption by allowing the world to see you as they would have to see you, were you now the one you would like to be. Although your reason and senses deny your Assumption, if you persist your desire will harden into fact.
 
-Let the world turn their back upon this law. That is perfectly all right, but you go your way using your talent. And when you least expect it, all that is said in scripture concerning Jesus Christ will be yours to experience in the first person, singular, present tense. Then you will know beyond all doubt who Jesus Christ really is. When you know who you are, it will not matter what the world says. Let the billion Christians and the two billion non-Christians go their way. If they want to question or ridicule you, turn your back and walk away. Having found the real Christ, you have found the great secret to the mystery of all life.
+Let the world turn their back upon this law. That is perfectly all right, but you go your way using your talent. And when you least expect it, all that is said in scripture concerning Jesus Christ will be yours to experience in the first person, singular, present tense. Then you will know beyond all doubt who Jesus Christ really is. When you know who you are, it will not matter what the world says. Let the billion Christians and the two billion non-Christians go their way. If they want to question or ridicule you, turn your back and walk away. Having found the real Christ, you have found [the great secret](/lectures/the-great-secret) to the mystery of all life.
 
 Christianity is the fulfillment of Judaism. All that was promised in the law of Moses and the prophets and the Psalms came to its fulfillment in the mystery called the gospels. Man thinks they are speaking of secular history, but I tell you, they have recorded Divine history. The story of Jesus Christ as recorded in scripture is a supernatural experience which takes place within the individual. No drug can unlock this experience and no person has the key. It is grace, grace, and more grace, for the talent - which is God's gift of himself to the individual - will awaken and the individual will know that *"I am he."*
 
@@ -58,7 +58,7 @@ Another time, this same lady came to me regarding her son, who was in the State 
 
 One morning I opened the New York Times to the Social page where I saw a picture of her son without a beard. The next time this lady came to see me I mentioned seeing her son clean shaven and she said: *"I imagined kissing him and feeling his face, but because he fell in love with a girl in the State Department who didn't like his beard, he shaved it off."* She attributed the shaving of the beard to the means rather than the cause, which was what she had done in her imagination. The girl was only the instrument which brought it about. Having forgotten when she planted the seed, this lady didn't recognize her own harvest.
 
-What are you doing in your imagination? To let something drift on and on when you dislike what is happening is stupid. As far as I am concerned, I don't care if every man grows a beard and wears his hair long. I would hope they washed it occasionally, as I do like cleanliness. But it is entirely up to you what you do with your talent. I hope you will learn to use it consciously, for this talent is God's gift to you, and it contains the power to set you free.
+[What are you doing](/lectures/what-are-you-doing) in your imagination? To let something drift on and on when you dislike what is happening is stupid. As far as I am concerned, I don't care if every man grows a beard and wears his hair long. I would hope they washed it occasionally, as I do like cleanliness. But it is entirely up to you what you do with your talent. I hope you will learn to use it consciously, for this talent is God's gift to you, and it contains the power to set you free.
 
 The only Christ the apostles ever referred to is the human imagination. Blake knew that, for it was he who said: *"I know of no other Christianity and no other Gospel than the liberty, both of body and mind, to exercise the Divine Arts of Imagination. Imagination, the real and eternal world of which this Vegetable Universe is but a faint shadow and in which we shall live in our Eternal or Imaginative Bodies when these Vegetable Mortal Bodies are no more"*.
 
@@ -87,11 +87,11 @@ Now let us go into the silence.
 
 ### The Lady's Story
 - The author shares a story of a lady who used her imagination to rent out her apartment.
-- She slept in the [Assumption](/Assumption) that her apartment was rented and it happened in reality.
+- She slept in the Assumption that her apartment was rented and it happened in reality.
 
 ### Christianity and Mystery
 - The author describes Christianity as a mystery, with Paul using the word "mystery" multiple times.
-- Imagining is the greatest mystery to be solved, as it holds supreme power and wisdom.
+- Imagining is the greatest mystery to be solved, as it holds supreme [power and wisdom](/lectures/power-and-wisdom).
 
 ### Repentance and Attitude
 - Repentance means a radical change of attitude.
@@ -103,7 +103,7 @@ Now let us go into the silence.
 
 ### Discovering the Real Christ
 - The lady in the story did not fully grasp the concept that her imagination was Jesus Christ.
-- The author explains that discovering the real Christ is crucial for understanding the mystery of life.
+- The author explains that discovering the real Christ is crucial for understanding [the mystery of life](/lectures/the-mystery-of-life).
 
 ### Changing the World through Imagination
 - Changing one's attitude towards the world can lead to a change in the world itself.

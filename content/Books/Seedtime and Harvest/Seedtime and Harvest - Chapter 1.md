@@ -4,7 +4,7 @@ It will lead you in at Heaven's gate,
 Built in Jerusalem's wall."* 
 (William Blake)
 
-In the following essays I have tried to indicate certain ways of approach to the understanding of the Bible and the realization of your [Dreams](/Dreams).
+In the following essays I have tried to indicate certain ways of approach to the understanding of the Bible and the realization of your Dreams.
 
 *"That ye be not slothful, but followers of them who through faith and patience inherit the promises."* (Hebrews 6:12)
 
@@ -14,7 +14,7 @@ According to the Scriptures, we sleep with Adam and wake with Christ. That is, w
 
 *"And the Lord God caused a deep sleep to fall upon Adam, and he slept."* (Genesis 2:21)
 
-If Adam, or generic man, is in a deep sleep, then his experiences as recorded in the Scriptures must be a dream. Only he who is awake can tell his dream, and only he would understand the symbolism of [Dreams](/Dreams) can interpret the dream.
+If Adam, or generic man, is in a deep sleep, then his experiences as recorded in the Scriptures must be a dream. Only he who is awake can tell his dream, and only he would understand the symbolism of Dreams can interpret the dream.
 
 *"And they said one to another, Did not our heart burn within us, while He talked with us by the way, and while He opened to us the Scriptures?"* (Luke 24:32)
 
@@ -35,9 +35,9 @@ This realm, this Eden - your imagination - is vaster than you know and repays ex
 
 ## Summary
 
-### Understanding the Bible and Realizing [Dreams](/Dreams)
+### Understanding the Bible and Realizing Dreams
 
-- Essays indicate approaches to understanding the Bible and realizing [Dreams](/Dreams)
+- Essays indicate approaches to understanding the Bible and realizing Dreams
 - With faith and patience, inherit the promises
 
 ### Bible's Symbolic Language
@@ -54,7 +54,7 @@ This realm, this Eden - your imagination - is vaster than you know and repays ex
 ### Imaginative Readers Grasp Symbols
 
 - Imaginatively awake readers see the symbolism
-- Bible reveals the twilight realm of sleep and [Dreams](/Dreams)
+- Bible reveals the twilight realm of sleep and Dreams
 
 ### Desired Things Through Imagination
 

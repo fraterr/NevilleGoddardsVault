@@ -18,7 +18,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Brazen impudence")
+WHERE contains(keywords,"[Brazen impudence](/lectures/brazen-impudence)")
 SORT type DESC
 ```
 

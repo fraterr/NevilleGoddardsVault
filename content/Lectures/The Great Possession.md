@@ -27,7 +27,7 @@ I sat at one grand piano and watched an enormous crowd follow their hero as he a
 
 I arrested this activity, the music froze, and the sustained note began to increase in volume. As its sound penetrated my very being, I awoke to find myself - not on my bed in my home, but in the holy sepulcher - my skull - where I had been throughout the centuries. Then I innately knew how to get out. I did it and found myself surrounded by all of the imagery of scripture concerning the birth of God.
 
-It took three and one half years for that pattern to unfold in me; but when it was complete I knew beyond all doubt that I was the one scripture called Jesus Christ. Everyone is God incarnate. You may be unknown, unwanted, and shunned by the world; but you really are God, wearing your cross as you swore to yourself that you would.
+It took three and one half years for that pattern to unfold in me; but when it was complete I knew beyond all doubt that I was the one scripture called [Jesus Christ](/lectures/jesus-christ). Everyone is God incarnate. You may be unknown, unwanted, and shunned by the world; but you really are God, wearing your cross as you swore to yourself that you would.
 
 Now listen to these words: *"Marvel not at this; for those who are in the tomb will hear his voice and come forth."* You may think the tomb spoken of here is a cemetery or graveyard; but I tell you: the tomb in which you are buried is your skull. Your own wonderful human imagination is the God of the earth and sea who is buried in your skull. That is the holy sepulcher. So don't go to Egypt or the Near East, to what is called the Holy Land, to find the place where God is buried, for he is not there. God is buried in your skull and it is from that skull that he will rise.
 
@@ -41,7 +41,7 @@ No one has ever been so wise or powerful that he could forego these functions. I
 
 Although banished, God has prepared a way for you, his son, to return. We are all God's sons, who collectively form the Father; but we are called back one by one. Each one of us is so unique we cannot be called in pairs or groups. And the night you are called will begin with a dream, as described in the 8th chapter of Zechariah.
 
-I, who have told you what to expect, will physically disappear; but I will send the Holy Spirit, who is the Spirit of truth. He will bring to your remembrance all that I have said to you. Having proclaimed to you that I am the truth, who can I send but myself? So God Himself entered death's door with we who entered. He lay down in the grave with us in visions of eternity, until we awake to see the linen clothes lying there that the females have woven for us. 
+I, who have told you what to expect, will physically disappear; but I will send the Holy Spirit, who is the Spirit of truth). He will bring to your remembrance all that I have said to you. Having proclaimed to you that I am the truth, who can I send but myself? So God Himself entered death's door with we who entered. He lay down in the grave with us in visions of eternity, until we awake to see the linen clothes lying there that the females have woven for us. 
 
 Your mother wove your garment of flesh and blood called the linen cloth, and one day you will come out of it, never to return. You, an invisible being, will feel and hear a power so great it will sound like a storm wind. What I saw was conjured by and supported by a tone; therefore if the tone stopped, the beauty I contemplated would vanish. But the tone continued, and as it did I awoke.
 
@@ -63,7 +63,7 @@ In my dream I played the part of David as I brought my brother Fred and his son 
 
 These are mysteries, not of things to be kept secret, but mysterious in nature. They confuse the rational mind, as it wants to think on the level of this secular world where a man fathers a child and that's all there is to it. The rational mind cannot solve the mystery of scripture, for the Bible is not a record of secular history, but divine history - which is something entirely different. 
 
-All the names recorded there are significant and tell a story that unfolds in the soul. You are the God whose name is I AM, but you are in this world and will bear the form of flesh and blood for an allotted time. Then the tree of life that you are will be split from top to bottom, and you - the Spirit trapped inside - will be set free.
+All the names recorded there are significant and tell a story that unfolds in the soul. You are the God whose name is I AM, but you are in this world and will bear the form of flesh and blood for an allotted time. Then [the tree of life](/lectures/the-tree-of-life) that you are will be split from top to bottom, and you - the Spirit trapped inside - will be set free.
 
 In the meanwhile, dwell upon your great possession. If tonight you owned the earth and it vanished at your death, what would it matter? Stalin thought he controlled the world. He killed twenty million people then vanished. But Stalin did not die; he was restored to life in an environment best suited for the work yet to be done in him. Stalin is a name God adopted in order to play that part, just as God adopted the name Hitler and thought he would rule Germany. 
 
@@ -103,7 +103,7 @@ Now let us go into the silence.
 ### Father and Son relationship
 - The father/son relationship between God and individuals is a central theme in scripture.
 - When the father and son recognize each other, the journey into the world of death will be completed.
-- [Dreams](/Dreams) often provide symbolic representation of this relationship.
+- Dreams often provide symbolic representation of this relationship.
 
 ### Fulfilling scripture and ultimate redemption
 - Everyone will be redeemed, as they are all aware of their existence and, therefore, the "I am" nature of God.

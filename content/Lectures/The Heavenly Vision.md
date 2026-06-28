@@ -10,7 +10,7 @@ You will find scripture is filled with creative acts. In one story, the Risen Ch
 
 In the Book of Matthew, his disciples came to him, saying: *"Explain the parable of the sower,"* and he answered: *"He who sows the good seed is the Son of man; the field is the world. The good seed means the sons of God."* When the Son of man comes he plants his spiritual seed in those whom he calls. This act of crucifixion (which is the planting of the seed), far from being painful, is the most ecstatic experience possible. No union on earth can compare in ecstasy to this spiritual act. And when you, an individual, are called, you are told to *"There remain with God."* There is no need to change your job, join a monastery, or go into a nunnery after the act. If you are a housewife, mother, father, businessman, or doctor when you are called, there remain with God and lock the memory of what has happened within you. Do not broadcast it to the world, for - not understanding - they would condemn you for talking such nonsense; yet this is the way God raises the dead. 
 
-Only Christ is raised. *"We are born again through the resurrection of Jesus Christ from the dead."* But to be raised, the seed must be penetrated by Christ. This ecstatic union takes place your own wonderful human imagination as you walk the earth doing earthly things. Then, in due time you are raised and born from above as the drama of Jesus Christ unfolds within you. 
+Only Christ is raised. *"We are born again through the resurrection of [Jesus Christ](/lectures/jesus-christ) from the dead."* But to be raised, the seed must be penetrated by Christ. This ecstatic union takes place your own wonderful human imagination as you walk the earth doing earthly things. Then, in due time you are raised and born from above as the drama of Jesus Christ unfolds within you. 
 
 The word translated *"seed: is the Greek word "*sperma,*" which means "*the male sperm." Penetrated by Spirit, he leaves his spiritual sperm which bears his image of God which you carry within you, until it completes itself and you are raised, born from above, and unfold within yourself everything said of Christ in scripture. This is how God, being the Son of man, produces sons for the kingdom. 
 
@@ -28,11 +28,11 @@ So Paul, in this heavenly vision, saw the creative act of God. He saw individual
 
 Everything here is reduced, as we are completely encased and insulated. What thrills you here pales to nothing when the garment is taken off and you are Spirit, performing the act of God by glorifying him in your body. As his image, called Christ, you radiate the glory of God and are the express image of his person as you impregnate, but it is done selectively, never haphazardly.
 
-The night I was called and taken into the presence of the Risen Christ, I had no idea it would happen. The year was 1929. Having read scripture before the vision, I thought the words *"Faith, hope and love"* were the words of Paul, but this night I discovered they were the words of God spoken by Paul, for he said: *"I will not venture to speak of anything except what Christ has wrought in me,"* therefore these were the words of Christ.
+The night I was called and taken into the presence of the Risen Christ, I had no idea it would happen. The year was 1929. Having read scripture before the vision, I thought the words *"[Faith, hope and love](/lectures/faith-hope-and-love)"* were the words of Paul, but this night I discovered they were the words of God spoken by Paul, for he said: *"I will not venture to speak of anything except what Christ has wrought in me,"* therefore these were the words of Christ.
 
 The night I was taken into the presence of the risen Christ (the embodiment of God's creative power) all I could see was infinite love. All I could think of was love. And when he asked me the simple question: *"What is the greatest thing in the world,"* I answered automatically: *"Faith, hope, and love. These three, but the greatest of these is love."* At that moment he embraced me and we fused. That was my heavenly vision, my union with the Risen Lord. I can't describe the thrill I experienced when I became one with the Spirit and the body of the Risen Lord.
 
-Then I was taken to stand before a being who seemed to radiate infinite power. In him I felt no compassion or love, simply raw power. As his eyes penetrated mine, I heard his thoughts, as a voice rang out in the heavens, with this command: *"Time to act."* At that moment I was propelled out of that divine assembly to find myself back in this little insulated body and - like Mary - I pondered what had happened to me. 
+Then I was taken to stand before a being who seemed to radiate [infinite power](/lectures/infinite-power). In him I felt no compassion or love, simply raw power. As his eyes penetrated mine, I heard his thoughts, as a voice rang out in the heavens, with this command: *"Time to act."* At that moment I was propelled out of that divine assembly to find myself back in this little insulated body and - like Mary - I pondered what had happened to me. 
 
 I was only twenty-four at the time and knew nothing of the mysteries and wondered what had happened, as my room was flooded with an unearthly light which remained for the longest time. Then, in good time the mystery unraveled itself within me. We are told: *"When he was about thirty years of age, he began his ministry."* Thirty years later I experienced my resurrection and birth from above. That pregnancy took thirty years to ripen and come to fulfillment in me.
 
@@ -74,7 +74,7 @@ Tonight, take any passage from scripture and check each word in the Concordance,
 
 When you read scripture, see a man step on the stage (like a moving picture) and think of it as an allegory. Learn to distinguish between what you are seeing and what you are being told. And when you discover the fictitious character, extract its meaning and abide by it. Jesus Christ is portrayed as crucified, as having union by association to extinguish passion, at which time the seed (which is the image of the Living God) is planted, making your redemption assured. 
 
-You cannot be born from above (which is essential to enter the kingdom of God) unless first Jesus Christ rises in you. So you are redeemed by the resurrection of Jesus Christ in you . Nothing can emerge from man which was not first submerged, so Christ has to descend. When one the being who has already been raised and selected for that part plants the seed, the image of God descends, and nothing can ascend but that which first descended.
+You cannot be born from above (which is essential to enter the kingdom of God) unless first Jesus Christ rises in you. So you are redeemed by the resurrection of Jesus [Christ in you](/lectures/christ-in-you) . Nothing can emerge from man which was not first submerged, so Christ has to descend. When one the being who has already been raised and selected for that part plants the seed, the image of God descends, and nothing can ascend but that which first descended.
 
 Now let us go into the silence.
 
@@ -87,7 +87,7 @@ Now let us go into the silence.
 - Paul emphasized that he was obedient to the heavenly vision, only testifying what the prophets and Moses spoke of.
 
 ### Paul's Understanding of Christ
-- Paul saw Christ as the power and wisdom of God, not a physical entity.
+- Paul saw Christ as the [power and wisdom](/lectures/power-and-wisdom) of God, not a physical entity.
 - He viewed Christ's crucifixion as a union that extinguished passion, signifying completeness and companionship.
 - Paul believed that he himself was crucified with Christ and that it was Christ living in him.
 

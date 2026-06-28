@@ -4,7 +4,7 @@
 *“But one of the soldiers with a spear pierced his side, and forthwith came there out blood and water.”*
 (John 19:34)
 
-*“This is he that came by water and blood, even Jesus Christ; not by water only, but by water and blood.”*
+*“This is he that came [by water and blood](/lectures/by-water-and-blood), even [Jesus Christ](/lectures/jesus-christ); not by water only, but by water and blood.”*
 (John 5:6)
 
 According to the gospel and the Epistle of John, not only must man be *“born again”* but he must be born again of water and blood. These two inward experiences are linked with two outward rites – baptism and communion. But the two outward rites – baptism to symbolize birth by water, and the wine of communion to symbolize acceptance of the blood of the Savoir, cannot produce the real birth or radical transformation of the individual, which is promised to man. The outward use of water and wine cannot bring about the desired change of mind. We must, therefore, look for the hidden meaning behind the symbols of water and blood.
@@ -80,7 +80,7 @@ Your state of consciousness is the spring of action, the directing force, and th
 
 This statement of Jeremiah suggests that a commitment is involved if the individual or nation would realize the goal – a commitment to certain fixed attitudes of mind. The feeling of the wish fulfilled is a necessary condition in mans search for the goal.
 
-The story I am about to tell you shows that man is what the observer has the capacity to see in him; that what he is seen to be is a direct index to the observer’s state of consciousness.
+The story I am about to tell you shows that man is what the observer has the capacity to see in him; that what he is seen to be is a direct [index](/index) to the observer’s state of consciousness.
 
 This story is, also, a challenge to us all to shed our blood” – use our imagination lovingly on behalf of another.
 
@@ -96,7 +96,7 @@ One night in New York City I was able to unveil the mystery of the *“water and
 
 However, we must not look upon this radiant light of the head as God, for man is the image of God.
 
-*“God appears, and God is light, to those poor souls who dwell in Night; But does a Human Form display, To those who dwell in realms of Day.”*
+*“God appears, and [God is light](/lectures/god-is-light), to those poor souls who dwell in Night; But does a Human Form display, To those who dwell in realms of Day.”*
 (William Blake)
 
 But this must be experienced to be known. There is no other way, and no other man’s experience can be a substitute for our own.
@@ -136,7 +136,7 @@ The teacher had to experience this transformation to know the mystery of *“blo
 *“We have redemption through his blood.”*
 (Ephesians 1:7)
 
-Without the decision to change her mind in regard to the child, and the imaginative power to carry it out, the teacher could never have redeemed the student. None can know the redemptive power of the imagination who has not *“shed his blood”*, and tasted the cup of experience.
+Without the decision to change her mind in regard to the child, and the imaginative power to carry it out, the teacher could never have redeemed the student. None can know the redemptive power of the imagination who has not *“shed his blood”*, and tasted [the cup of experience](/lectures/the-cup-of-experience).
 
 *“Once read thy own breast right, And thou hast done with fears! Man gets no other light, Search he a thousand years.”*
 (Matthew Arnold)

@@ -1,4 +1,4 @@
-Jesus Christ is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus Christ, but not yourself? If you do it is because you do not know who you are!
+[Jesus Christ](/lectures/jesus-christ) is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus Christ, but not yourself? If you do it is because you do not know who you are!
 
 In 1929, believing Jesus Christ to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
 
@@ -6,7 +6,7 @@ Scripture tells us: *"No one has ever seen God except his only Son who is in the
 
 Although to me the David who said - *"I will tell of the decree of the Lord: He said to me, ‘Thou art my Son, today I have begotten thee,"*’ - lived 1000 B.C., and was not in any way related to me. Yet now I know the truth of the words: *"No one has ever seen God until he who is in the bosom of the Father makes him known."* Only when my whole being exploded and God’s Son David appeared in the spirit and called me father, did I know my true identity.
 
-Now I know from experience that I am Jesus Christ and that there is no other God, no other savior. I also know that you and I came out of the body of the Lord Jesus Christ, and it is to that one body, one Spirit, one Lord, and God and Father of all, that we return via these experiences which take place within.
+Now I know from experience that I am Jesus Christ and that there is [no other God](/lectures/no-other-god), no other savior. I also know that you and I came out of the body of the Lord Jesus Christ, and it is to that one body, one Spirit, one Lord, and God and Father of all, that we return via these experiences which take place within.
 
 Let me explain it in this manner. At the end of the 7th chapter of Luke it is said that Jesus forgave a woman of her sins, at which time those who sat at the table with him said: *"Who is that who forgives sins?"* Then he went from village to village, teaching the good news of the kingdom of God. Mary Magdalene, Joanna, and Susanna went with him, providing for him out of their means.
 
@@ -46,9 +46,9 @@ If you read a doctor’s report in the morning paper and remember what the same 
 
 We are told: *"I am from above. You are from below. You are of this world. I am not of this world."* If this is true, how can scripture be secular? He is telling you that he belongs to an entirely different region. That he is from the skull, where he was buried in the beginning of time, and not from the womb of any woman who bears children into time!
 
-Everything you have ever done was done by Christ! He is your life and without Jesus Christ in you, you could not breathe. Allowing everything to happen, he will experience it all, as you!
+Everything you have ever done was done by Christ! He is your life and without Jesus [Christ in you](/lectures/christ-in-you), you could not breathe. Allowing everything to happen, he will experience it all, as you!
 
-Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that [Assumption](/Assumption) and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
+Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that Assumption and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
 
 You are the Cosmic Christ who nailed your power on humanity in six vortices as the six-pointed Star of David. At the moment of sheer ecstasy God began a good work in you, and He will bring it to completion as His predestined state unfolds from within!
 
@@ -79,7 +79,7 @@ Now let us go into the silence.
 
 ### The Living Word
 
-- Doctors contradict, but God's Word is forever true and unchanging
+- Doctors contradict, but [God's Word](/lectures/god-s-word) is forever true and unchanging
 - Its message comes from within, not records of outer secular history
 
 ### I Am Not of This World

@@ -20,7 +20,7 @@ In the third chapter of the book of Matthew, John states, *"I baptize with the w
 
 The baptism with the Holy Spirit is something entirely different. While living by the law of repentance, you will be called to unite into a single body, who is God. In the 12th chapter of 1st Corinthians we are told that, *"By one spirit we are baptized into one body."*
 
-When this baptism happened to me, I had the sensation of being taken for a long, long journey. I found myself standing in front of the Risen Lord, who asked me the simple question: *"What is the greatest thing in the world?"* I answered as though promoted from some depth of my own being, saying, *"Faith, hope and love. These three, but the greatest of these is love."* With these words, the Risen Lord embraced me and we became one being.
+When this baptism happened to me, I had the sensation of being taken for a long, long journey. I found myself standing in front of the Risen Lord, who asked me the simple question: *"What is the greatest thing in the world?"* I answered as though promoted from some depth of my own being, saying, *"[Faith, hope and love](/lectures/faith-hope-and-love). These three, but the greatest of these is love."* With these words, the Risen Lord embraced me and we became one being.
 
 No mortal eye can see the body of God I wear, but I feel it, for I wear it every moment of time. Now, when I tell my story some will resist me, for they are still filled with their own preconceived misconceptions of Christ. But I know that one day everyone will be embraced by this one spirit, thereby being baptized into the one body of Christ.
 
@@ -36,7 +36,7 @@ With this remark Jack took my hand and slapped it saying, *"Get your hand off me
 
 Although Alice was with me at the time, she didn't remember the incident. If she had, it would have taken on the form of a dream, to her. But, being fully awake, I know exactly what I am doing every moment of time. Today Alice believes in survival, although she doesn't realize that that experience was the beginning of the subtle change in her.
 
-When you are sent, you will carry the message of the one who sent you. You will tell all who will listen that there is only one body, one spirit, one love who embraces and incorporates the individual into a single body who is the Lord Jesus Christ.
+When you are sent, you will carry the message of the one who sent you. You will tell all who will listen that there is only one body, one spirit, one love who embraces and incorporates the individual into a single body who is the Lord [Jesus Christ](/lectures/jesus-christ).
 
 In the meantime, as you test yourself, you are being baptized with the water of repentance. Always creating on this level, when you change your attitude and allow it to become fixed, your outer world will reflect your change. Then one day you will be baptized with the Holy Spirit.
 

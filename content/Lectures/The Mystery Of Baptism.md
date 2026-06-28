@@ -36,7 +36,7 @@ If you cannot enter into the kingdom of God unless you are born of water and the
 
 Your birth as Spirit qualifies you for the new form, the new manner of existence, the new unification of Christ on an entirely different level. One person at a time is called to enter into and form that one body, one Spirit, one hope, one Lord, one faith, one baptism, one God and Father of us all who is above all, through all, and in all. 
 
-Whether you have been baptized here or not does not matter, for it is only a symbolic representation of this - the final mystery in the great series. And when you have experienced the true baptism, you are an entirely different being. No one in the outer world can see the being you know yourself to be. But you will become completely absorbed into that one body, one Spirit, one God, yet you will never lose your individuality. That's the great mystery and that's the purpose of it all. 
+Whether you have been baptized here or not does not matter, for it is only a symbolic representation of this - the final mystery in the great series. And when you have experienced the true baptism, you are an entirely different being. No one in the outer world can see the being you know yourself to be. But you will become completely absorbed into that one body, one Spirit, one God, yet you will never lose your individuality. That's [the great mystery](/lectures/the-great-mystery) and that's the purpose of it all. 
 
 We were individualized before we descended, and tend forever and ever towards ever greater individualization. Having descended into these bodies of water, Spirit hovers over the water, incubating something precious that is buried there until it hatches. And when the water breaks the heavens open, and the Spirit in bodily form as a dove, descends. Then the voice of God declares his love, for he has raised up his glory and you become one with God the Father. 
 
@@ -56,7 +56,7 @@ Having been told these stories, you have been informed of the truth which will o
 
 Both Matthew and Mark claimed only the one having the experience saw the clarity of the heavens and the descent of the dove. Luke and John told of witnesses, but I know from experience: you and you alone bear witness to yourself. 
 
-That is why, when you tell others that the story written about Jesus Christ has unfolded in you, they cannot believe it. In their eyes you are a human being with limitations and frustrations, while they are looking for something entirely different. They do not know that the reenactment is coming to them, for he said: *"I have a baptism to be baptized with, and how I am constrained until it is accomplished."* 
+That is why, when you tell others that the story written about [Jesus Christ](/lectures/jesus-christ) has unfolded in you, they cannot believe it. In their eyes you are a human being with limitations and frustrations, while they are looking for something entirely different. They do not know that the reenactment is coming to them, for he said: *"I have a baptism to be baptized with, and how I am constrained until it is accomplished."* 
 
 When you are baptized with this baptism, you become one with the one body waiting for all to come. You awaken as the one Spirit waiting for everyone to awaken. And as that one being, you will wait for all to set their hope fully upon this grace which comes at the unveiling of Jesus Christ. You will be constrained until everyone is once more brought into the one body, the one Spirit, the one God and Father of all. 
 
@@ -66,7 +66,7 @@ Now is the time to set your hope fully upon the true baptism, when the heavens o
 
 Throughout the letters of Paul, much is said of this baptism. In the third chapter of Galatians, Paul tells that baptism removes all human divisions of race, class, or sex. That after the baptism we are in Christ and are neither Greek nor Jew, slave nor free, male nor female. Having resurrected from division, we are baptized into the one Risen Lord who is one with every race and every creed; for the Risen Lord is above all divisions. 
 
-After baptism you will no longer see people in your [Dreams](/Dreams), for everything changes. Your little body will remain limited and weak, however, until you are relieved of it. Having fought the good fight and finished the race, you will have kept the faith and received the crown of righteousness and the wreath of the victor. So set your hope upon this - the final of the seven eulogies. 
+After baptism you will no longer see people in your Dreams, for everything changes. Your little body will remain limited and weak, however, until you are relieved of it. Having fought the good fight and finished the race, you will have kept the faith and received the crown of righteousness and the wreath of the victor. So set your hope upon this - the final of the seven eulogies. 
 
 The great confession of Israel, *"Hear O Israel, the Lord our God, the Lord is One,"* parallels the Christian creed as the one body, one Spirit, one Lord, one baptism, found in the 4th chapter of Ephesians. 
 
@@ -143,7 +143,7 @@ Now let us go into the silence.
 
 ### The Fulfillment of Scripture and Baptism's Transformation
 - Baptism removes human divisions and unifies individuals in Christ.
-- After baptism, people may no longer appear in [Dreams](/Dreams), and everything changes.
+- After baptism, people may no longer appear in Dreams, and everything changes.
 - The element of immersion in water is essential for baptism's transformative power.
 
 ### The Personal Revelation and the Unveiling of Jesus Christ

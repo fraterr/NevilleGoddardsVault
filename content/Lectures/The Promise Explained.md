@@ -19,7 +19,7 @@ And Jesus answered him and said, *"Are you a teacher of Israel and you do not un
 
 That is the story in essence. Man was looking for it to take place, as Nicodemus did, as all births take place, never having heard of an entirely different kind of a birth. Here, that which is born of the flesh is flesh; that which is born of the spirit is spirit; but he never heard before that Isaac represented what which is born of the spirit. 
 
-Now, when you read the Bible, the characters of the Bible are not persons as we are; they are eternal states of consciousness through which you and I - the Immortal Being -we pass through these states. The end of it - the climax of it is simply Jesus Christ. Each is destined to awaken one day as Jesus Christ, who is nothing less than God Himself! Every one is destined to awaken as God! 
+Now, when you read the Bible, the characters of the Bible are not persons as we are; they are [eternal states](/lectures/eternal-states) of consciousness through which you and I - the Immortal Being -we pass through these states. The end of it - the climax of it is simply [Jesus Christ](/lectures/jesus-christ). Each is destined to awaken one day as Jesus Christ, who is nothing less than God Himself! Every one is destined to awaken as God! 
 
 The birth cannot be of the flesh, for flesh and blood cannot inherit the Kingdom of God. It cannot enter the Kingdom of God - only Spirit, for God is Spirit. So this represents - Isaac represents - the birth of the Spirit. 
 

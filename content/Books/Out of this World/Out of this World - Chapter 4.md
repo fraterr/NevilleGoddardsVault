@@ -2,13 +2,13 @@
 
 The ideal we serve and strive to attain could never be evolved from us were it not potentially involved in our nature.
 
-It is now my purpose to retell and to emphasize an experience of mine printed by me two years ago. I believe these quotations from *"THE SEARCH"* will help us to understand the operation of the law of consciousness, and show us that we have no one to change but self.
+It is now my purpose to retell and to emphasize an experience of mine printed by me two years ago. I believe these quotations from *"[THE SEARCH](/books/the-search)"* will help us to understand the operation of the law of consciousness, and show us that we have no one to change but self.
 
 ―Once in an idle interval at sea I meditated on, ―the perfect state,‖ and wondered what I would be, were I of too pure eyes to behold inequity, if to me all things were pure and were I without condemnation. As I became lost in this fiery brooding, I found myself lifted above the dark environment of the senses. So intense was feeling I felt myself a being of fire dwelling in a body of air. Voices as from a heavenly chorus, with the exaltation of those who had been conquerors in a conflict with death were singing, ―He is risen – He is risen, and intuitively I knew they meant me.
 
 Then I seemed to be walking in the night. I soon came upon a scene that might have been the ancient Pool of Bethesda for in this place lay a great multitude of impotent folk –blind, halt, withered – waiting not for the moving of the water as of tradition, but waiting for me. As I came near, without thought or effort on my part they were, one after the other, molded as by the Magician of the Beautiful. Eyes, hands, feet – all missing members – were drawn from some invisible reservoir and molded in harmony with that perfection which I felt springing within me. When all were made perfect, the chorus exulted, “It is finished. Then the scene dissolved and I awoke.
 
-I know the vision was the result of my intense [Meditation](/Lectures/Radio Lectures/Meditation) upon the idea of perfection, for my meditations invariably bring about union with the state contemplated. I had been so completely absorbed within the idea that for a while I had become what I contemplated, and the high purpose with which I had for that moment identified myself drew the companionship of high things and fashioned the vision in harmony with my inner nature. The ideal with which we are united works by association of ideals to awaken a thousand moods to create a drama in keeping with the central idea.
+I know the vision was the result of my intense Meditation upon the idea of perfection, for my meditations invariably bring about union with the state contemplated. I had been so completely absorbed within the idea that for a while I had become what I contemplated, and the high purpose with which I had for that moment identified myself drew the companionship of high things and fashioned the vision in harmony with my inner nature. The ideal with which we are united works by association of ideals to awaken a thousand moods to create a drama in keeping with the central idea.
 
 My mystical experiences have convinced me that there is no way to bring about the outer perfection we seek other than by the transformation of ourselves.
 
@@ -30,7 +30,7 @@ However we toil or struggle, we can receive no more than our assumptions affirm.
 
 The circumstances of my life are too closely related to my conception of myself not to have been formed by my own spirit from some dimensionally larger storehouse of my being. If there is pain to me in these happenings, I should look within myself for the cause, for I am moved here and there and made to live in a world in harmony with my concept of myself.
 
-Intense [Meditation](/Lectures/Radio Lectures/Meditation) brings about a union with the state contemplated, and during this union we see visions, have experiences and behave in keeping with our change of consciousness. This shows us that a transformation of consciousness will result in a change of environment and behavior.
+Intense Meditation brings about a union with the state contemplated, and during this union we see visions, have experiences and behave in keeping with our change of consciousness. This shows us that a transformation of consciousness will result in a change of environment and behavior.
 
 All wars prove that violent emotions are extremely potent in precipitating mental rearrangements. Every great conflict has been followed by an era of materialism and greed in which the ideals for which the conflict ostensibly were waged are submerged.
 
@@ -55,7 +55,7 @@ There is nothing to change but our concept of self. As soon as we succeed in tra
 
 ### Vision of Perfection
 
-- Mystical vision of healing and perfecting a crowd showed that intense [Meditation](/Lectures/Radio Lectures/Meditation) on an ideal can temporarily unite us with that ideal state.
+- Mystical vision of healing and perfecting a crowd showed that intense Meditation on an ideal can temporarily unite us with that ideal state.
 - Visions mold circumstances to reflect our inner nature.
 
 ### Inner States Mold Outer Worlds

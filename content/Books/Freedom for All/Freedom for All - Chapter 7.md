@@ -20,7 +20,7 @@ If, on the other hand, he has no plan or conception as to the fulfillment of his
 
 The inevitable result is death and plagues or failure and frustration as promised for such violations.
 
-God speaks to man only through the medium of his basic desires.
+[God speaks to man](/lectures/god-speaks-to-man) only through the medium of his basic desires.
 
 Your desires are determined by your conception of yourself. Of themselves they are neither good or evil. *"I know and am persuaded by the Lord Christ Jesus that there is nothing unclean of itself but to him that seeth anything to be unclean to him it is unclean"* (Romans 14:14).
 
@@ -90,7 +90,7 @@ The feast of the Passover is the secret of changing your consciousness.
 
 You turn your attention from your present conception of yourself and assume the consciousness of being that which you want to be, thereby passing from one state to another.
 
-This feat is accomplished with the help of the twelve disciples, which are the twelve disciplined qualities of mind (see *"Your Faith is Your Fortune"* by the same author, chapter 18).
+This feat is accomplished with the help of [the twelve disciples](/lectures/the-twelve-disciples), which are the twelve disciplined qualities of mind (see *"Your [Faith is Your Fortune](/books/your-faith-is-your-fortune/your-faith-is-your-fortune)"* by the same author, chapter 18).
 
 ## Summary
 

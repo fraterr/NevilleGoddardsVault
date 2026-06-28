@@ -1,4 +1,4 @@
-The essential points in the successful use of the law of [Assumption](/Assumption) are these: First, and above all, yearning; longing; intense, burning desire.
+The essential points in the successful use of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) are these: First, and above all, yearning; longing; intense, burning desire.
 
 With all your heart you must want to be different from what you are. Intense, burning desire [combined with intention to make good] is the mainspring of action, the beginning of all successful ventures. In every great passion [which achieves its objective] desire is concentrated [and intentioned. You must first desire and then intend to succeed].
 
@@ -6,13 +6,13 @@ As the hart panteth after the water brooks, so panteth my soul after Thee, O God
 
 Blessed are they that hunger and thirst after righteousness for they shall be filled.
 
-Here the soul is interpreted as the sum total of all you believe, think, feel, and accept as true; in other words, your present level of awareness. God, I AM, is the power of awareness, the source and fulfilment of all desire [understood psychologically. I am an infinite series of levels of awareness and I am what I am in accordance with where I am in the series]. This quotation describes how your present level of awareness longs to transcend itself. Righteousness is the consciousness of already being what you want to be.
+Here the soul is interpreted as the sum total of all you believe, think, feel, and accept as true; in other words, your present level of awareness. God, I AM, is [the power of awareness](/books/the-power-of-awareness/the-power-of-awareness), the source and fulfilment of all desire [understood psychologically. I am an infinite series of levels of awareness and I am what I am in accordance with where I am in the series]. This quotation describes how your present level of awareness longs to transcend itself. Righteousness is the consciousness of already being what you want to be.
 
 Second, cultivate physical immobility, a physical incapacity not unlike the state described by Keats in his *“Ode to a Nightingale.”*
 
 A drowsy numbness pains my senses, as though of hemlock I had drunk.
 
-It is a [State akin to sleep](/State-akin-to-sleep), but one in which you are still in control of the direction of attention. You must learn to induce this state at will, but experience has taught that it is more easily induced after a substantial meal, or when you wake in the morning feeling very loathe to arise. Then you are naturally disposed to enter this state. The value of physical immobility exposes itself in the accumulation of mental force which absolute stillness brings with it. It increases your power of concentration.
+It is a State akin to sleep, but one in which you are still in control of the direction of attention. You must learn to induce this state at will, but experience has taught that it is more easily induced after a substantial meal, or when you wake in the morning feeling very loathe to arise. Then you are naturally disposed to enter this state. The value of physical immobility exposes itself in the accumulation of mental force which absolute stillness brings with it. It increases your power of concentration.
 
 Be still and know that I am God.
 
@@ -24,7 +24,7 @@ The application of these three points:
 
 1. Desire
 2. Physical immobility
-3. The [Assumption](/Assumption) of the wish already fulfilled is the way to at-one-ment or union with your objective. [The first point is thinking of the end, with intention to realize it. The third point is thinking from the end with the feeling of accomplishment. The secret of thinking from the end is to enjoy being it. The minute you make it pleasurable and imagine that you are it, you start thinking from the end.]
+3. The Assumption of the wish already fulfilled is the way to at-one-ment or union with your objective. [The first point is thinking of the end, with intention to realize it. The third point is thinking from the end with the feeling of accomplishment. The secret of thinking from the end is to enjoy being it. The minute you make it pleasurable and imagine that you are it, you start thinking from the end.]
 
 One of the most prevalent misunderstandings is that this law works only for those having a devout or a religious objective. This is a fallacy.
 
@@ -37,12 +37,12 @@ It works just as impersonally as the law of electricity works. It can be used fo
 
 Hearers only deceive themselves expecting fulfillment from wishful thinking.
 Your desire is what you want to be. Seeing it in imagination makes it real.
-Forgetting this is failing to persist in your [Assumption](/Assumption).
+Forgetting this is failing to persist in your Assumption.
 
 ### The Perfect Law of Liberty
 
-The law of [Assumption](/Assumption) liberates from limitation.
-Continuing in this law means persisting in the [Assumption](/Assumption) of desire fulfilled.
+The law of Assumption liberates from limitation.
+Continuing in this law means persisting in the Assumption of desire fulfilled.
 Keeping the wish fulfilled alive makes you a doer who realizes their desire.
 
 ### Apply the Law
@@ -53,7 +53,7 @@ Repetition of this truth concentrates attention on the law of freedom.
 ### Use Your Talent
 
 The unused talent, like an unused limb, withers away.
-Your talent is the power to consciously determine [Assumption](/Assumption).
+Your talent is the power to consciously determine Assumption.
 Like the good servant, multiply this talent by conscious use.
 
 ### Striving for Being

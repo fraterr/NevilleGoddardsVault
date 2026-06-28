@@ -7,7 +7,7 @@ Just how important this is to remember is almost impossible to say, but the mome
 This truth is common to all men, but the consciousness of it – and much more, the self-consciousness of it – is another matter. The day I realized this great truth – that everything in my world is a manifestation of the mental activity which goes on within me, and that the conditions and circumstances of my life only reflect the state of consciousness with which I am fused – is the most momentous in my life.  
 But the experience that brought me to this certainty is so remote from ordinary existence, I have long hesitated to tell it, for my reason refused to admit the conclusions to which the experience impelled me. Nevertheless, this experience revealed to me that I am supreme within the circle of my own state of consciousness and that it is the state with which I am identified that determines what I experience.  
 Therefore it should be shared with all, for to know this is to become free from the world's greatest tyranny, the belief in a second cause.  
-*"Blessed are the pure in heart: for they shall see God."* (Matthew 5:8)
+*"Blessed are [the pure in heart](/lectures/the-pure-in-heart): for they shall see God."* (Matthew 5:8)
 Blessed are they whose imagination has been so purged of the beliefs in second causes they know that imagination is all, and all is imagination.  
 One day I quietly slipped from my apartment in New York City into some remote yesteryear's countryside. As I entered the dining room of a large inn, I became fully conscious. I knew that my physical body was immobilized on my bed back in New York.  
 Yet here I was as awake and as conscious as I have ever been. I intuitively knew that if I could stop the activity of my mind, everything before me would freeze. No sooner was the thought born than the urge to try it possessed me. I felt my head tighten, then thicken to a stillness. My attention concentrated into a crystal-clear focus, and the waitress walking, walked not. And I looked through the window and the leaves falling, fell not. And the family of four eating, ate not. And they lifting the food, lifted it not. Then my attention relaxed, the tightness eased, and of a sudden all moved onward in their course. The leaves fell, the waitress walked and the family ate. Then I understood Blake's vision of the *"Sculptures of Los's Halls"*.  
@@ -33,27 +33,27 @@ It is the awakening of the imagination, the returning of His Son, that our Fathe
 *"The creature was made subject to vanity not willingly, but by reason of him who subjected it."* (Romans 8:20)  
 But the victory of the Son, the return of the prodigal, assures us that  *"the creature shall be delivered from the bondage of corruption into the glorious liberty of the Sons"* (Romans 8:21)  
 We were subjected to this biological experience because no one can know of imagination who has not been subjected to the vanities and limitations of the flesh, who has not taken his share of Sonship and gone prodigal, who has not experimented and tasted this cup of experience; and confusion will continue until man awakes and a fundamentally imaginative view of life has been reestablished and acknowledged as basic.  
-I should preach... *"the unsearchable riches of Christ and make all men see what is the fellowship of the mystery, which from the beginning of the world has been hid in God, Who created all things by Jesus Christ."* (Ephesians 3:8,9)  
-Bear in mind that Christ in you is your imagination.  
+I should preach... *"the unsearchable riches of Christ and make all men see what is the fellowship of the mystery, which from the beginning of the world has been hid in God, Who created all things by [Jesus Christ](/lectures/jesus-christ)."* (Ephesians 3:8,9)  
+Bear in mind that [Christ in you](/lectures/christ-in-you) is your imagination.  
 As the appearance of our world is determined by the particular state with which we are fused, so may we determine our fate as individuals by fusing our imaginations with ideals we seek to realize. On the distinction between our states of consciousness depends the distinction between the circumstances and conditions of our lives.  
 Man, who is free in his choice of state, often cries out to be saved from the state of his choice.  
 *"And ye shall cry out in that day, because of your king which ye shall have chosen you; and the Lord will not hear you in that day. Nevertheless, the people refused to obey the voice of Samuel; and they said, Nay; but we will have a king over us."* (1Samuel 8:18,19)
 Choose wisely the state that you will serve. All states are lifeless until imagination fuses with them.  
-*"All things when they are admitted are made manifest by the light: for everything that is made manifest is light,"* (Ephesians 5:13), and *"Ye are the light of the world,"* (Matthew 5:14), by which those ideas to which you have consented are made manifest.  
+*"All things when they are admitted are made manifest by the light: for everything that is made manifest is light,"* (Ephesians 5:13), and *"Ye are [the light of the world](/lectures/the-light-of-the-world),"* (Matthew 5:14), by which those ideas to which you have consented are made manifest.  
 Hold fast to your ideal. Nothing can take it from you but your imagination.  
 Don't think of your ideal, think from it. It is only the ideals from which you think that are ever realized.  
 Man lives not by bread alone, but by every word that proceeds out of the mouth of God, Matthew 4:4,  
 and *"the mouth of God"* is the mind of man.  
 Become a drinker and an eater of the ideals you wish to realize. Have a set, definite aim or your mind will wander, and wandering it eats every negative suggestion.  
 If you live right mentally, everything else will be right.  
-By a change of [Mental diet](/Mental-diet), you can alter the course of observed events.  
-But unless there is a change of [Mental diet](/Mental-diet), your personal history remains the same.  
+By a change of Mental diet, you can alter the course of observed events.  
+But unless there is a change of Mental diet, your personal history remains the same.  
 You illuminate or darken your life by the ideas to which you consent.  
-Nothing is more important to you than the ideas on which you feed. And you feed on the ideas from which you think. If you find the world unchanged, it is a sure sign that you are wanting in fidelity to the new [Mental diet](/Mental-diet), which you neglect in order to condemn your environment. You are in need of a new and sustained attitude.  
+Nothing is more important to you than the ideas on which you feed. And you feed on the ideas from which you think. If you find the world unchanged, it is a sure sign that you are wanting in fidelity to the new Mental diet, which you neglect in order to condemn your environment. You are in need of a new and sustained attitude.  
 You can be anything you please if you will make the conception habitual, for any idea which excludes all others from the field of attention discharges in action.  
 The ideas and moods to which you constantly return define the state with which you are fused.  
 Therefore train yourself to occupy more frequently the feeling of your wish fulfilled. This is creative magic. It is the way to work toward fusion with the desired state.  
-If you would assume the feeling of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your [Assumption](/Assumption) for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
+If you would assume the feeling of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your Assumption for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
 After you have assumed the feeling of the wish fulfilled, do not close the experience as you would a book, but carry it around like a fragrant odor.  
 Instead of being completely forgotten, let it remain in the atmosphere communicating its influence automatically to your actions and reactions. A mood, often repeated, gains a momentum that is hard to break or check. So be careful of the feelings you entertain. Habitual moods reveal the state with which you are fused.  
 It is always possible to pass from thinking of the end you desire to realize, to thinking from the end.  
@@ -92,7 +92,7 @@ But the crucial matter is thinking from the end, for thinking from means unifica
 
 ### States of Consciousness
 
-- Infinite states or *"rooms"* exist containing mental/emotional activities
+- [Infinite states](/lectures/infinite-states) or *"rooms"* exist containing mental/emotional activities
 - We enter and consent to the beliefs of states to fuse with them
 - This union projects the contents of the state outwardly
 
@@ -117,7 +117,7 @@ But the crucial matter is thinking from the end, for thinking from means unifica
 ### Live From Ideals
 
 - Do not just think OF ideals, think FROM them to realize them
-- Alter [Mental diet](/Mental-diet) to change conditions and history
+- Alter Mental diet to change conditions and history
 - Make ideas habitual to become one with desired states
 
 ### Practice Makes Real

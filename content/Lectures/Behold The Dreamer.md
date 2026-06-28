@@ -1,16 +1,16 @@
-In the 37th chapter of Genesis we read the story of Joseph, a dreamer whose [Dreams](/Dreams) always came true. His father, Israel, loved Joseph more than any of his other sons, and made him a long robe with sleeves. Now I ask you, who is Joseph? He is the foreshadowing of Jesus Christ, your true identity. Historical evidence for Jesus, the man, is nonexistent, yet he is the only reality and the true identity of every child born of woman. When you say within yourself, *"I am,"* that is Jesus Christ, he who is dreaming this whole vast world into being.   
+In the 37th chapter of Genesis we read the story of Joseph, a dreamer whose Dreams always came true. His father, Israel, loved Joseph more than any of his other sons, and made him a long robe with sleeves. Now I ask you, who is Joseph? He is the foreshadowing of [Jesus Christ](/lectures/jesus-christ), your true identity. Historical evidence for Jesus, the man, is nonexistent, yet he is the only reality and the true identity of every child born of woman. When you say within yourself, *"I am,"* that is Jesus Christ, he who is dreaming this whole vast world into being.   
   
 One day you will understand this truth, for:
 
-"Real are the [Dreams](/Dreams) of gods   
+"Real are the Dreams of gods   
 And smoothly pass their pleasure  
 In the long, immortal dream."   
   
-Your thoughts are your [Dreams](/Dreams), which weave your world into being and sustain it. You and I are inserted into the dream. *"'Tis we who, lost in stormy visions fight with phantoms, an unprofitable strife."* And we will continue the dream until we awaken to discover that we are the dreamer, who is God himself.   
+Your thoughts are your Dreams, which weave your world into being and sustain it. You and I are inserted into the dream. *"'Tis we who, lost in stormy visions fight with phantoms, an unprofitable strife."* And we will continue the dream until we awaken to discover that we are the dreamer, who is God himself.   
   
 This is not an idle dream, but one designed for the divine purpose of extending imagination's creative power. Expanding by entering his dream, God appears as you and I. And he is going to awaken from his dream, and, because there is only God, although we number into the billions we will all be resolved into the one Lord God Jehovah, who is Jesus Christ.   
   
-Now, Joseph could dream and interpret the [Dreams](/Dreams) of others, regardless of their complexities. Certain [Dreams](/Dreams) are simple and need no interpretation, but most of our [Dreams](/Dreams) are symbolic and few understand the language of symbolism. Joseph understood and interpreted the dream of the sheaves as well as his dream of the sun, the moon and eleven stars bowing before him. When his father heard the dream he said, *"What is this dream? Shall I and your mother and brothers bow down to you?"* He didn't criticize him, but set these things in his heart.   
+Now, Joseph could dream and interpret the Dreams of others, regardless of their complexities. Certain Dreams are simple and need no interpretation, but most of our Dreams are symbolic and few understand the language of symbolism. Joseph understood and interpreted the dream of the sheaves as well as his dream of the sun, the moon and eleven stars bowing before him. When his father heard the dream he said, *"What is this dream? Shall I and your mother and brothers bow down to you?"* He didn't criticize him, but set these things in his heart.   
   
 Now, in the state of Moses the name Joseph is changed to Joshua, which is the Hebraic form of the Anglicized word, *"Jesus"*, or *"Jehovah saves."* So here we find Joseph the dreamer, becoming Jesus the savior, by awakening from the dream he dreamed, interpreted, and fulfilled.   
   
@@ -22,7 +22,7 @@ How do I know this? Because I have awakened from the dream of life. I know that 
   
 While I remain in this body of blood and flesh, I must abide by its restrictions and limitations; yet remembering it is a dream, I can change it. If this world is reality I cannot change it; but if I am its reality, I can change my world relative to myself. I can imagine a desire fulfilled and watch it come to pass in my outer world. But first I had to know it was a dream. This I do know, for he who is in the depth of my own being said to me: *"I laid myself down within you to sleep and as I slept I dreamed a dream. I dreamed that I am you."* Yes, he dreamed that he is I, for he awoke and he was I. A few months later he revealed his mystery to me by bringing his son David to call me father. Through an innate wisdom I knew he wasn't just a boy who called me father, but the David of Biblical fame who is God's only son.   
   
-When God awakes within you he is the same God who awoke within me. There aren't two Gods. You and I are really one. Although there appears to be billions of us here, we are all one being, one God acting out this play, to expand our creative power and wisdom.   
+When God awakes within you he is the same God who awoke within me. There aren't two Gods. You and I are really one. Although there appears to be billions of us here, we are all one being, one God acting out this play, to expand our creative [power and wisdom](/lectures/power-and-wisdom).   
   
 A very dear friend of mine is in the audience tonight. I am so thrilled for him and for anyone who comes and has such an experience and shares it with me. This is his experience. While in his living room watching TV he felt drowsy, closed his eyes, and allowed himself to fall asleep. Remembering he was watching TV, he finds himself driving his car with his wife at his side. Feeling a sense of impending disaster, as his wife grabbed the wheel he awoke in the dream, and succeeded in getting control of the wheel again. Up ahead he saw a man he recognized as a great actor, and suddenly remembering where he was when the dream began, he inwardly proclaimed I AM. At that moment he awoke seated on his chair facing the TV. Then he said, *"Since this is the first time I awoke in a dream to know who I am and where I am, I can't help but be pleased with myself."* Well, he should be. All of these experiences are little breakages to the brain that bind us to the dream, which means that he is on the verge of awakening from this dream of life.   
   
@@ -44,13 +44,13 @@ Now, to show how scripture fulfills itself in experience, I will share with you 
   
 Now, in my dream I kept on moving through the labyrinthine ways of my mind, objectifying what I am encountering. Suddenly a man approached and asked if I wanted a taxi. Still holding my money I refused his invitation. Then many men began to gather around me and when I saw their faces, and their knives, I realized they were going to take my money as well as my life, so I reminded myself of where I was when I began the dream. I knew that if I awoke I would defeat their intention. I would survive, but none of us would get the money. The moment my decision was made, I dropped the money and returned to my bed. Now I know the truth of the statement, *"The love of money is the root of all evil"* for my vision is part of the eternal structure of the universe.   
   
-You, too, will have a vision such as mine after you have lost all desire for money. Yes, you will desire the necessary means to meet the needs of Caesar: to pay rent, taxes, and buy food and clothing; but you will know that you don't need a billion to meet them. Those who are hungry for more and more billions are sound asleep. If they heard what I am telling you now they would think me insane; but I would tell them that their [Dreams](/Dreams) reveal a far deeper insanity, for they are sound asleep, believing their [Dreams](/Dreams) to be reality.   
+You, too, will have a vision such as mine after you have lost all desire for money. Yes, you will desire the necessary means to meet the needs of Caesar: to pay rent, taxes, and buy food and clothing; but you will know that you don't need a billion to meet them. Those who are hungry for more and more billions are sound asleep. If they heard what I am telling you now they would think me insane; but I would tell them that their Dreams reveal a far deeper insanity, for they are sound asleep, believing their Dreams to be reality.   
   
-Now, in the story, Jesus [sic] was a dreamer whose father so loved him he made him a robe with long sleeves. I wondered what was the importance of the sleeves, and then one night I had this experience. I was teaching the great mystery of God when a man entered the room and severed the sleeve of my robe to expose my right arm from the shoulder to my fingertips. The next morning I turned to the Book of Isaiah and read, *"Who will believe our report? To whom has the arm of the Lord been revealed?"* That night the sleeve of the robe worn by Joseph the dreamer, was severed, revealing my arm - the symbol of my imaginative power.   
+Now, in the story, Jesus [sic] was a dreamer whose father so loved him he made him a robe with long sleeves. I wondered what was the importance of the sleeves, and then one night I had this experience. I was teaching [the great mystery](/lectures/the-great-mystery) of God when a man entered the room and severed the sleeve of my robe to expose my right arm from the shoulder to my fingertips. The next morning I turned to the Book of Isaiah and read, *"Who will believe our report? To whom has the arm of the Lord been revealed?"* That night the sleeve of the robe worn by Joseph the dreamer, was severed, revealing my arm - the symbol of my imaginative power.   
   
-I know, now, that I - all imaginative power - have awakened from the dream. I know that is what you are also. I am trying to convince you of this, and ask you to test yourselves. If this world is real, you can't change it, for you cannot change reality; but you can change a dream. Feel the changes have now come upon you. Immerse yourself in that feeling and sustain it. If this is a dream, that which you are feeling will produce objective facts for others to see as real. But you will remember its origin was a dream. Once it becomes objective and real, don't get lost in the dream, for like all [Dreams](/Dreams), it will fade away. Everything comes into being, waxes, wanes, and vanishes. A tree may be 8000 years old, but it will eventually die. The stars are melting away because they are the [Dreams](/Dreams) of the gods and   
+I know, now, that I - all imaginative power - have awakened from the dream. I know that is what you are also. I am trying to convince you of this, and ask you to [test yourselves](/lectures/test-yourselves). If this world is real, you can't change it, for you cannot change reality; but you can change a dream. Feel the changes have now come upon you. Immerse yourself in that feeling and sustain it. If this is a dream, that which you are feeling will produce objective facts for others to see as real. But you will remember its origin was a dream. Once it becomes objective and real, don't get lost in the dream, for like all Dreams, it will fade away. Everything comes into being, waxes, wanes, and vanishes. A tree may be 8000 years old, but it will eventually die. The stars are melting away because they are the Dreams of the gods and   
   
-"Real are the [Dreams](/Dreams) of gods   
+"Real are the Dreams of gods   
 And smoothly pass their pleasure  
 In a long, immortal dream."   
   
@@ -60,7 +60,7 @@ No child is born that is not clothing a son of God, as told us in the 32nd chapt
   
 When I entered this garment that my mother - a female - wove for me, God - whose name is I AM - entered with me and began his dream. My mother called me Neville, and as time went by, I began to claim that I am Neville. Then one day we became one new being, for the *"I"* who entered the garment named Neville awoke to discover I am God. Then to prove to myself that I truly am He, God's son appeared before me and called me Father. Now, restrained by the body that I wear, I am limited and weak. But when I take it off and the world calls me dead, I will return to the one being out of which I came, for I came out from the Father and came into the world. Again I am leaving the world and returning to the Father.   
   
-If you know that you are God the Father, you will know that it does not matter what the world [Dreams](/Dreams). No matter how horrible the dream may appear to be, the dreamer is untouched by his dream. He who dreamed he was Stalin and murdered millions, is untouched by his dream and in the end will discover that all things work towards God's awakening.   
+If you know that you are God the Father, you will know that it does not matter what the world Dreams. No matter how horrible the dream may appear to be, the dreamer is untouched by his dream. He who dreamed he was Stalin and murdered millions, is untouched by his dream and in the end will discover that all things work towards God's awakening.   
   
 The plea in the 44th Psalm *"Rouse thyself, why sleepest thou O Lord. Awake. Do not cast us off forever,"* is directed to God, the God in everyone who is struggling to awaken. He is waking in my friend Bill, who had the experience of driving his car, knowing he was seated in his living room. These kinds of experiences break the threads that bind one to his dream, and as these threads begin to break he awakes within his own skull, for that is where the drama takes place.   
   
@@ -74,7 +74,7 @@ The New Testament is all about the dreamer in you who awakens as Jesus Christ, a
   
 You will never find any evidence of an historical Christ here on earth. Bishop Pike went looking, yet never found who Christ really is. The Pope, as well as the leaders of all Christian religions, have millions of people looking to them as guides; yet they are all blind leaders of the blind. The historical evidence of Christ as a man is nonexistent, yet he is the only reality and the true identity of every child born of woman.   
   
-You are Jesus Christ, sleeping, dreaming horrible [Dreams](/Dreams) mixed with lovely ones; but in the end you will awaken from the dream to know you are Jesus Christ. You will then remain a little while to tell your experiences to those who are willing to be disillusioned and will allow their false ideas of the past to fall away; then you will leave this little shadow that walks across the earth to enter eternity as God.   
+You are Jesus Christ, sleeping, dreaming horrible Dreams mixed with lovely ones; but in the end you will awaken from the dream to know you are Jesus Christ. You will then remain a little while to tell your experiences to those who are willing to be disillusioned and will allow their false ideas of the past to fall away; then you will leave this little shadow that walks across the earth to enter eternity as God.   
   
 What I have told you will live in your minds. Hold fast to the visions I have shared with you, for in time my Word will take root and grow within you. Then this wonderful story will erupt in you, and you will know you, too, are Jesus Christ. And, because there is only one Jesus Christ and only one son, when God's son calls you Father, you and I are one. That is the fantastic mystery. How we, retaining our individuality, are one!   
   
@@ -87,20 +87,20 @@ Now let us go into the silence.
 
 - Joseph, a dreamer in the book of Genesis, is a foreshadowing of Jesus Christ.
 - Jesus is the true identity of every child born of woman.
-- Our thoughts are our [Dreams](/Dreams) that create and sustain our world.
+- Our thoughts are our Dreams that create and sustain our world.
 - We are inserted into the dream until we awaken and realize that we are the dreamer, who is God.
 - God appears as us to extend imagination's creative power.
 
-### Interpreting Symbolic [Dreams](/Dreams)
+### Interpreting Symbolic Dreams
 
-- Joseph could interpret symbolic [Dreams](/Dreams), such as the dream of the sheaves and the dream of the sun, moon, and stars.
-- [Dreams](/Dreams) are often symbolic and require understanding the language of symbolism.
+- Joseph could interpret symbolic Dreams, such as the dream of the sheaves and the dream of the sun, moon, and stars.
+- Dreams are often symbolic and require understanding the language of symbolism.
 - Joseph's dream of the sheaves and the dream of the sun, moon, and stars indicated his future position of power.
 
 ### Awakening from the Dream
 
 - Life is like an uninterrupted dream until we have certain experiences that awaken us.
-- Our perception of reality is just as much a dream as the [Dreams](/Dreams) we have at night.
+- Our perception of reality is just as much a dream as the Dreams we have at night.
 - We can have experiences where we realize we are dreaming and awaken to our true identity as God.
 
 ### Changing the Dream
@@ -121,7 +121,7 @@ Now let us go into the silence.
 - A man had an experience where he fell asleep and found himself driving a car but was aware he was still in his living room.
 - These kinds of experiences break the threads that bind us to the dream and indicate the potential for awakening.
 
-### [Dreams](/Dreams) and the Love of Money
+### Dreams and the Love of Money
 
 - The love of money is the root of all evil.
 - A recent dream experience of the author reinforced the truth of this statement.

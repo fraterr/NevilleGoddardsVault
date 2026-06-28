@@ -4,13 +4,13 @@ Having smelled an Easter lily, can you not discriminate between the smell of a r
 
 In 1820, William Blake wrote 'The Presence of the Divine Teacher,' in which he said: *"Man is all Imagination and God is Man and exists in us and us in Him. The Divine Body Jesus, we are his members."* In this statement Blake does not separate the members from the one body, the one spirit, one hope, one Lord, one faith, one God and Father of us all. There is only one Imaginal Body. We are all His members, for we are all Imagination! 
 
-You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. There is no fiction in the true sense of the world, for when a state is imagined, it is created. [Prayer](/Prayer) is imagination drenched in feeling. A desire, drenched in the feeling of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
+You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. [There is no fiction](/lectures/there-is-no-fiction) in the true sense of the world, for when a state is imagined, it is created. Prayer is imagination drenched in feeling. A desire, drenched in the feeling of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
 
 Everything here was once only imagined. The clothes you wear, the chair in which you are now seated, the building which houses you - all were first only imagined. Everything begins and ends in the human imagination. The source of all phenomena is Divine Imagining, which is God Himself! 
 
 Scholars consider the 82nd Psalm as the most difficult psalm in the entire Bible. Thomas Cheyne, the editor of the Encyclopedia Biblica, said of this psalm: "The ideas may be perennial, but their outward forms have long since ceased to be understood, and give the greatest challenge to the imagination of any interpreter.' 
 
-Here is the essence of the psalm: *"God has taken his place in the divine council, in the midst of the gods he holds judgment.' I say, you are gods, sons of the Most High, all of you. Nevertheless, you will die like men and fall as one man, O princes.' "*
+Here is the essence of the psalm: *"God has taken his place in the divine council, in the midst of the gods he holds judgment.' I say, you are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you. Nevertheless, you will die like men and fall as one man, O princes.' "*
 
 The word which troubled the great scholars is *"elohim."* It is a plural word which may be translated as 'God' or 'gods'. God (elohim) has taken his place in the divine council, proclaiming: You are gods (elohim). God is a compound unity of one made up of others. It takes all of the generations of men and their experiences to form the one God. 
 
@@ -18,17 +18,17 @@ The elohim is not something distinct and separate from the many, for unity has a
 
 It is not *"I, and another called 'the Lord'. Everyone is the Lord, as told us in the Sh'ma, the great Hebrew confession of faith: "*Hear, 0 Israel, the Lord our God, the Lord is one." 
 
-God has risen and is rising in all. He deliberately took upon himself man's nature. By that act of [Assumption](/Assumption), Jesus Christ became the pattern upon which the nature of man is molded. He didn't take a person called Neville upon himself, but my nature. And in so doing Jesus Christ became the type upon which I have been molded, raising this animal energy - called man, to divinity - called God. 
+God has risen and is rising in all. He deliberately took upon himself man's nature. By that act of Assumption, [Jesus Christ](/lectures/jesus-christ) became the pattern upon which the nature of man is molded. He didn't take a person called Neville upon himself, but my nature. And in so doing Jesus Christ became the type upon which I have been molded, raising this animal energy - called man, to divinity - called God. 
 
 Having fallen, God must now rescue himself. This he will do, for he has prepared a way for his return. You see, no man or group of men killed Jesus. It is he who said: *"No man takes my life, I lay it down myself. I have the power to lay it down and the power to lift it up again."* Experiencing death by taking upon himself the animal nature of man, Imagination takes that energy and transforms it into his own likeness. 
 
 God is the great lover and artist who will transform you - his son of division, into himself - the image of love! Loving you so much He died to begin his good work in you, he will complete it at the day of Jesus Christ. On that day you will rise to His level, to discover that you and He are one creative power of love! 
 
-There is only one way to return to the awareness of being God the Father, and that is to follow the pattern of the true words which you have heard from me. I tell you from experience: you will awaken, rise and are born from above. Five months later David will stand before you and call you Father. Four months from that date, your spiritual body will be split and He who wove it for you will unwind himself as you! Then two years and nine months later, the Holy Spirit, in the form of a dove, will descend upon you and smother you with love. 
+There is only one way to return to the awareness of being God the Father, and that is to [follow the pattern](/lectures/follow-the-pattern) of the true words which you have heard from me. I tell you from experience: you will awaken, rise and are born from above. Five months later David will stand before you and call you Father. Four months from that date, your spiritual body will be split and He who wove it for you will unwind himself as you! Then two years and nine months later, the Holy Spirit, in the form of a dove, will descend upon you and smother you with love. 
 
 Do not believe in any being on the outside! Make a decision within yourself now to radically change your attitude toward another, and persuade yourself that what you believe is true! 
 
-If imagining creates reality, and you practice repentance by radically changing your mind, you can take anything that displeases you and change it. Then persuade yourself that the change is real. Expect it to mold itself in harmony with what you are thinking, and the man, woman, or room, will bear witness to your repentance. 
+If [imagining creates](/lectures/imagining-creates) reality, and you practice repentance by radically changing your mind, you can take anything that displeases you and change it. Then persuade yourself that the change is real. Expect it to mold itself in harmony with what you are thinking, and the man, woman, or room, will bear witness to your repentance. 
 
 When you change your attitude towards another, he must change his attitude towards you. Are we not told: *"We love him because he first loved us?"* It always starts with self! If you want him to be different, you must initiate the change. And as you do, you are practicing repentance, for the time is fulfilled and the kingdom of heaven is at hand. It is now time to repent and believe the gospel! 
 
@@ -71,7 +71,7 @@ Now let us go into the silence.
 - The fallen state of humanity is seen as temporary, as God will ultimately bring all individuals back together to form the collective presence of unity.
 
 ### Jesus Christ and Imagination
-- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of [Assumption](/Assumption).
+- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of Assumption.
 - He did not embody a specific individual like Neville, but rather the nature of every human being.
 - By doing so, Jesus became the type upon which each individual is molded, raising human existence to divine levels.
 

@@ -74,7 +74,7 @@ VI
 
 As man drops these cherished human values he absorbs more and more of the light (the old priest) until finally he becomes the light and knows himself to be the ancient one.
 
-I AM the light of the world
+I AM [the light of the world](/lectures/the-light-of-the-world)
 
 VII
 
@@ -134,7 +134,7 @@ Commentary
 
 IV
 
-Now that my memory is restored — so that I know I AM the Lord and beside me there is no God— my kingdom is restored. My kingdom— which became dismembered in the day that I believed in powers apart from myself — is now fully restored.
+Now that my memory is restored — so that I know [I AM the Lord](/lectures/i-am-the-lord) and beside me there is no God— my kingdom is restored. My kingdom— which became dismembered in the day that I believed in powers apart from myself — is now fully restored.
 
 Now that I know my awareness of being is God I shall make the right use of this knowledge by becoming aware of being that which I desire to be.
 

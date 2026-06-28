@@ -2,7 +2,7 @@ We are told that because of an act of disobedience man fell, thereby separating 
   
 Scholars consider the 82nd Psalm as one of the most difficult of all the psalms to interpret, stating that although the idea may be perennial, its meaning has vanished.  
   
-Here are a couple of verses from that psalm: The Lord speaks, saying: *"I say, 'You are gods, Sons of the Most High, all of you; nevertheless, you shall die like men and fall as one man, O princes.' "* These words are addressed to every child born of woman regardless of race or nationality. I say to you right now, you are gods, Sons of the Most High, all of you!   
+Here are a couple of verses from that psalm: The Lord speaks, saying: *"I say, 'You are gods, [Sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you shall die like men and fall as one man, O princes.' "* These words are addressed to every child born of woman regardless of race or nationality. I say to you right now, you are gods, Sons of the Most High, all of you!   
   
 Evidently when these words were first spoken we were not men, otherwise the forecasting of our death like men would have no meaning. As a man, you know you will die; so what is being said here?  
   
@@ -14,17 +14,17 @@ The serpent has now become man! This serpent is described by Isaiah as the serap
   
 Our friend, Marta, departed this world on the 19th of July. Within a week after Marta's departure, her friend who was with her when she died had this vision. She saw Marta, the same dear girl we all loved. She was in a cage, heart-shaped but inverted so that the base was wider than the top, with a line of division between the two sections. Marta was on one side, with an enormous serpent on the other, with rings of color from its tail to its head. Questioning her, Marta said: *"How much longer will it be until we will become one?"* Picking up a book, the lady read aloud: *"After six thousand years, man and the serpent become one. You can tell the age of the serpent by the number of rings."* Approaching Marta, preparing to count the serpent's rings, she said: *"If Neville says it is so, it is so"* and awoke.  
   
-Now, God speaks to man through the language of dream and makes himself known in vision. Here is a vision. My friend has come to the end of the road. She has completely finished the drama and the two are now becoming one. Think about it. What would you get if you blended man and the serpent? A glorious, fiery being which Isaiah described as having six wings - two covering the face, two the feet and two used for propulsion.  
+Now, [God speaks to man](/lectures/god-speaks-to-man) through the language of dream and makes himself known in vision. Here is a vision. My friend has come to the end of the road. She has completely finished the drama and the two are now becoming one. Think about it. What would you get if you blended man and the serpent? A glorious, fiery being which Isaiah described as having six wings - two covering the face, two the feet and two used for propulsion.  
   
 You cannot describe the heavenly being you really are; yet you are gods, sons of the Most High, O princes. One being, containing all within himself, fell into division and resurrects into unity, into a holy temple of the Lord in whom you also are built in.   
   
 The act of resurrection is God's mightiest act, for he must awaken his sons, who deliberately fell into this world of decay and death. Dwell upon your true being, for although you have forgotten it, you are a son of God. You had to forget this truth in order to assume the limitations of this cross called man.  
   
-But before this [Assumption](/Assumption), our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
+But before this Assumption, our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
   
 Without defining exactly what you look like, suppose you are now the being spoken of as the son of God. You certainly are not a man, because you must fall into man and die like men. Knowing that no man takes your life, you lay it down yourself. You have the power to lay it down and the power to lift it up again.  
   
-You agreed to take upon yourself this garment of anatomy called man, which is filled to overflowing with passion. Now, believing yourself to be human, you have emptied yourself of your power and wisdom. You cannot restrain the impulse to act, even though you were told that if you entertained one concupiscent thought you would die. Can you now see that the drama is psychological and not physical?  
+You agreed to take upon yourself this garment of anatomy called man, which is filled to overflowing with passion. Now, believing yourself to be human, you have emptied yourself of your [power and wisdom](/lectures/power-and-wisdom). You cannot restrain the impulse to act, even though you were told that if you entertained one concupiscent thought you would die. Can you now see that the drama is psychological and not physical?  
   
 The moment you contemplate an act, it has been committed. Whether it is pleasant and you may be inclined to do it physically, or you restrain the impulse to act upon that which you are contemplating, the act is already done!  
   
@@ -32,13 +32,13 @@ The moment you contemplate an act, it has been committed. Whether it is pleasant
   
 There is not a thing you -as man - have ever done that God has seen something to be blamed in the act. And in the end, God in his infinite mercy will step beyond and arouse you. Having tasted what it is to be man in a world of death, you - a son of the Most High - will add what you have extracted from being man, to God's glory.  
   
-Before you fell into this world of men, you were infinitely greater than any man who ever walked the face of this earth. You have no ancestor comparable to the being you really are. Although you emptied yourself of your divine power and wisdom, it is still awaiting your return. And you will return expanded beyond the wildest [Dreams](/Dreams) of what you were prior to the fall.  
+Before you fell into this world of men, you were infinitely greater than any man who ever walked the face of this earth. You have no ancestor comparable to the being you really are. Although you emptied yourself of your divine power and wisdom, it is still awaiting your return. And you will return expanded beyond the wildest Dreams of what you were prior to the fall.  
   
 One Man, containing all men, fell into division, and all men are gathered one by one and redeemed into the unity of the one Man who fell. *"This structure is slowly built as a holy temple of the Lord in whom you also are built in."*  
   
 Let no one tell you that you did anything wrong to cause your descent. It was because God challenged himself to literally die and overcome death. This you will know to be true when you begin to stir within yourself. Then your brain will become alive, and you will awaken in the tomb of your skull, from which you will come out.  
   
-Now we are told: *"He is designated son of God with power by his resurrection from the dead."* If you read scripture carefully, you will discover that the babe wrapped in swaddling clothes is not a birth, but a sign of the birth. And when it is said that Jesus was twelve years old, I ask you: twelve from what? Not from a little garment of flesh, but Jesus Christ is a wholly supernatural being. He is the son who fell when he wasn't man to begin with. Jesus is the someone buried in you that is you!  
+Now we are told: *"He is designated son of God with power by his resurrection from the dead."* If you read scripture carefully, you will discover that the babe wrapped in swaddling clothes is not a birth, but a sign of the birth. And when it is said that Jesus was twelve years old, I ask you: twelve from what? Not from a little garment of flesh, but [Jesus Christ](/lectures/jesus-christ) is a wholly supernatural being. He is the son who fell when he wasn't man to begin with. Jesus is the someone buried in you that is you!  
   
 One day he will awaken and you will see others, but they will not see you, as you will be invisible to them. But you will know yourself to be sheer power and sheer wisdom.   
   

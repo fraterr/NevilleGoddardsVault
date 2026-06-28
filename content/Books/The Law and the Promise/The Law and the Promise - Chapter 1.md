@@ -1,6 +1,6 @@
 *"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
 
-The purpose of the first portion of this book is to show, through actual true stories, how imagining creates reality.
+The purpose of the first portion of this book is to show, through actual true stories, how [imagining creates](/lectures/imagining-creates) reality.
 
 Science progresses by way of hypotheses tentatively tested and afterwards accepted or rejected according to the facts of experience. The claim that imagining creates reality needs no more consideration than is allowed by science. It proves itself in performance.
 
@@ -12,11 +12,11 @@ Events happen because comparatively stable imaginal activities created them, and
 
 *"The secret of imagining"*, writes Douglas Fawcett, *"is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."*
 
-When man solves the mystery of imagining, he will have discovered the secret of causation, and that is: Imagining creates reality.
+When man solves the mystery of imagining, he will have discovered [the secret of causation](/lectures/the-secret-of-causation), and that is: Imagining creates reality.
 
 Therefore, the man who is aware of what he is imagining knows what he is creating; realizes more and more that the drama of life is imaginal — not physical.
 
-All activity is at bottom imaginal. An awakened Imagination works with a purpose. It creates and conserves the desirable, and transforms or destroys the undesirable.
+All activity is at bottom imaginal. An awakened Imagination) works with a purpose. It creates and conserves the desirable, and transforms or destroys the undesirable.
 
 Divine imagining and human imagining are not two powers at all, rather one. The valid distinction which exists between the seeming two lies not in the substance with which they operate but in the degree of intensity of the operant power itself. Acting at high tension, an imaginal act is an immediate objective fact. Keyed low, an imaginal act is realized in a time process. But whether imagination is keyed high or low, it is the *"ultimate, essentially non-objective Reality from which objects are poured forth like sudden fancies"* (Hermann Keyserling, Count), *"The Travel Diary of a Philosopher"*. No object is independent of imagining on some level or levels.
 
@@ -48,7 +48,7 @@ You can't commit yourself to what you do not love, so the secret of self-commiss
 
 Faith is believing what is unbelievable. Commit yourself to the feeling of the wish fulfilled, in faith that this act of self-commission will become a reality. And it must become a reality because imagining creates reality.
 
-Imagination is both conservative and transformative. It is conservative when it builds its world from images supplied by memory and the evidence of the senses. It is creatively transformative when it imagines things as they ought to be, building its world out of the generous [Dreams](/Dreams) of fancy.
+Imagination is both conservative and transformative. It is conservative when it builds its world from images supplied by memory and the evidence of the senses. It is creatively transformative when it imagines things as they ought to be, building its world out of the generous Dreams of fancy.
 
 In the procession of images, the ones that take precedence — naturally — are those of the senses.
 
@@ -60,21 +60,21 @@ Therefore, it is the height of folly to expect the wish to be realized by the me
 
 That which requires imaginative occupancy to produce its effect, obviously cannot be effected without such occupancy. You cannot be in one image and not suffer the consequences of not being in another.
 
-Imagination is spiritual sensation. Enter the image of the wish fulfilled, then give it sensory vividness and tones of reality by mentally acting as you would act were it a physical fact. Now, this is what I mean by spiritual sensation.
+Imagination is [spiritual sensation](/lectures/spiritual-sensation). Enter the image of the wish fulfilled, then give it sensory vividness and tones of reality by mentally acting as you would act were it a physical fact. Now, this is what I mean by spiritual sensation.
 
 Imagine that you are holding a rose in your hand. Smell it. Do you detect the odor of roses? Well, if the rose is not there, why is its fragrance in the air? Through spiritual sensation — that is — through imaginal sight, sound, scent, taste and touch, you can give to the image sensory vividness.
 
 If you do this, all things will conspire to aid your harvesting and upon reflection you will see how subtle were the threads that led to your goal. You could never have devised the means which your imaginal activity employed to fulfill itself.
 
-If you long to escape from your present sense fixation, to transform your present life into a dream of what might well be, you need but imagine that you are already what you want to be and to feel the way you would expect to feel under such circumstances. Like the make-believe of a child who is remaking the world after its own heart, create your world out of pure [Dreams](/Dreams) of fancy.
+If you long to escape from your present sense fixation, to transform your present life into a dream of what might well be, you need but imagine that you are already what you want to be and to feel the way you would expect to feel under such circumstances. Like the make-believe of a child who is remaking the world after its own heart, create your world out of pure Dreams of fancy.
 
-Mentally enter into your dream; mentally do what you would actually do, were it physically true. You will discover that [Dreams](/Dreams) are realized not by the rich, but by the imaginative.
+Mentally enter into your dream; mentally do what you would actually do, were it physically true. You will discover that Dreams are realized not by the rich, but by the imaginative.
 
-Nothing stands between you and the fulfillment of your [Dreams](/Dreams) but facts — and facts are the creations of imagining. If you change your imagining, you will change the facts.
+Nothing stands between you and the fulfillment of your Dreams but facts — and facts are the creations of imagining. If you change your imagining, you will change the facts.
 
 Man and his past are one continuous structure. This structure contains all of the facts which have been conserved and still operate below the threshold of his surface mind. For him it is merely history. For him it seems unalterable — a dead and firmly fixed past. But for itself, it is living — it is part of the living age.
 
-He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [Revision](/Revision) — and [Revision](/Revision) results in repeal.
+He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call Revision — and Revision results in repeal.
 
 Changing your life means changing the past.
 

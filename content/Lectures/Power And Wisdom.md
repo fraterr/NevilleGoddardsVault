@@ -4,7 +4,7 @@ Knowing himself to be all power, Jesus turned to those who followed him, and sai
 
 Clothed with the power from on high, Jesus entered the synagogue, opened the Book of Isaiah to the 61st chapter, and read: *"The Spirit of the Lord is upon me. He has anointed me to preach good news to the poor and to release the captives."* Closing the book, he handed it to the attendant and said: *"Today the scripture you have just heard has been fulfilled."* The Old Testament predicted the coming of the New Age, called the kingdom of God. By this statement, Jesus claimed to be its fulfillment, for when the dove descended he knew he was the Messiah, the embodiment of power and wisdom. 
 
-When Pilate, the personification of logic and reason, asked: *"Where are you from?"* Jesus did not answer. But when he said: *"Do you not know I have the power to release or crucify you,"* Jesus replied: *"You have no power over me unless it is given you from within."* In other words, if I do not give my power to you, you have none. 
+When Pilate, the personification of logic and reason, asked: *"[Where are you from](/lectures/where-are-you-from)?"* Jesus did not answer. But when he said: *"Do you not know I have the power to release or crucify you,"* Jesus replied: *"You have no power over me unless it is given you from within."* In other words, if I do not give my power to you, you have none. 
 
 In the above statement the word *"anothen"* is translated *"from above,"* but its true meaning is *"from within."* This same word is used when Nicodemus is told: *"Unless you are born from within, you cannot enter the kingdom of God."* 
 
@@ -14,7 +14,7 @@ As a life-giving spirit, I have entered a scene from within. Those who were pres
 
 Only when you wear the Human Form Divine - which is the embodiment of love - will you exercise this power. It is never exercised here, for your power is too great. You could, by arresting an army, rearrange their intention, release them, and they would execute your instructions - even if it meant their death. But wisdom goes hand in hand with that power. Paul asks: *"Has not God made foolish the wisdom of the world? In the wisdom of God the world does not know God through wisdom. The foolishness of God is wiser than men and the weakness of God is stronger than men."* 
 
-God cannot be found through studying scripture. He must be revealed! God either reveals himself to you, or you remain ignorant as to who he is. God first revealed himself to Moses as destructive power, saying: *"I AM the Lord. I appeared to Abraham, Isaac, and Jacob as God Almighty, but by my name I AM I did not make myself known to them."* 
+God cannot be found through studying scripture. He must be revealed! God either reveals himself to you, or you remain ignorant as to who he is. God first revealed himself to Moses as destructive power, saying: *"[I AM the Lord](/lectures/i-am-the-lord). I appeared to Abraham, Isaac, and Jacob as God Almighty, but by my name I AM I did not make myself known to them."* 
 
 The patriarchs Abraham, Isaac, and Jacob knew only sheer power, but Moses knew God as I AM. Revealing himself as power, then as I AM, when God's son calls you father, you will know who you really are. This is the wisdom of God as opposed to the wisdom of man. 
 
@@ -54,7 +54,7 @@ Imagine whatever you desire. Believe you will receive it and go about your busin
 
 Believe me, for God's pattern of salvation has unfolded in me. The divine drama has reached its climax. Only Caesar's history continues, and every child born of woman is fulfilling it. Moving across the screen of space for thousands of years, man experiences moments of joy and sorrow, sadness and pain, until the dramatic story of Christ unfolds from within. It takes 1260 days from God's first mighty act to the final one. Then, if the brothers decide it is your task to remain and tell the story, you will. Like Paul, I long to depart. I feel as though there is a thorn in my side and I pray to have it removed. But I will remain, knowing my grace is sufficient, for my power is made perfect in weakness. 
 
-I recall the first night I met [Abdullah](/Abdullah). I had purposely delayed going to one of his meetings, because a man whose judgment I did not trust had insisted on my attendance. At the end of the meeting, Ab approached me and said: *"Neville, you are six months late."* Startled, I questioned how he knew my name, when he said: *"The brothers told me you would be here six months ago."* Then he added: *"I will remain until you have received all that I must give you. Then I will depart."* He, too, may have longed to go, but he had to wait for me. 
+I recall the first night I met Abdullah. I had purposely delayed going to one of his meetings, because a man whose judgment I did not trust had insisted on my attendance. At the end of the meeting, Ab approached me and said: *"Neville, you are six months late."* Startled, I questioned how he knew my name, when he said: *"The brothers told me you would be here six months ago."* Then he added: *"I will remain until you have received all that I must give you. Then I will depart."* He, too, may have longed to go, but he had to wait for me. 
 
 If you are serious about the study of the Bible, read the eighth chapter of Proverbs. Begin with the 22nd verse, and as you go through to the end you will discover it is all about wisdom. 
 
@@ -85,7 +85,7 @@ Now let us go into the silence.
 - When clothed with power from on high, a person becomes aware of a different world and their role as a life-giving spirit.
 - Belief and imagination are powerful tools for manifesting desires.
 - The divine drama reaches its climax through the story of Christ unfolding within each individual.
-- [Abdullah](/Abdullah), a teacher, had specific knowledge about Neville and remained to guide him.
+- Abdullah, a teacher, had specific knowledge about Neville and remained to guide him.
 - The study of wisdom is crucial for finding life and receiving favor from the Lord.
 - The world and its conflicts are essential for personal growth, leading to reunions with God and entrance into the New Age..New Age..w Age..
 

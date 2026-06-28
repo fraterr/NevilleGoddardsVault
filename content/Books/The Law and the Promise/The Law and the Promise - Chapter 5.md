@@ -6,9 +6,9 @@ You will see how the telling of one story of the successful use of imagination c
 
 One night a gentleman rose in my audience. He said that he had no question to ask but would like to tell me something. This was his story:
 
-When he came out of the Armed Forces after World War II he got a job that gave him take-home pay of $25.00 a week. After ten years he was making $600.00 a month. At that time he bought my book *"Awakened Imagination"* and read the chapter *"The Pruning Shears of [Revision](/Revision)."*
+When he came out of the Armed Forces after World War II he got a job that gave him take-home pay of $25.00 a week. After ten years he was making $600.00 a month. At that time he bought my book *"Awakened Imagination)"* and read the chapter *"[The Pruning Shears of Revision](/lectures/the-pruning-shears-of-revision)."*
 
-Through the daily practice of "[Revision](/Revision)”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
+Through the daily practice of "Revision”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
 
 In my audience sat a man who, by his confession, was broke. He had read the same book, but he suddenly realized he had done nothing with the use of his imagination to solve his financial problem.
 
@@ -57,7 +57,7 @@ From morn to night, my friend."
 
 ### Fancy and imagination
 
-The images of our imagination are the realities of which any physical manifestation is only the shadow. Imagining is spiritual sensation. If we are faithful to vision, the image will create for itself the only physical manifestation of itself it has a right to make.
+The images of our imagination are the realities of which any physical manifestation is only the shadow. Imagining is [spiritual sensation](/lectures/spiritual-sensation). If we are faithful to vision, the image will create for itself the only physical manifestation of itself it has a right to make.
 
 ### Enter into the feeling of your wish fulfilled
 
@@ -67,9 +67,9 @@ Through spiritual sensation you will give to your image the sensory vividness ne
 
 F.B. used his imagination for a conscious purpose, affecting life instead of merely reflecting it. Imagining the wish fulfilled is the seeking that finds, the asking that receives, the knocking to which is opened. Imaginative constancy controls perception of events in space-time.
 
-### If there were [Dreams](/Dreams) to sell, what would you buy?
+### If there were Dreams to sell, what would you buy?
 
-You would buy your wish fulfilled. Your [Dreams](/Dreams) are without price and without money. Mrs. G.R. imaginatively heard the verdict she wanted to physically hear in court and knew the outer world must confirm it. She completely disregarded all contrary evidence and persisted in hearing the words *"We find the defendant not guilty"* until the jury actually spoke those words.
+You would buy your wish fulfilled. Your Dreams are without price and without money. Mrs. G.R. imaginatively heard the verdict she wanted to physically hear in court and knew the outer world must confirm it. She completely disregarded all contrary evidence and persisted in hearing the words *"We find the defendant not guilty"* until the jury actually spoke those words.
 
 ### The poet creates from contemplation
 

@@ -30,7 +30,7 @@ To rise to the level of any state is to automatically become that state in expre
 
 To accomplish this seemingly impossible feat you take your attention away from your problem and place it upon just being. You say silently but feelingly, *“I AM.”* Do not condition this awareness but continue declaring quietly, *“I AM — I AM.”* Simply feel that you are faceless and formless and continue doing so until you feel yourself floating.
 
-*“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true [Meditation](/Lectures/Radio Lectures/Meditation).
+*“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true Meditation.
 
 This wonderful experience of rising and floating is the signal that you are absent from the body or problem and are now present with the Lord; in this expanded state you are not conscious of being anything but I AM — I AM; you are only conscious of being.
 
@@ -46,7 +46,7 @@ Today is the day, the eternal now, when conditions in the world have attained th
 
 We are told we were first in our own sight helpless grasshoppers and because of this conception of ourselves we were to the enemy helpless grasshoppers. We can be to others only that which we are to ourselves. Therefore, as we revalue ourselves and begin to feel ourselves to be the giant, a center of power, we automatically change our relationship to the giants, reducing these former monsters to their true place, making them appear to be the helpless grasshoppers.
 
-Paul said of this principle, *“It is to the Greeks (or the so-called wise men of the world) foolishness; and to the Jews (or those who look for signs) a stumbling block”*; with the result that man continues to walk in darkness rather than awake to the realization, *“I AM the light of the world.”*
+Paul said of this principle, *“It is to the Greeks (or the so-called wise men of the world) foolishness; and to the Jews (or those who look for signs) a stumbling block”*; with the result that man continues to walk in darkness rather than awake to the realization, *“I AM [the light of the world](/lectures/the-light-of-the-world).”*
 
 Man has so long worshiped the images of his own making that at first he finds this revelation blasphemous, but the day man discovers and accepts this principle as the basis of his life, that day man slays his belief in a God apart from himself.
 
@@ -56,7 +56,7 @@ Man in the darkness of human ignorance sets out on his search for God, aided by 
 
 With this discovery man’s human ear or hearing (understanding) is cut off by the sword of faith (Peter) as his perfect disciplined hearing (understanding) is restored by (Jesus) the knowledge that I AM is Lord and Savior.
 
-Before man can transform his world, he must first lay this foundation or understanding. I AM the Lord. Man must know that his awareness of being is God. Until this is firmly established so that no suggestion or argument of others can shake him, he will find himself returning to the slavery of his former belief. *“If ye believe not that I AM He, ye shall die in your sins.”* Unless man discovers that his consciousness is the cause of every expression of his life, he will continue seeking the cause of his confusion in the world of effects, and so shall die in his fruitless search.
+Before man can transform his world, he must first lay this foundation or understanding. [I AM the Lord](/lectures/i-am-the-lord). Man must know that his awareness of being is God. Until this is firmly established so that no suggestion or argument of others can shake him, he will find himself returning to the slavery of his former belief. *“If ye believe not that I AM He, ye shall die in your sins.”* Unless man discovers that his consciousness is the cause of every expression of his life, he will continue seeking the cause of his confusion in the world of effects, and so shall die in his fruitless search.
 
 *“I AM the vine and ye are the branches.”* Consciousness is the vine and that which you are conscious of being is as branches that you feed and keep alive. Just as a branch has no life except it be rooted in the vine, likewise things have no life except you be conscious of them. Just as a branch withers and dies if the sap of the vine ceases to flow towards it, so do things and qualities pass away if you take your attention from them; because your attention is the sap of life which sustains the expression of your life.
 

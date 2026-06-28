@@ -2,11 +2,11 @@ Recently I read a book called, Vanished Parts of Yesterday, by Lord Frederick Ha
 
 Make sure no sentry is now standing on your lawn, keeping you from the word of God; for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
 
-Now, the spirit of truth comes to all who will accept it. And the incomplete form of the incarnate revelation will continue until the spirit of truth comes! It has come to this lady whose vision I would like to share with you now. 
+Now, the spirit of truth) comes to all who will accept it. And the incomplete form of the incarnate revelation will continue until [the spirit of truth](/lectures/the-spirit-of-truth) comes! It has come to this lady whose vision I would like to share with you now. 
 
-Finding herself on a movie lot with two others, she approaches a man who had the appearance of John Wayne. Calling her by name, he said something to her she could not understand; but upon awakening, these words were clearly heard: It is not Before Abraham was, I am! but Before Abraham, was I am! 
+Finding herself on a movie lot with two others, she approaches a man who had the appearance of John Wayne. Calling her by name, he said something to her she could not understand; but upon awakening, these words were clearly heard: It is not Before Abraham was, I am! but [Before Abraham, was I am](/lectures/before-abraham-was-i-am)! 
 
-Bear in mind the Bible's original manuscript had no punctuation marks. There were no verses, no paragraphs, no capital letters, chapters, or punctuation until the 16th century. Man has placed the comma after the word was, as though a man was speaking. But in this incarnate revelation, the spirit of truth revealed the source of all life as *"I am!"* This is the same being who said: *"Go to my brothers and say, `I am ascending unto my Father and you Father, unto my God and your God."*' In this revelation the incarnate work is not separating himself from you; rather he is telling you that the *"I am"* has unfolded within him. 
+Bear in mind the Bible's original manuscript had no punctuation marks. There were no verses, no paragraphs, no capital letters, chapters, or punctuation until the 16th century. Man has placed the comma after the word was, as though a man was speaking. But in this incarnate revelation, the spirit of truth) revealed the source of all life as *"I am!"* This is the same being who said: *"Go to my brothers and say, `I am ascending unto my Father and you Father, unto my God and your God."*' In this revelation the incarnate work is not separating himself from you; rather he is telling you that the *"I am"* has unfolded within him. 
 
 Will you believe that revelation? Will you turn to this one presence, this one I am who was before Abraham, knowing it to be the source of everything good, bad, and indifferent? 
 
@@ -16,27 +16,27 @@ I know very able imaginists who suggest we look upon the history of man as mater
 
 In the Book of Genesis we are told: *"He meant it for evil but God meant it for good."* In order to play the part of man, awareness had to fall asleep, and in so doing became the dreamer called Joseph and was sold into slavery. In spite of the horrors of the world, Joseph awoke and was able to save civilization from death. So I believe that regardless of what we do, it is being transformed into the beauty of the promise. 
 
-Dwell upon this lady's revelation, for it came to her through the spirit of truth. Remember: the dreamer in her is also the being in the director's chair. John Wayne always plays the leading role, never a secondary one, and God is the key actor, always the star. Recognizing John (the word means *"Jehovah's favored one"*) he calls her name. 
+Dwell upon this lady's revelation, for it came to her through the spirit of truth). Remember: the dreamer in her is also the being in the director's chair. John Wayne always plays the leading role, never a secondary one, and God is the key actor, always the star. Recognizing John (the word means *"Jehovah's favored one"*) he calls her name. 
 
 Scripture tells us that God numbered the stars and called each by name. Do you know that you are far more precious than the stars or the sands of the sea? Though we seem to be unnumbered, each and every one of us is known in the mind of the Father and each name is recorded in the Book of Life. 
 
 Although my friend could not hear the words spoken in her vision, upon awakening she remembered: It is not before Abraham was, I am, but before Abraham, was I am! You will find this statement in the 8th chapter of the Gospel of John. This is a chapter which concerns itself with the identity of the Father. Here he claims: *"My Father is he who you call God, but I know my Father and you know not your God."* In this statement he is trying to get you to go beyond a physical state and think of God (your imagination) as the source of all life! 
 
-You can test God through the act of [Assumption](/Assumption). By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
+You can test God through the act of Assumption. By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
 
 I can remember buying a new hat and walking down the streets of New York City thinking everyone knew my hat was new. I was very conscious of my hat and a little embarrassed because of its newness. But when I had worn it long enough to throw it in the closet and unconsciously pick it up again, it was an old hat and I could wear it normally. You may deny this, but if you are honest with yourself you will admit that you are very conscious of a new suit or dress, even though those who meet you may not know or care whether your clothes are old or new. Only you are aware of the clothes you are wearing. 
 
-The same thing is true of an [Assumption](/Assumption). At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your [Assumption](/Assumption) long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
+The same thing is true of an Assumption. At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your Assumption long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
 
 Remember: the source of all life is I AM! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"I AM"*! And there is no other when you say, I am! 
 
-The spirit of truth made himself known to this lady in a vision and will lead her into all things. Trained in the belief of an external God, she has overcome a great deal to receive him. 
+The spirit of truth) made himself known to this lady in a vision and will lead her into all things. Trained in the belief of an external God, she has overcome a great deal to receive him. 
 
-Man must overcome the belief in a being outside of self before the spirit of truth can come and make himself known to him. This being is immortal and within. Each time you say I am, you speak his name. When you discover this, you will know that you and God are one! 
+Man must overcome the belief in a being outside of self before the spirit of truth) can come and make himself known to him. This being is immortal and within. Each time you say I am, you speak his name. When you discover this, you will know that you and God are one! 
 
 The world rejects this revelation because they do not know the Father. They call him *"Lord"* and worship him as someone external to themselves, not knowing He is within. 
 
-Although you may believe that Jesus Christ is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, Christ. Then you will tell those who have been conditioned to believe that Jesus Christ is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
+Although you may believe that [Jesus Christ](/lectures/jesus-christ) is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, Christ. Then you will tell those who have been conditioned to believe that Jesus Christ is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
 
 If David calls me father and he calls you father, are we not one father? If there is only one son, only one God and father of all, and everyone individually has the identical son who calls him father - have we not proved the truth of that wonderful 4th chapter of Ephesians: *"There is only one body, one Spirit, one hope, one Lord, one faith, one baptism, one God and Father of all?"* 
 
@@ -60,9 +60,9 @@ In the end everyone will be the Father. And because there is only one Father and
 
 Dwell on this revelation. It is not before Abraham was, I am, but before Abraham, was I am! Here we see that the fountainhead of everything is I am! 
 
-Although the horrors of the world may deny a divine event, remember the story of the tapestry. Scripture calls the unlovely side *"below,"* while the lovely side is called *"above."* The Risen Christ is made to say: *"You are from below and I am from above. You are of this world and I am not of this world."* In other words, you who have not experienced scripture are from below, while those who have are from above. You are of this world, while they are no longer a part of this world. But, because we are all one, you will be lifted up as the Risen Christ. 
+Although the horrors of the world may deny [a divine event](/lectures/a-divine-event), remember the story of the tapestry. Scripture calls the unlovely side *"below,"* while the lovely side is called *"above."* The Risen Christ is made to say: *"You are from below and I am from above. You are of this world and I am not of this world."* In other words, you who have not experienced scripture are from below, while those who have are from above. You are of this world, while they are no longer a part of this world. But, because we are all one, you will be lifted up as the Risen Christ. 
 
-Any desire is yours to fulfill if you will not lose confidence in I am. Attach anything to it and it will grow. If your desire is to be rich, say to yourself: I am rich - and think from that [Assumption](/Assumption). If you want to be known, claim you already are. You can be anything you want to be by the act of [Assumption](/Assumption). Wear your desire as though it were true now, and your [Assumption](/Assumption) - though denied by your senses - when persisted in will harden into fact by objectifying itself and becoming a reality. 
+Any desire is yours to fulfill if you will not lose confidence in I am. Attach anything to it and it will grow. If your desire is to be rich, say to yourself: I am rich - and think from that Assumption. If you want to be known, claim you already are. You can be anything you want to be by the act of Assumption. Wear your desire as though it were true now, and your Assumption - though denied by your senses - when persisted in will harden into fact by objectifying itself and becoming a reality. 
 
 But that is not the purpose of life. There is only one purpose, which is to fulfill scripture. And when God makes himself known in you - an individual - and you tell your experiences, the world will deny them. But I tell you: you cannot turn to another and say I am; and you cannot divide it, for I am is one! 
 
@@ -74,7 +74,7 @@ And when you awaken and you and I are reunited in the one body, we will know wha
 
 When the Risen Christ said: *"I have things to tell you, but you cannot bear them now,"* he was speaking to those who were tightly bound in their concept of a God external to themselves to whom they prayed. That mind could not accept a God within who would make himself known in a vision. 
 
-I knew such a lady in New York City. She ran a book store, where I bought many books. Knowing my passion for books, when she would see my interest in a certain book she would quickly erase the price and mark a higher one in its place. This she did time and time again. I have paid her as high as $100 for three books. One day she said: *"You certainly have vivid [Dreams](/Dreams),"* and I replied: *"They are not [Dreams](/Dreams), but visions, where I commune with myself, the self that you call God."* 
+I knew such a lady in New York City. She ran a book store, where I bought many books. Knowing my passion for books, when she would see my interest in a certain book she would quickly erase the price and mark a higher one in its place. This she did time and time again. I have paid her as high as $100 for three books. One day she said: *"You certainly have vivid Dreams,"* and I replied: *"They are not Dreams, but visions, where I commune with myself, the self that you call God."* 
 
 Two years ago, while in New York I learned that Mary had been killed. Walking down a dark street one night she stepped off the sidewalk and a car struck her. Her husband found her body four days later in the morgue where they kept it waiting for identification. So Mary is gone, taking all of her beliefs with her. 
 
@@ -82,7 +82,7 @@ There is no transforming power in what the world calls death. If you are prejudi
 
 It is said that God spoke to Moses, making it appear as though God spoke from without; but God always whispers from within. Knowing God to be himself, when the revelation came, Moses spoke to him face to face and no longer in dream, as told us in the 12th chapter of Numbers. 
 
-Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your [Assumption](/Assumption). Don't make them see you; let them see the change! 
+Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your Assumption. Don't make them see you; let them see the change! 
 
 Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that feeling as you now wear your present body of belief. Continue to wear that new state and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
 
@@ -110,22 +110,22 @@ Now let us go into the silence.
 ### The Incarnation of Revelation
 
 - The story of Catherine the Great illustrates how traditions can hinder access to the word of God.
-- The spirit of truth comes to those who accept it, and the incomplete form of the incarnate revelation will continue until the spirit of truth comes.
+- The spirit of truth) comes to those who accept it, and the incomplete form of the incarnate revelation will continue until the spirit of truth comes.
 - A lady has a vision on a movie lot, where she hears the phrase "Before Abraham, was I am," revealing the source of all life.
 - The revelation shows that the incarnate work is not separate from the individual but is an unfolding of the "I am" within.
 - Believing in this revelation means recognizing the "I am" as the source of everything. Wars and conflicts are created by man, not God.
 - The history of man is a material for God's artistic work, transforming the horrors of experience into beauty.
 - The lady's revelation shows that the dreamer in her is also the director, and God is the key actor.
 - Each individual is known by God, and each name is recorded in the Book of Life.
-- [Assumption](/Assumption) is a powerful tool to manifest desires. By assuming the desired state and persisting in that belief, it will become a reality.
+- Assumption is a powerful tool to manifest desires. By assuming the desired state and persisting in that belief, it will become a reality.
 - The purpose of life is to fulfill scripture and realize the truth of our identity as God's sons.
 - All individuals are one in God, and the unity will be fully realized in the kingdom of heaven.
 - The world may reject this revelation because they do not know the Father within them.
-- The mind must overcome the belief in an external God to experience the spirit of truth within.
+- The mind must overcome the belief in an external God to experience the spirit of truth) within.
 - Each time we say "I am," we speak God's name and affirm our oneness with Him.
 - The world's unpleasantness does not transform after death, and only the awakening to our true identity can change our beliefs and experiences.
 - The revelation of Moses speaking to God face to face shows that God whispers from within, not from without.
-- We can test the power of the human imagination by assuming our desires and persisting in that [Assumption](/Assumption).
+- We can test the power of the human imagination by assuming our desires and persisting in that Assumption.
 - God's presence is protean and can take on different forms and metamorphoses.
 - Vision breaking forth into speech affirms the presence of deity.
 - The placement of punctuation, such as the comma, can change the meaning of statements completely.

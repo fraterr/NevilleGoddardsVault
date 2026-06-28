@@ -16,9 +16,9 @@ As a man thinketh in his heart so is he.
 
 Be still and know that you are that which you desire to be, and you will never have to search for it.
 
-In spite of your appearance of freedom of action, you obey, as everything else does, the law of [Assumption](/Assumption). Whatever you may think of the question of free will, the truth is your experiences throughout your life are determined by your assumptions — whether conscious or unconscious. An [Assumption](/Assumption) builds a [Bridge of incidents](/Bridge-of-incidents) that lead inevitably to the fulfillment of itself.
+In spite of your appearance of freedom of action, you obey, as everything else does, [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption). Whatever you may think of the question of free will, the truth is your experiences throughout your life are determined by your assumptions — whether conscious or unconscious. An Assumption builds a Bridge of incidents that lead inevitably to the fulfillment of itself.
 
-Man believes the future to be the natural development of the past. But the law of [Assumption](/Assumption) clearly shows that this is not the case. Your [Assumption](/Assumption) places you psychologically where you are not physically; then your senses pull you back from where you were psychologically to where you are physically. It is these psychological forward motions that produce your physical forward motions in time. Precognition permeates all the scriptures of the world.
+Man believes the future to be the natural development of the past. But the law of Assumption clearly shows that this is not the case. Your Assumption places you psychologically where you are not physically; then your senses pull you back from where you were psychologically to where you are physically. It is these psychological forward motions that produce your physical forward motions in time. Precognition permeates all the scriptures of the world.
 
 In my Father’s house are many mansions; If it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again and receive you unto myself: that where I am, there ye may be also. And now I have told you
 
@@ -41,13 +41,13 @@ You go and prepare a place for yourself by imagining yourself into the feeling o
 
 Do not seek what you already are. Appropriate, claim, and assume it. Your self-concept determines what can be realized. Assume the lovely and good in imagination to make life worthwhile.
 
-### Law of [Assumption](/Assumption) Governs Experience
+### Law of Assumption Governs Experience
 
-In spite of illusion of free will, assumptions shape your experiences whether conscious or unconscious. An [Assumption](/Assumption) builds a bridge of events leading to its fulfillment.
+In spite of illusion of free will, assumptions shape your experiences whether conscious or unconscious. An Assumption builds a bridge of events leading to its fulfillment.
 
-### [Assumption](/Assumption) Shapes the Future
+### Assumption Shapes the Future
 
-The future does not naturally develop from the past, but from [Assumption](/Assumption). [Assumption](/Assumption) places you psychologically where not yet physically.
+The future does not naturally develop from the past, but from Assumption. Assumption places you psychologically where not yet physically.
 
 ### Scripture Tells By Feeling Wish Fulfilled
 

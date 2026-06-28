@@ -5,7 +5,7 @@ First, tonight, let us turn to three who were awake, and by three I mean three m
 "So flows experience, the vast without.
 It is the microcosm of the soul within,
 The day-distracted eye may doubt,
-But no longer as the [Dreams](/Dreams) begin."
+But no longer as the Dreams begin."
 
 
 Think of it! This vast *"without"* is the microcosm of the soul within. The day-distracted eye cannot believe it, but you take this and expand it to the nth degree and see that the *"vast without"* is only the microcosm of the soul within. How can man believe it?
@@ -14,7 +14,7 @@ Now we will turn to the great bard - Shakespeare: Everything in the world is the
 
 In Second Corinthians 3:6, in the letter which Paul writes to the Corinthians - these are not the people of Corinth. You are Corinthians, for these are stories of the mysteries, and so this is Corinth, so the letters are addressed to those who are interested in rising to another level of consciousness: *"We are the ministers of a new covenant, not written in the code but in the spirit."* Now remember the teaching: *"The letter killeth but the spirit giveth life."* So we are ministers of a new covenant. You be the judge, for I am not here to judge you. But if I came and whispered in your ear that you were harboring a robber, would you react violently? You be the judge, but I will tell you a story, in the code written in the form of a letter. This is the story of Jesus and Barabbas.
 
-Now it was the season of the year when it was customary to release a man who was imprisoned. *"Whom will you have me release unto you? Barabbas or Jesus? And they cried, Release Barabbas! Crucify Jesus!"* *"And when the wife of Pilate said to him, will you do this thing? he washed his hands,"* etc.
+Now it was the season of the year when it was customary to release a man who was imprisoned. *"Whom will you have me release unto you? [Barabbas or Jesus](/lectures/barabbas-or-jesus)? And they cried, Release Barabbas! Crucify Jesus!"* *"And when the wife of Pilate said to him, will you do this thing? he washed his hands,"* etc.
 
 Now you take that, and that is the code - but what does it really mean? That it took place, actually? We are warned of those who *"depart from the truth,"* and those who think that the resurrection has already taken place, they have wandered from the truth, for if it has already taken place then I cannot know the power that resurrects every dream in the world. The resurrection must be taking every moment in time in all men. The Passover does not take place at a certain time of year, like Easter. The Passover takes place every moment of the day, if we are willing to pass over into another state. There must always be a passing over from one state to a higher state. So, which will you have me release, the robber or Jesus? Which will you let go of, and to which will you hold fast? I must release the robber, for I am housing him. Who is he? If this moment you want something and reason tells you that you cannot have it, than you are entertaining the thief that robs you of being what you want to be in this world. This is the *"son of Satan,"* something in me that robs me of that other Son who will save me. The thing that will save me from what I am, is Christ Jesus. And what is keeping you from what you want? That is Barabbas.
 
@@ -48,7 +48,7 @@ The two factors which are most important in my world, I would say, are my person
 
 Can you forgive a man by mumbling some words and saying you have forgiven him? You can only forgive to the degree that *"complete"* change of consciousness takes place. When I think of you, I should see a different you, a new you. If I do not see a different you then I have not forgiven you. This lady I told you of tonight *"forgave"* her friend, for she saw her happily married. And that marriage was consummated.
 
-I tell you that no matter what your dream is it can be realized, you will enact the crucifixion. If you think the *"resurrection is past already, you have departed from the truth"* (Second Timothy 2:18) It must be going on eternally. It is up to you what you do now. Everyone can do it. That is the purpose of this platform - so that you may not only realize your [Dreams](/Dreams) here, but that you awaken and slip into other worlds. There are worlds within this world, and worlds within worlds. I know - I have seen them and I have been in them. It does not matter what people say to me about whether I can do it or not. I know I can do it, and I do it. I know that I live in a home in West L.A. and come here on Monday and Thursday nights. You might as well tell me that I do not come here, as to say that I cannot enter some other sphere. I cannot take you with me, for the world only calls *"reality"* what can be shared. But it was not a subjective illusion; it was real.
+I tell you that no matter what your dream is it can be realized, you will enact the crucifixion. If you think the *"resurrection is past already, you have departed from the truth"* (Second Timothy 2:18) It must be going on eternally. It is up to you what you do now. Everyone can do it. That is the purpose of this platform - so that you may not only realize your Dreams here, but that you awaken and slip into other worlds. There are worlds within this world, and worlds within worlds. I know - I have seen them and I have been in them. It does not matter what people say to me about whether I can do it or not. I know I can do it, and I do it. I know that I live in a home in West L.A. and come here on Monday and Thursday nights. You might as well tell me that I do not come here, as to say that I cannot enter some other sphere. I cannot take you with me, for the world only calls *"reality"* what can be shared. But it was not a subjective illusion; it was real.
 
 There are many things that cannot be shared at the time, for the background of the other is not such that they are ready to receive it. But that does not make it less real. In time all will come to it.
 
@@ -95,7 +95,7 @@ Now let us go into the silence.
 - Change of consciousness is the key to forgiveness and self-transformation
 
 ### Expanding Consciousness and Exploring Other Realms
-- The purpose of the teachings is to help individuals realize their [Dreams](/Dreams) and expand their consciousness
+- The purpose of the teachings is to help individuals realize their Dreams and expand their consciousness
 - There are worlds within this world, and exploring other realms is possible
 - Personal experiences and realities may not be shareable at the time but are still valid and real
 

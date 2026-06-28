@@ -3,7 +3,7 @@
 
 Imagination it seems will do nothing that we wish until we enter into the image of the wish fulfilled.
 
-Does not this entering into the image of the wish fulfilled resemble Blake's *"Void outside of Existence which if enter'd into Englobes itself & becomes a Womb?"* Is this not the true interpretation of the mythical story of Adam and Eve? Man and his emanation? Are not man's [Dreams](/Dreams) of fancy his Emanation, his Eve in whom *"He plants himself in all her Nerves, just as a Husbandman his mould; And she becomes his dwelling place and garden fruitful seventy fold?"* (William Blake, *"The Mental Traveller"*)
+Does not this entering into the image of the wish fulfilled resemble Blake's *"Void outside of Existence which if enter'd into Englobes itself & becomes a Womb?"* Is this not the true interpretation of the mythical story of Adam and Eve? Man and his emanation? Are not man's Dreams of fancy his Emanation, his Eve in whom *"He plants himself in all her Nerves, just as a Husbandman his mould; And she becomes his dwelling place and garden fruitful seventy fold?"* (William Blake, *"The Mental Traveller"*)
 
 The secret of creation is the secret of imagining — first, desiring and then assuming the feeling of the wish fulfilled until the dream of fancy, 'the Void outside existence', is enter'd and 'englobes itself and becomes a womb, a dwelling place and garden fruitful seventy fold'. Note well that Blake urges us to enter into these images. This entering into the image makes it 'englobe itself and become a womb'.
 
@@ -12,7 +12,7 @@ Man, by entering a state, impregnates it and causes it to create what the union 
 Blake tells us that these images are 'Shadowy to those who dwell not in them, mere possibilities; but to those who enter into them they seem the only substances...'
 
 On my way to the West Coast, I stopped in C
-hicago to spend the day with friends. My host was recovering from a severe illness and his doctor advised him to move to a one-story house. Acting upon the doctor's advice, he had purchased a one-story house suited to his needs; but he now was confronted with the fact that there seemed to be no buyer for his large three-story home. When I arrived, he was very discouraged. In trying to explain the law of constructive imagining to my host and his wife, I told them the story of a very prominent New York woman who had come to see me concerning the rental of her apartment. She maintained a lovely city apartment and a country home, but it was absolutely essential that she rent her apartment if she and her family were to spend the summer at their country home. (Neville Goddard, *“The Power of Awareness”*, Ch. 23, *“Case Histories – 5”*)
+hicago to spend the day with friends. My host was recovering from a severe illness and his doctor advised him to move to a one-story house. Acting upon the doctor's advice, he had purchased a one-story house suited to his needs; but he now was confronted with the fact that there seemed to be no buyer for his large three-story home. When I arrived, he was very discouraged. In trying to explain the law of constructive imagining to my host and his wife, I told them the story of a very prominent New York woman who had come to see me concerning the rental of her apartment. She maintained a lovely city apartment and a country home, but it was absolutely essential that she rent her apartment if she and her family were to spend the summer at their country home. (Neville Goddard, *“[The Power of Awareness](/books/the-power-of-awareness/the-power-of-awareness)”*, Ch. 23, *“Case Histories – 5”*)
 
 In previous years, the apartment had been rented without any difficulty early in the spring,but at the time she came to see me, the season for summer sublets was seemingly over. Although the apartment had been in the hands of good real estate agents, no one had seemed interested in renting it. I told her what to do in her imagination. She did it and, in less than twenty-four hours, her apartment was rented.
 
@@ -59,7 +59,7 @@ Cannot for less be told. — George Herbert (The Elixir)
 
 Unless the individual imagines himself, someone else, or somewhere else, the present conditions and circumstances of his life will continue in being and his problems recur, for all events renew themselves from his constant images. By him they were made; by him they continue in being; and by him they can cease to be.
 
-The secret of causation is in the assembled imagery — but a word of warning — the assemblage must have meaning; it must imply something or it will not form the creative activity — The Word.
+[The secret of causation](/lectures/the-secret-of-causation) is in the assembled imagery — but a word of warning — the assemblage must have meaning; it must imply something or it will not form the creative activity — The Word.
 
 
 
@@ -72,7 +72,7 @@ Approach on thought's fiery chariot and make them friends. Then you'll arise Ima
 
 ### Entering the image makes it a womb
 
-Like Adam entering Eve, enter the wish fulfilled. Your [Dreams](/Dreams) emanate and you implant yourself.
+Like Adam entering Eve, enter the wish fulfilled. Your Dreams emanate and you implant yourself.
 
 ### Enter and impregnate the state
 

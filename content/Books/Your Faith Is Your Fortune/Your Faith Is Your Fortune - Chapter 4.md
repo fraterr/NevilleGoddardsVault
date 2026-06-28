@@ -4,7 +4,7 @@
 
 Today there is so much said about Masters, Elder Brothers, Adepts and initiates that numberless truth seekers are being constantly misled by seeking these false lights. For a price, most of these pseudo-teachers offer their students initiation into the mysteries, promising them guidance and direction, Man’s weakness for leaders, as well as his worship of idols, makes him an easy prey of these schools and teachers. Good will come to most of these enrolled students; they will discover after years of awaiting and sacrificing that they were following a mirage. They will then become disillusioned in their schools and teachers, and this disappointment will be worth the effort and price they have paid for their fruitless search. They will then turn from their worship of man and in so doing discover that which they are seeking is not to be found in another, for the Kingdom of Heaven is within. This realization will be their first real initiation. The lesson learned will be this: There is only one Master and this Master is God, the I AM within themselves.
 
-*“I AM the Lord thy God who led thee out of the land of darkness; out of the house of bondage.”* I AM, your awareness, is Lord and Master and besides your awareness there is neither Lord nor Master. You are Master of all that you will ever be aware of being.
+*“[I AM the Lord](/lectures/i-am-the-lord) thy God who led thee out of the land of darkness; out of the house of bondage.”* I AM, your awareness, is Lord and Master and besides your awareness there is neither Lord nor Master. You are Master of all that you will ever be aware of being.
 
 You know that you are, do you not? Knowing that you are is the Lord and Master of that which you know that you are. You could be completely isolated by man from that which you are conscious of being; yet you would, in spite of all human barriers, effortlessly draw to yourself all that you were conscious of being. The man who is conscious of being poor does not need the assistance of anyone to express his poverty. The man who is conscious of being sick, though isolated in the most hermetically sealed germ-proof area in the world, would express sickness.
 
@@ -20,7 +20,7 @@ This rising from one level of consciousness to another is the only ascension tha
 
 *“Far greater is he that is in you than he that is in the world.”* Believe this. Do not continue in blindness, following after the mirage of masters. I assure you your search can end only in disappointment,
 
-*“If you deny me (your awareness of being) I shall deny you also.”* *“Thou shalt have no other God beside ME.”* *“Be still and know that I AM God.”* *“Come prove me and see if I will not open you the windows of Heaven and pour you out a blessing, that there shall not be room enough to receive it.”*
+*“If you deny me (your awareness of being) I shall deny you also.”* *“Thou shalt have [no other God](/lectures/no-other-god) beside ME.”* *“Be still and know that I AM God.”* *“Come prove me and see if I will not open you the windows of Heaven and pour you out a blessing, that there shall not be room enough to receive it.”*
 
 Do you believe that the I AM is able to do this? Then claim ME to be that which you want to see poured out. Claim yourself to be that which you want to be and that you shall be. Not because of masters will I give it unto you, but, because you have recognized ME (yourself) to be that, I will give it unto you for I AM all things to all.
 
@@ -46,7 +46,7 @@ Your awareness is the master magician who conjures all things by being that whic
 
 Jesus, in stating that He and His Father were one but that His Father was greater than He, revealed His awareness (Father) to be one with that which He was aware of being. He found Himself as Father or awareness to be greater than that which He as Jesus was aware of being. You and your conception of yourself are one. You are and always will be greater than any conception you will ever have of yourself.
 
-Man fails to do the works of Jesus Christ because he attempts to accomplish them from his present level of consciousness. You will never transcend your present accomplishments through sacrifice and struggle. Your present level of consciousness will only be transcended as you drop the present state and rise to a higher level.
+Man fails to do the works of [Jesus Christ](/lectures/jesus-christ) because he attempts to accomplish them from his present level of consciousness. You will never transcend your present accomplishments through sacrifice and struggle. Your present level of consciousness will only be transcended as you drop the present state and rise to a higher level.
 
 You rise to a higher level of consciousness by taking your attention away from your present limitations and placing it upon that which you desire to be. Do not attempt this in day-dreaming or wishful thinking but in a positive manner. Claim yourself to be the thing desired. I AM that; no sacrifice, no diet, no human tricks. All that is asked of you is to accept your desire. If you dare claim it, you will express it.
 
@@ -87,7 +87,7 @@ Imagine yourself to be the Christ. Conception always precedes expression. Change
 
 ### Follow Me
 
-Turn from problems, claim the desired state, and continue in its [Assumption](/Assumption). Then you will know your true Master.
+Turn from problems, claim the desired state, and continue in its Assumption. Then you will know your true Master.
 
 
 

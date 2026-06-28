@@ -2,7 +2,7 @@ As Paul said to Timothy: *"Great indeed, we confess, is the mystery of our relig
 
 Speaking to his disciples, Jesus said: *"In that day you will know that I am in the Father, and you in me and I in you."* (John 14) The phrase *"in that day"* is an eschatological term meaning, *"at the end of the journey."* In other words, when this age of Caesar comes to its end, you will experience the truth of scripture, and - understanding - you will say: *"I am in the Father and you are in me and I am in you."* 
 
-It is in you, as a person, that the nature of God reveals himself in a series of supernatural experiences. When these take place in a first person, singular, present tense experience, all arguments, doubts, and questions regarding your true identity are hushed. From that moment on, like Paul, you will say: "When it pleased God to reveal his son in me, I conferred not with flesh and blood. I did not receive my gospel from a man. I was not taught it. It came through a revelation of Jesus Christ. 
+It is in you, as a person, that [the nature of God](/lectures/the-nature-of-god) reveals himself in a series of supernatural experiences. When these take place in a first person, singular, present tense experience, all arguments, doubts, and questions regarding your true identity are hushed. From that moment on, like Paul, you will say: "When it pleased God to reveal his son in me, I conferred not with flesh and blood. I did not receive my gospel from a man. I was not taught it. It came through a revelation of [Jesus Christ](/lectures/jesus-christ). 
 
 While in Barbados this summer, my sister asked if my Christ was once a man. My answer to her undoubtedly was the same Paul gave when asked a similar question. I said: *"Was? He is the heavenly man!"* Then quoting Paul I said: *"Just as we have borne the image of the man of dust, we shall also bear the image of the man of heaven."* 
 
@@ -48,11 +48,11 @@ Limited to the concept of three-dimensional space, we think of being sent out of
 
 Dwell upon this being who became you. Return to the point of being chosen before that the world was. Try to remember when he made known unto you the mystery of his plan which gives meaning to your life - this mystery which was set forth in Christ for the fullness of time. 
 
-The Word, giving meaning to the world, was with God and was God. That meaning is Christ, a plan which cannot fail to fulfill its purpose, which is to unfold and reveal you as God. Walking this earth right now, you are God's Word, moving towards fulfillment. 
+The Word, giving meaning to the world, was with God and was God. That meaning is Christ, a plan which cannot fail to fulfill its purpose, which is to unfold and reveal you as God. Walking this earth right now, you are [God's Word](/lectures/god-s-word), moving towards fulfillment. 
 
 Now, while we are here waiting for God's plan to unfold, we should continue to apply God's law. Here is a simple story. My friend wrote, saying: *"When my little boy was quite young, as a family we called the Sears' Christmas catalog, the 'Wish Book'. Our son would spend hours looking through the pages of toys, deciding what he wanted for Christmas. This we have done for the past eight years. I am enclosing a card advertising the current issue of that catalog. As you will see, it is now called 'The Sears Wish Book!"* 
 
-Whoever has that account thinks this is an original idea, yet my friend knows she is its creator. You see, there is no fiction. How can there be fiction in a world where imagining creates reality? For eight years her son has known the catalog to be a wish book, and now that has become its official name. If something you have imagined is delayed producing its reality for you, keep this story in mind. 
+Whoever has that account thinks this is an original idea, yet my friend knows she is its creator. You see, [there is no fiction](/lectures/there-is-no-fiction). How can there be fiction in a world where [imagining creates](/lectures/imagining-creates) reality? For eight years her son has known the catalog to be a wish book, and now that has become its official name. If something you have imagined is delayed producing its reality for you, keep this story in mind. 
 
 I know we are all children and want our desires instantly fulfilled, but countries plan for unborn generations. Parents with large estates plan, not only for the present little ones, but for the offsprings of their offsprings. 
 
@@ -101,7 +101,7 @@ Now let us go into the silence.
 - This experience eliminates doubts and questions about one's true identity.
 
 ### Cosmic Principle: God Became Man
-- God became man so that man may become God.
+- [God became man](/lectures/god-became-man) so that man may become God.
 - Resurrection has begun, but it is not yet finished.
 
 ### Paul's Declaration of Independence

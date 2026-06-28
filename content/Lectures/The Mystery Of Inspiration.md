@@ -12,13 +12,13 @@ Paul tells us that Christ is in you, although your body is dead. This I know to 
 
 But how do I convince you that the Lord God Jehovah is actually in you? That Jehovah is dreaming he is you, and in the end will awaken as you? How do I convince you that you will witness the images the prophets used? They tell us that Christ is the Rock. That you have forgotten the God who gave you birth. 
 
-The prophets equate the Rock with the Lord God Jehovah. This I know to be true. One day I sat in the silence, when quartz appeared before my vision. As I watched, the rock fragmented into numberless pieces and instantly molded itself into the human form, seated in the lotus posture in profound [Meditation](/Lectures/Radio Lectures/Meditation). As I realized I was looking at myself, the form began to glow. It increased in intensity until it reached the limit of translucency. Then it exploded and my vision came to its end. Now I know I am the Rock that begot me. 
+The prophets equate the Rock with the Lord God Jehovah. This I know to be true. One day I sat in the silence, when quartz appeared before my vision. As I watched, the rock fragmented into numberless pieces and instantly molded itself into the human form, seated in the lotus posture in profound Meditation. As I realized I was looking at myself, the form began to glow. It increased in intensity until it reached the limit of translucency. Then it exploded and my vision came to its end. Now I know I am the Rock that begot me. 
 
 Out of that solid state of death comes life, for you put this limit of contraction and opacity called Man upon yourself. At the present time three and a half billion of us walk the earth, individualized, because the being which gives us life is asleep. 
 
-Believing the world is taking place independent of our perception, we do not realize that our [Dreams](/Dreams) are projecting themselves on this screen of space, and that we are in conflict with our [Dreams](/Dreams). But one day God will awaken within your dead body; and when he does, all of the imagery of scripture will surround you, identifying you as the central figure of the Bible -- the Lord God Jesus Christ. 
+Believing the world is taking place independent of our perception, we do not realize that our Dreams are projecting themselves on this screen of space, and that we are in conflict with our Dreams. But one day God will awaken within your dead body; and when he does, all of the imagery of scripture will surround you, identifying you as the central figure of the Bible -- the Lord God [Jesus Christ](/lectures/jesus-christ). 
 
-Scripture is all about God, as there is no one else. God and his name are one! That name is I AM! Falling asleep, God breathed upon your body and it became animated, as He [Dreams](/Dreams) your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest [Dreams](/Dreams), for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
+Scripture is all about God, as there is no one else. God and his name are one! That name is I AM! Falling asleep, God breathed upon your body and it became animated, as He Dreams your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest Dreams, for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
 
 Who would have thought that the imagery recorded in the 32nd chapter of Deuteronomy was true: *"Of the Rock that begot you, you are unmindful and have forgotten the God who gave you life."* In this verse God is equated with the Rock that fragmented itself and is defused in all. 
 
@@ -32,11 +32,11 @@ Now, not everything in the Bible is inspired. Paul's passages about marriage are
 
 It is said that, beginning with Moses and all the prophets and the psalms. Paul interpreted to them in all the scriptures the things that concerned him. Remember: in Paul's day there was no New Testament. It was written to record the passages of the Old Testament which were fulfilled. So when you read the New Testament, pay strict attention to any passage that is quoted by the Risen Lord and taken from the Old Testament. 
 
-In the tenth chapter of John, the Risen Lord says: *"I and my Father are one. Why do you condemn me for saying I am the Son of God? Is it not written in your law'' - (and he quotes the 82nd Psalm) saying: "*'I say, you are gods'? If it is written, 'Ye are gods and scripture cannot be broken, why do you condemn me, whom God consecrated and sent into the world?' 'Here is the Christ in you, quoting scripture after having risen from the sleep of death. And the moment Christ awakens in you, you are the Risen Christ! 
+In the tenth chapter of John, the Risen Lord says: *"I and my Father are one. Why do you condemn me for saying I am the Son of God? Is it not written in your law'' - (and he quotes the 82nd Psalm) saying: "*'I say, you are gods'? If it is written, 'Ye are gods and scripture cannot be broken, why do you condemn me, whom God consecrated and sent into the world?' 'Here is the [Christ in you](/lectures/christ-in-you), quoting scripture after having risen from the sleep of death. And the moment Christ awakens in you, you are the Risen Christ! 
 
 There is only one Risen Christ and everyone is being gathered together into that one being. Although we have different talents, everyone will know God's embrace, qualifying him for apostleship. 
 
-If you are meant to experience scripture consciously, you will be sent, and tell your experiences to those who will be drawn to you, to show them the parallel between what happened to you and what the word of God said through His inspired prophets. When the prophets inquired, they were told that they were not serving themselves, for their time had not come. But scripture has been fulfilled now, and the time is here for all to awaken. 
+If you are meant to [experience scripture](/lectures/experience-scripture) consciously, you will be sent, and tell your experiences to those who will be drawn to you, to show them the parallel between what happened to you and what the word of God said through His inspired prophets. When the prophets inquired, they were told that they were not serving themselves, for their time had not come. But scripture has been fulfilled now, and the time is here for all to awaken. 
 
 We are in the act of awakening as God, and when the visions come they cannot be stopped. Coming suddenly and unexpectedly, their power possesses you as though something is wearing you. Then you begin to see and hear that which kings and prophets long to see, and cannot because the time has not fully come for them. 
 
@@ -58,13 +58,13 @@ When you tell your experiences to all who will listen, few will believe you, for
 
 It is the Christ within man who is his hope of glory. That is the Christ who fulfills scripture. Having had scripture fulfill itself in me, I have interpreted to you in all the scriptures the things concerning - not a man called Neville, but God's power, in me, called Christ. 
 
-Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your [Assumption](/Assumption). 
+Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your Assumption. 
 
 Scripture is all about Christ, the Jehovah you are. The spirit and the flesh are one; therefore, when David appears, in vision, you are revealing your true identity to yourself. This I know, for I have found David. He called me Lord. I know I am the Rock that begot him, for I have played all of the fragmented parts and put them together to form David. 
 
 When David calls you father, the Rock of his salvation, you will remember you are the Lord. Then you will tell salvation's story, and if God is still asleep in those who hear, they will think you are mad. That's all right, as all inspired men - being judged by the garment they wear - will appear mad to those who hear them. When you claim you have a spirit, you will be called mad, just as it is said of the Risen Christ in the tenth chapter of John. 
 
-Today, as in the past, people believe scripture will be fulfilled in a secular manner. But while occupying their garment of death, everyone will individually fulfill God's word. 
+Today, as in the past, people believe scripture will be fulfilled in a secular manner. But while occupying their garment of death, everyone will individually fulfill [God's word](/lectures/god-s-word). 
 
 You are destined to know the power of stopping and starting time. Possessed by the Spirit, you will be taken into a room. Knowing intuitively who you are and the power you are feeling, you will arrest that activity within you and everything will stand still. As you examine that which was so alive and seemingly independent of your perception only a moment ago, you will discover it is all dead. Then, releasing their activity in your imagination, everything will once more become animated and continue its purpose. If a bird was in flight when you arrested it, it will continue to fly when released. If someone is carrying food to a table when arrested - although you can keep them in that position for as long as you like - when you release the power you know yourself to be, they will continue to serve the meal as if nothing had happened. 
 
@@ -74,7 +74,7 @@ The body you care for and keep well is dead, while I - the awareness who entered
 
 Having created an incredible adventure, I prophesied that I would die and overcome death. The prophecy has been fulfilled and will continue to be fulfilled in all, for I am God, capable of overcoming my last enemy, which is death. I will awaken in my grave and come out unassisted to find myself greater than I was before the adventure. 
 
-Those who think of me in terms of the outer form I wear will see the things that were foretold; but not me, for I AM spirit and cannot be seen with the mortal eye. Having eyes that see not and ears that hear not, I will give them eyes that they may see and bore ears that they may hear what kings and prophets long to see and hear, but cannot. A retreat will not cultivate inspiration. It doesn't come that way. The fire that rises within you is the same fire that descends like a bolt of lightening and splits you in two. You cannot consciously lift this power through contemplation. Only He who first descended can ascend into the kingdom of heaven. Descending like a bolt of lightening, the curtain of the temple is split, releasing His spirit that was trapped inside. Then your power is raised back into the heavenly state from which you came, for you are the God of scripture who said: *"I say, 'You are gods, sons of the Most High, all of you. Nevertheless you will die like men and fall as one man, O princes.' "* 
+Those who think of me in terms of the outer form I wear will see the things that were foretold; but not me, for I AM spirit and cannot be seen with the mortal eye. Having eyes that see not and ears that hear not, I will give them eyes that they may see and bore ears that they may hear what kings and prophets long to see and hear, but cannot. A retreat will not cultivate inspiration. It doesn't come that way. The fire that rises within you is the same fire that descends like a bolt of lightening and splits you in two. You cannot consciously lift this power through contemplation. Only He who first descended can ascend into the kingdom of heaven. Descending like a bolt of lightening, the curtain of the temple is split, releasing His spirit that was trapped inside. Then your power is raised back into the heavenly state from which you came, for you are the God of scripture who said: *"I say, 'You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you. Nevertheless you will die like men and fall as one man, O princes.' "* 
 
 
 From now on, think of yourself as spirit, not flesh and blood. People are so proud of their physical line, yet if they knew its background they might be ashamed of it. Many a person has paid a fortune to trace his lineage and then spent another fortune to forget it. 
@@ -85,9 +85,9 @@ You came into a world of death. The body you now wear will return to dust from w
 
 Then you will take off your garment of death and return to the glory that was yours before that the world was. We knew each other intimately before we descended, and we will know each other just as intimately when we take off all of these masks and ascend. 
 
-In this world, we wear separate, individual bodies; but in eternity we form the one body. We are many, yet one. *"Hear O Israel, the Lord our God, the Lord is one."* In that state there will be only one Lord, one God and Father of all, and all form that one. No matter what type of [Dreams](/Dreams) an individual has, in the end they will be but [Dreams](/Dreams); for when he awakes and returns, we will love him as dearly as we did before the descent. 
+In this world, we wear separate, individual bodies; but in eternity we form the one body. We are many, yet one. *"Hear O Israel, the Lord our God, the Lord is one."* In that state there will be only one Lord, one God and Father of all, and all form that one. No matter what type of Dreams an individual has, in the end they will be but Dreams; for when he awakes and returns, we will love him as dearly as we did before the descent. 
 
-Inspiration is a gift of God, which cannot be acquired. Because God is in you, scripture is inspired from within. At the present time, Christ - God's power and wisdom - is personified as you. Although the body you wear is dead, He who raised Christ from the dead will raise you also. Christ in you is the one who rises. His spirit is your breath. Breathing his inspiration, you hear and feel the wind. Then you who radiate the glory of that God breath will awaken as God Himself. 
+Inspiration is a gift of God, which cannot be acquired. Because God is in you, scripture is inspired from within. At the present time, Christ - God's [power and wisdom](/lectures/power-and-wisdom) - is personified as you. Although the body you wear is dead, He who raised Christ from the dead will raise you also. Christ in you is the one who rises. His spirit is your breath. Breathing his inspiration, you hear and feel the wind. Then you who radiate the glory of that God breath will awaken as God Himself. 
 
 Now let us go into the silence.
 
@@ -123,7 +123,7 @@ Now let us go into the silence.
 - The author refers to personal experiences where they become aware of being the Rock and realizing their identity.
 
 ### Dream projection
-- The author states that individuals project their [Dreams](/Dreams) onto the outer world.
+- The author states that individuals project their Dreams onto the outer world.
 - They emphasize that everything is contained within one's imagination.
 
 ### Awakening to identity
@@ -132,7 +132,7 @@ Now let us go into the silence.
 
 ### Scripture as revelation
 - Scripture reveals that God is the only existence.
-- God breathes life into individuals and [Dreams](/Dreams) their world into being.
+- God breathes life into individuals and Dreams their world into being.
 - One day God will awaken, and confusion will end.
 - Individuals will return to their true being and experience limitless expansion and translucency.
 

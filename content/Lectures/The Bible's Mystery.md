@@ -10,7 +10,7 @@ I was called out of this body and I seemed to possess a body there because I cou
 
 I am not speaking of the wisdom or power of man, for I no longer need man's expressions of power. His power of wealth, social or political standing, are part of this age. But I was called out of this age, and while in that age I assumed the body of love. Now a protean being I can assume any form instantly, so I assumed the form of power and hurled myself back into my physical body. And when I returned, my room was filled with light from a source unknown, where it lingered for the longest time. Since that day I have gone through life playing the part of Neville as I did before the experience, while scripture awoke in me and my work began. It took thirty years for the eruption to occur which caused my resurrection from within myself.
 
-I tell you: we are the gods who descended in consciousness in order to take upon ourselves these dead bodies of weighted nerves. We animate them and suffer every pain, every disappointment they are capable of experiencing. It seems as though we will never escape this world of hell, then one is called out of this world and returns as Jesus.
+I tell you: we are the gods who descended in consciousness in order to take upon ourselves these dead bodies of weighted nerves. We animate them and suffer every pain, every disappointment they are capable of experiencing. It seems as though we will never escape this world of hell, then one is called [out of this world](/books/out-of-this-world/out-of-this-world) and returns as Jesus.
 
 Everyone who is called and sent is Jesus, the pattern of redemption, which is a series of supernatural experiences. Having been called and sent, this pattern has unfolded in me. Now I know that when I depart this section of time it will be for the last time. I have left a record of my experiences to encourage those who hear and abide in my words, that they can remain in them.
 
@@ -18,7 +18,7 @@ I have often wondered how many have understood my story to the point of acceptan
 
 Here is one I thought understood my message, yet his behavior belies his acceptance. They know Neville, the garment I wear, but they do not know the one who sent me. They may know my mother and father, my brothers and sisters, but when I tell them of my spiritual birth they cannot believe me. They cannot understand, for if they could it would change their entire outlook on life.
 
-We all came down into this world of death, not for punishment but for an experiment. We are all princes, sons of the Most High, who - dying like men - fell as one Man. At a certain moment in time one is called, then another, and eventually everyone will be called and incorporated into the one body of the Risen Lord. In that day the Lord will be king over all the world; his name shall be one and the Lord one, and David will be their prince forever and ever.
+We all came down into this world of death, not for punishment but for an experiment. We are all princes, [sons of the Most High](/lectures/sons-of-the-most-high), who - dying like men - fell as one Man. At a certain moment in time one is called, then another, and eventually everyone will be called and incorporated into the one body of the Risen Lord. In that day the Lord will be king over all the world; his name shall be one and the Lord one, and David will be their prince forever and ever.
 
 I was born under the British crown and when the queen had a son he was a prince, but he was not mine. Only if I am the king can my son be a prince. If David is my prince I must be the one spoken of as the Lord, who is king over all. I know that I am, and I can tell you from experience that you are destined to know that you are. When you will be called I do not know, but I do know that as the Father sent me, even so I send you. He who sent me is one with me, as he has never left me alone. I, the sent, was called and incorporated into the body of the sender, who sent me as himself. When I return I will be the sender and I will call you; we will embrace and become one body, then I will send you as I have been sent.
 
@@ -36,7 +36,7 @@ Now, no one comes to me while I am here in this world of Caesar unless my Father
 
 This fantastic story cannot be told once and expect to be accepted; it's too profound. When you tell it, those who hear you will see the garment of flesh you wear and say: *"But we know you."* But they will not know you, for they do not know the one speaking to them came from the third heaven, which is the resurrected world of the New Jerusalem.
 
-While in this world I was incorporated into the body of love and sent. Paul mentioned fourteen years. I go back forty. It was 1929 when I was called and sent, but it was not until 1959 (thirty years later) that my ministry began in the true sense of the word. Prior to that I spoke only of the law. You know what you want, believe that you have it. Persist in that [Assumption](/Assumption) and it will harden into fact. So I was only talking about the law, as I knew nothing of the promise until 1959, when all the promises of God found their *"yes"* in me.
+While in this world I was incorporated into the body of love and sent. Paul mentioned fourteen years. I go back forty. It was 1929 when I was called and sent, but it was not until 1959 (thirty years later) that my ministry began in the true sense of the word. Prior to that I spoke only of the law. You know what you want, believe that you have it. Persist in that Assumption and it will harden into fact. So I was only talking about the law, as I knew nothing of the promise until 1959, when all the promises of God found their *"yes"* in me.
 
 There is only one being in whom the promises can be fulfilled. That being is the one who is called and sent, and he always calls and sends his pattern - who is Jesus, so in the end there is Jesus only. He is the one man who is housed in every man, waiting to be called out of this world and fertilized by entering the body of love, then sent back into the world; and when the pattern erupts in him, he is the one spoken of in scripture. So, *"Father, as thou hast sent me, even so I send them, that he who sees me sees he who sent me, and he who sent me has never left me alone. I have finished the work thou gavest me to do. Now, return the glory that I had with thee."* When this garment is taken off I will return to the glory that was mine when He incorporated me into his body of love. Then I will be the Lord, the one Spirit, the one God and Father of all.
 
@@ -68,7 +68,7 @@ Now let us go into the silence.
 
 ### The Experience of Being Called
 - The author was called out of their body and experienced a solidly real body in another realm.
-- They returned to the world as the power and wisdom of God.
+- They returned to the world as the [power and wisdom](/lectures/power-and-wisdom) of God.
 
 ### The Identity of Jesus
 - Everyone who is called and sent is Jesus, the pattern of redemption.

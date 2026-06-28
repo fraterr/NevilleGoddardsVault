@@ -1,6 +1,6 @@
 *"My God, I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
 
-I wish it were true of man's noble [Dreams](/Dreams), but unfortunately — perpetual construction, deferred occupancy — is the common fault of man. Why *"build a stately habitation"*, unless you intend to *"dwell therein"*? Why build a dream house and not *"dwell therein"*?
+I wish it were true of man's noble Dreams, but unfortunately — perpetual construction, deferred occupancy — is the common fault of man. Why *"build a stately habitation"*, unless you intend to *"dwell therein"*? Why build a dream house and not *"dwell therein"*?
 
 This is the secret of those who lie in bed awake while they dream things true. They know how to live in their dream until, in fact, they do just that.
 
@@ -26,7 +26,7 @@ For many years a doctor and his wife *"dreamed"* about their "stately habitation
 
 "With this principle in mind, we mentally constructed the new building as we wanted it, actually drawing physical plans so we could better formulate our mental picture of the completed structure. Never forgetting to think from the end (in our case, the completed, occupied building), we took many imaginative trips through our apartment house, renting the units to imaginary tenants, examining in detail every room and enjoying the feeling of pride as friends offered congratulations on the unique planning. We brought into our imaginal scene one friend in particular (I shall call her Mrs. X), a lady we had not seen for some time as she had 'given us up' socially, believing us a bit peculiar in our new way of thinking. In our imaginal scene, we took her through the building and asked how she liked it. Hearing her voice distinctly, we had her reply, 'Doctor, I think it is beautiful'.
 
-"One day, while talking together of our building, my wife mentioned a contractor who had constructed several apartment houses in our neighborhood. We knew of him only by the name that appeared on signs adjacent to buildings under construction. But realizing that if we were [Living in the end](/Living-in-the-end), we would not be looking for a contractor, we promptly forgot this angle. Continuing these periods of daily imagining for several weeks, we both felt we were now 'fused' with our desire and had successfully been [Living in the end](/Living-in-the-end).
+"One day, while talking together of our building, my wife mentioned a contractor who had constructed several apartment houses in our neighborhood. We knew of him only by the name that appeared on signs adjacent to buildings under construction. But realizing that if we were Living in the end, we would not be looking for a contractor, we promptly forgot this angle. Continuing these periods of daily imagining for several weeks, we both felt we were now 'fused' with our desire and had successfully been Living in the end.
 
 "One day a stranger entered our office and identified himself as the contractor whose name my wife had mentioned weeks before. In an apologetic manner, he said, 'I don't know why I stopped here. I normally don't go to see people, but rather, people come to see me'. He explained that he passed our office often and had wondered why there wasn't an apartment building on the corner lot. We assured him we would like very much to have such a building there but that we had no money to put into the project, not even the few hundred dollars it would take for plans.
 
@@ -117,7 +117,7 @@ Imaginal acts — not blind fate — determine the course of history.
 ### Dwell Imaginatively in Your Dream
 
 - A doctor and wife dreamed of building an apartment but only dwelt in it imaginatively years later
-- By ignoring money lack and [Living in the end](/Living-in-the-end) it manifested
+- By ignoring money lack and Living in the end it manifested
 
 ### Fall Asleep in the Dream House
 
@@ -133,7 +133,7 @@ Imaginal acts — not blind fate — determine the course of history.
 ### Truth Comes From Within
 
 - Adopt imagination's way, not the senses'
-- Neutrality is impossible; one must be for imagination to realize [Dreams](/Dreams)
+- Neutrality is impossible; one must be for imagination to realize Dreams
 - Man is his imagination, not his senses
 
 ### Continuous Wonder
