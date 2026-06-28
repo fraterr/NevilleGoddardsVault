@@ -33,9 +33,9 @@ function TreeNode({ node, depth = 0 }: { node: VaultNode; depth?: number }) {
       <li className={styles.dirNode}>
         <details className={styles.detailsGroup}>
           <summary className={styles.dirLabel} style={{ paddingLeft }}>
-            <Link href={href} className={styles.dirLink}>
+            <div className={styles.dirLink}>
               <span className={styles.folderIcon}>📁</span> {node.name}
-            </Link>
+            </div>
           </summary>
           {node.children && node.children.length > 0 && (
             <ul className={styles.treeList}>
