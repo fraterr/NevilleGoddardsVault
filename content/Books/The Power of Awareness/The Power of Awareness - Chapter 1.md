@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"All things when they are admitted are made manifest by the light: for everything that is made manifest is light."*</span> ([Eph. 5:13](https://www.biblegateway.com/passage/?search=Ephesians+5:13&version=KJV)).
+*"All things when they are admitted are made manifest by the light: for everything that is made manifest is light."* ([Eph. 5:13](https://www.biblegateway.com/passage/?search=Ephesians+5:13&version=KJV)).
 
 The *“light”* is consciousness. Consciousness is one, manifesting in legions of forms or levels of consciousness. There is no one that is not all that is, for consciousness, though expressed in an infinite series of levels, is not divisional. There is no real separation or gap in consciousness. I AM can not be divided. I may conceive myself to be a rich man, a poor man, a beggar man or a thief, but the center of my being remains the same regardless of the concept I hold of myself. At the center of manifestation there is only one I AM manifesting in legions of forms or concepts of itself and *“I am that I am.”*
 

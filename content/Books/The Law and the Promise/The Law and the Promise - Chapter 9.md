@@ -40,7 +40,7 @@ Why England necessarily, I cannot tell, except that I had seen a current motion 
 
 What the world looks like depends entirely on where man is when he makes his observations. And man, being 'All Imagination,' must be where he is in imagination.
 
-<span style="color: #4ade80;">*"The stone which the builders rejected has become the chief corner-stone."*</span> ([Psalm 118:22](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
+*"The stone which the builders rejected has become the chief corner-stone."* ([Psalm 118:22](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
 
 That stone is Imagining. I acquaint you with this secret and leave you to Act or Re-act.
 

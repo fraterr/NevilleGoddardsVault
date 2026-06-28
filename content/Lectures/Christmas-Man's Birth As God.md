@@ -1,25 +1,25 @@
-<span style="color: #4ade80;">*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."*</span> (John 1) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   
 Here are a few paradoxes which disturb many people. All of these are actual quotes or interpretations of a quote:  
-<span style="color: #4ade80;">*"I shall no longer speak to you in figures, but tell you plainly of the Father."*</span>  
-<span style="color: #4ade80;">*"I came out from the Father and came into the world. Again I am leaving the world and going to the Father."*</span>  
-<span style="color: #4ade80;">*"I and my Father are one."*</span>  
-<span style="color: #4ade80;">*"I am going to the Father, for the Father is greater than I."*</span>  
-<span style="color: #4ade80;">*"When you see me, you have seen the Father."*</span>  
-<span style="color: #4ade80;">*"He who you call God, he is my Father, but I know my Father and you know not your God."*</span>  
-<span style="color: #4ade80;">*"Show us the Father. If you knew me you would not ask, for no one can know me in the true sense and not know God, for He and I are inseparable."*</span>   
+*"I shall no longer speak to you in figures, but tell you plainly of the Father."*  
+*"I came out from the Father and came into the world. Again I am leaving the world and going to the Father."*  
+*"I and my Father are one."*  
+*"I am going to the Father, for the Father is greater than I."*  
+*"When you see me, you have seen the Father."*  
+*"He who you call God, he is my Father, but I know my Father and you know not your God."*  
+*"Show us the Father. If you knew me you would not ask, for no one can know me in the true sense and not know God, for He and I are inseparable."*   
   
 Who is the father who is one with his son, yet greater than he? Can he be the son of God, yet God the Father? And how can I ever know that I and my Father are one? Let us try to solve these strange contradictions.   
   
-In the last chapter of the Book of Revelation, God says: <span style="color: #4ade80;">*"I am the root and the offspring of David, the bright morning star."*</span> God is the root, the source, the cause of all life. He is the father of David, yet his offspring!   
+In the last chapter of the Book of Revelation, God says: *"I am the root and the offspring of David, the bright morning star."* God is the root, the source, the cause of all life. He is the father of David, yet his offspring!   
   
-As the source God is David's father, called Jesse or I AM. As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: <span style="color: #4ade80;">*"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."*</span> ([II Samuel 7](https://www.biblegateway.com/passage/?search=2+Samuel+7&version=KJV))   
+As the source God is David's father, called Jesse or I AM. As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: *"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."* ([II Samuel 7](https://www.biblegateway.com/passage/?search=2+Samuel+7&version=KJV))   
   
-Here we see that the root and the offspring are one. I (the root of David) am the cause of all life. In spite of that I come out of David, recognize him and say: <span style="color: #4ade80;">*"Thou art my son, today I have begotten thee."*</span>   
+Here we see that the root and the offspring are one. I (the root of David) am the cause of all life. In spite of that I come out of David, recognize him and say: *"Thou art my son, today I have begotten thee."*   
   
-As God the Father, I assume the limitations of the flesh; and using one who is a man after my heart and will do all my will, I become conscious of being a rich man, a poor man, a beggar, and a thief, until David reveals me as his father. <span style="color: #4ade80;">*"I came to do the will of my Father yet I am the Father, for God the Father and the Son of God is one I AM."*</span>   
+As God the Father, I assume the limitations of the flesh; and using one who is a man after my heart and will do all my will, I become conscious of being a rich man, a poor man, a beggar, and a thief, until David reveals me as his father. *"I came to do the will of my Father yet I am the Father, for God the Father and the Son of God is one I AM."*   
   
 There is only God in the world. As the father God created a perfect play. As the son God plays all the parts. As the son God is restricted in his activities. But when the drama is finished God leaves the world of Caesar - greatly expanded - and returns to himself, the Father.   
   
@@ -27,19 +27,19 @@ As the son God suffers. Ask a man who is suffering and he will answer, I am! Tha
   
 Like Paul, I pray that those who believe my message of salvation will know it is true; that the name I gave them for God is not mere poetry, but fact - that you are the Father. I have told them what happened in me. Grant them to know it is true. I am sure my departure will quicken the pace for those who have heard, accepted, and believed my words.   
   
-Now, a gentleman wrote, saying: <span style="color: #4ade80;">*"I fell asleep and dreamed I was reading the newspaper, looking at a full-page advertisement for Western Airlines. They were announcing their new P.D. system, which would eliminate all passenger congestion when boarding the plane. Suddenly the page became animated and I am in the picture, grinning from ear to ear as I awoke."*</span> In his letter he wondered why the initials P.D. He thought the D could be for departure, but could not understand the P. although he used the word <span style="color: #4ade80;">*"plan"*</span> throughout his letter.   
+Now, a gentleman wrote, saying: *"I fell asleep and dreamed I was reading the newspaper, looking at a full-page advertisement for Western Airlines. They were announcing their new P.D. system, which would eliminate all passenger congestion when boarding the plane. Suddenly the page became animated and I am in the picture, grinning from ear to ear as I awoke."* In his letter he wondered why the initials P.D. He thought the D could be for departure, but could not understand the P. although he used the word *"plan"* throughout his letter.   
   
 Everything contains within itself the capacity for symbolic significance. This gentleman is in advertising so naturally, in the dream he is looking at an ad. In this modern world we have planes which take man from earth to the skies and bring him back again. But this is a plan of transportation.   
   
-In the Book of Ephesians, we read: <span style="color: #4ade80;">*"He has made known unto us the mystery of his will in all wisdom and insight according to his purpose which he set forth as a plan in Christ for the fullness of time to unite all things in him, things in heaven and things on earth."*</span>   
+In the Book of Ephesians, we read: *"He has made known unto us the mystery of his will in all wisdom and insight according to his purpose which he set forth as a plan in Christ for the fullness of time to unite all things in him, things in heaven and things on earth."*   
   
 My friend called it the departure. This does not necessarily mean that he goes tonight or in the next forty years. To me as the interpreter of the dream it means that he has finished the journey. Like Paul, the time for his departure has come. He has fought the good fight. He has finished the race and kept the faith. Henceforth, there is laid up for him the crown of righteousness.   
   
 This crown is not something filled with jewels, but is the victor's crown. Only when one has finished the race can the crown be given. He has fought his own battle with himself, and he has won. His flight into the heavens is a plan which will erupt, causing him to depart this world of Caesar to personally experience Christmas.   
   
-Christmas is not the incarnation of God, but the departure of Man as God; for [God became Man](/lectures/god-became-man) that Man may become God. In my friend's dream he took the images of the twentieth century, and since everything contains within itself the capacity for symbolic significance, an airplane symbolizes that which takes off towards the heavens. It's destined to rise above the earth. The <span style="color: #4ade80;">*"P"*</span> is the plan of departure which begins with a spiritual birth, followed by the revelation of man's true identity.   
+Christmas is not the incarnation of God, but the departure of Man as God; for [God became Man](/lectures/god-became-man) that Man may become God. In my friend's dream he took the images of the twentieth century, and since everything contains within itself the capacity for symbolic significance, an airplane symbolizes that which takes off towards the heavens. It's destined to rise above the earth. The *"P"* is the plan of departure which begins with a spiritual birth, followed by the revelation of man's true identity.   
   
-There is no way of knowing who you really are until God's Son reveals it, for <span style="color: #4ade80;">*"No one knows who the Son is except the Father, and no one knows who the Father is except the son and anyone to whom the Son chooses to reveal him."*</span> The Son must choose to reveal you, for only then do you know you are God the Father.   
+There is no way of knowing who you really are until God's Son reveals it, for *"No one knows who the Son is except the Father, and no one knows who the Father is except the son and anyone to whom the Son chooses to reveal him."* The Son must choose to reveal you, for only then do you know you are God the Father.   
   
 I am the way. I am the truth. I am the light. No one comes to the awareness of being the Father except by God's plan. Diet will not do it. Wearing certain clothes, hibernating in some so-called holy place, or being a priest and going up the ranks will not do it. There is only one way to the Father, and I - all imagination - am the way!   
   
@@ -51,7 +51,7 @@ This gentleman had a wonderful dream. He may some day devise a plan that Western
   
 Having entered the world, God the Father of all life incarnated himself in your flesh and blood body as the son. When God's work is complete, He will depart this body and return to his heavenly body as the Father, redeeming you. This is the way to redemption, and there is no other way.   
   
-Although the words, <span style="color: #4ade80;">*"I and my father are one, yet my father is greater than I"*</span> appear to be contradictory, they are true. When I - the awareness - take on the limitation of flesh, I am aware of limitation. Finding myself in the form of a slave, I become obedient until death upon the cross called Man, where I remain as God, restricted by my incarnation. Then a predetermined plan erupts and delivers me from my self-imprisonment, and I return to the being I was - but now enhanced because of my self-imposed restriction. Then I can say with Paul: <span style="color: #4ade80;">*"I have fought the good fight. I have finished the race. I have kept the faith. Now there is laid up for me the laurel leaf - the crown of righteousness."*</span>   
+Although the words, *"I and my father are one, yet my father is greater than I"* appear to be contradictory, they are true. When I - the awareness - take on the limitation of flesh, I am aware of limitation. Finding myself in the form of a slave, I become obedient until death upon the cross called Man, where I remain as God, restricted by my incarnation. Then a predetermined plan erupts and delivers me from my self-imprisonment, and I return to the being I was - but now enhanced because of my self-imposed restriction. Then I can say with Paul: *"I have fought the good fight. I have finished the race. I have kept the faith. Now there is laid up for me the laurel leaf - the crown of righteousness."*   
   
 I am reminded of a story told of Charles William Eliot, who - when he retired as president of Harvard University - was given a gift by an old friend in Boston which he treasured greatly. His friend sent him an envelope containing a single laurel leaf. Its message was clear. He was being told he was victorious. Everyone will eventually receive that crown of righteousness, as the same crown is given to all who come to the end of the journey.   
   
@@ -63,17 +63,17 @@ Christmas marks the birth of man as God, not the birth of God as man. There is a
   
 When God is born in you it will be in the city of David. At that moment you are born as God. And from then on you will grow in stature. You will grow in favor of the Father because you will know yourself to be one with him. You will continue to remain incarnate, however, until that moment when you express your last breath. Then you will discover yourself to be life itself, for you will have entered the one body, one Spirit, one Lord, one God and Father of all.   
   
-Once individuality became defused in all, as told us in the 82nd Psalm: <span style="color: #4ade80;">*"I say, 'You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you will die like men and fall as one man, O princes.' "*</span>Here is this universal diffusion of the one I AM. You say, I am. I say, I am. We say, I am. That's the one being who fell, incarnating himself by becoming Man.   
+Once individuality became defused in all, as told us in the 82nd Psalm: *"I say, 'You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you will die like men and fall as one man, O princes.' "*Here is this universal diffusion of the one I AM. You say, I am. I say, I am. We say, I am. That's the one being who fell, incarnating himself by becoming Man.   
   
 I don't care what is said about Buddha's or Confucius' way; I have told you the only way back to the Father. My testimony is not based upon theory, but upon my own personal experience, and I tell you a truth: there is only one way. I am the way!   
   
-Another gentleman (an artist by profession) wrote, saying: <span style="color: #4ade80;">*"I found myself at the bottom of a deep well. Looking up I could see a beautiful blue sky with little clusters of white clouds which became doves, with their wings spread as though floating. Then I said to myself: 'This is what Neville teaches. The dove really does float'."*</span>   
+Another gentleman (an artist by profession) wrote, saying: *"I found myself at the bottom of a deep well. Looking up I could see a beautiful blue sky with little clusters of white clouds which became doves, with their wings spread as though floating. Then I said to myself: 'This is what Neville teaches. The dove really does float'."*   
   
 I am thrilled that in this man's dream, he recalled the teaching. In the Book of Genesis we are told that when the flood of illusion is over, the dove appears bringing back the laurel leaf [sic]: the sprig of victory. And the dove actually floats upon the crystal clear water.   
   
 I have seen this great flood of illusion as crystal clear atmosphere and now know that for me, the ark, the flood, is over. Man is either the ark of God or a phantom of the earth and sea - and he is not a phantom! Man is the ark of God, containing everything within himself.   
   
-Recently a great doctor was asked about the flu which is spreading all over our country. Questioning where the bug goes when the flu subsides, he answered: <span style="color: #4ade80;">*"It doesn't go anywhere. It remains in man to be activated again."*</span> I say moods activate it.   
+Recently a great doctor was asked about the flu which is spreading all over our country. Questioning where the bug goes when the flu subsides, he answered: *"It doesn't go anywhere. It remains in man to be activated again."* I say moods activate it.   
   
 Leprosy doesn't come from without. Cancer doesn't either. Everything is within man. Read the paper and react. That reaction sets a feeling in motion, be it anger, frustration, or irritation. When the feeling leaves, where does it go? Back to sleep within you, for you contain the world and all that is in it.   
   
@@ -87,7 +87,7 @@ The first event is your awakening and resurrection from the skull where God ente
   
 The three witnesses are there, as well as the child wrapped in swaddling clothes. The witnesses talk about you, but cannot see you, as you are now spirit.   
   
-Then, because no one has ever seen God but his only begotten son who is in the bosom of the Father, the second event occurs, when God's son stands before you and makes you known to yourself. Then you, too, will say: <span style="color: #4ade80;">*"I am the root and the offspring of David."*</span> For, coming out of the garment you have worn throughout your journey in the world of death, you are David, God's only begotten son!   
+Then, because no one has ever seen God but his only begotten son who is in the bosom of the Father, the second event occurs, when God's son stands before you and makes you known to yourself. Then you, too, will say: *"I am the root and the offspring of David."* For, coming out of the garment you have worn throughout your journey in the world of death, you are David, God's only begotten son!   
   
 There is no other way back to the realization of being God the Father, for He literally became you that you may become God. We are told that [Jesus Christ](/lectures/jesus-christ) is God's son, yet it is he who claims: I and my Father are one. He who sent me has seen the Father. Claiming to be the son who is the Father is a paradox; yet it is resolved when you realize that the son - coming out from the Father - remains the Father, but is restricted by incarnation.   
   

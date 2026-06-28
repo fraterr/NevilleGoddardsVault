@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"The natural man does not receive the gifts of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."*</span> ([1Cor. 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV).)
+*"The natural man does not receive the gifts of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."* ([1Cor. 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV).)
 
 *"There is a Moment in each Day that Satan cannot find, Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."* (William Blake)
 
@@ -17,7 +17,7 @@ There is an imaginal past and an imaginal future. If, by reacting, the past is r
 
 The spiritual man Acts: for him, anything that he wants to do, he can do and do at once — in his imagination — and his motto is always, *"The Moment is Now"*.
 
-<span style="color: #4ade80;">*"Behold, now is the acceptable time; behold, now is the day of salvation."*</span> ([2Cor. 6:2](https://www.biblegateway.com/passage/?search=2+Corinthians+6:2&version=KJV))
+*"Behold, now is the acceptable time; behold, now is the day of salvation."* ([2Cor. 6:2](https://www.biblegateway.com/passage/?search=2+Corinthians+6:2&version=KJV))
 
 Nothing stands between man and the fulfillment of his dream but facts.
 

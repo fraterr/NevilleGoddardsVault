@@ -28,7 +28,7 @@ In your Meditation allow others to see you as they would see you were this new c
 
 If you assume that you are what you want to be your desire is fulfilled, and, in fulfillment, all longing is neutralized. You cannot continue desiring what you have already realized. Your desire is not something you labor to fulfill, it is recognizing something you already possess. It is assuming the feeling of being that which you desire to be. Believing and being are one.
 
-The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth‖ (Mark 9:23).
+The conceiver and his conception are one, therefore that which you conceive yourself to be can never be so far off as even to be near, for nearness implies separation. “If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth‖ ([Mark 9:23](https://www.biblegateway.com/passage/?search=Mark+9:23&version=KJV)).
 
 Being is the substance of things hoped, the evidence of things not yet seen (cf. [Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV)).
 
@@ -76,7 +76,7 @@ Experience has convinced me that this is the perfect way to achieve my goal.
 
 However, my own many failures would convict me were I to imply that I have completely mastered the movements of my attention.
 
-I can, however, with the ancient teacher say: <span style="color: #4ade80;">*"This one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize."*</span> ([Philippians 3:13,14](https://www.biblegateway.com/passage/?search=Philippians+3:13,14&version=KJV).)
+I can, however, with the ancient teacher say: *"This one thing I do, forgetting those things which are behind, and reaching forth unto those things which are before, I press toward the mark for the prize."* ([Philippians 3:13,14](https://www.biblegateway.com/passage/?search=Philippians+3:13,14&version=KJV).)
 
 
 ## Summary

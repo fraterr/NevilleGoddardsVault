@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it. And, behold, the Lord stood above it. . ."*</span> ([Genesis 28:12, 13](https://www.biblegateway.com/passage/?search=Genesis+28:12,+13&version=KJV))
+*"And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it. And, behold, the Lord stood above it. . ."* ([Genesis 28:12, 13](https://www.biblegateway.com/passage/?search=Genesis+28:12,+13&version=KJV))
 
 In a dream, in a vision of the night, when deep sleep fell upon Jacob, his inner eye was opened and he beheld the world as a series of ascending and descending levels of awareness. It was a revelation of the deepest insight into the mysteries of the world. Jacob saw a vertical scale of ascending and descending values, or states of consciousness. This gave meaning to everything in the outer world, for without such a scale of values there would be no meaning to life.
 
@@ -14,7 +14,7 @@ Looking outwardly, you see the book first, but actually, the meaning comes first
 
 The Lord and meaning are one - the Creator, the cause of the phenomena of life.
 
-<span style="color: #4ade80;">*"In the beginning was the Word, and the Word was with God, and the Word was God."*</span> (John 1:1)
+*"In the beginning was the Word, and the Word was with God, and the Word was God."* ([John 1:1](https://www.biblegateway.com/passage/?search=John+1:1&version=KJV))
 
 In the beginning was the intention - the meaning - and the intention was with the intender, and the intention was the intender. The objects and events in time and space occupy a lower level of significance than the level of meaning which produced them. All things were made by meaning, and without meaning was not anything made that was made. The fact that everything seen can be regarded as the effect, on a lower level of significance, of an unseen higher order of significance is a very important one to grasp.
 
@@ -32,7 +32,7 @@ We should strive constantly to lift ourselves to the higher level of meaning, th
 
 Man is so engrossed in the visible side of the drama of life - the side of *"what"* has happened, and *"how"* it happened - that he rarely rises to the invisible side of *"why"* it happened. He refuses to accept the Prophet's warning that:
 
-<span style="color: #4ade80;">*"Things which are seen were not made of things that do appear."*</span> ([Hebrews 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
+*"Things which are seen were not made of things that do appear."* ([Hebrews 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
 
 His descriptions of *"what"* has happened and *"how"* it happened are true in terms of his corresponding level of thought, but when he asks *"why"* it happened, all physical explanations break down and he is forced to seek the *"why"*, or meaning of it, on the invisible and higher level. The mechanical analysis of events deals only with external relationships of things. Such a course will never reach the level which holds the secret of why the events happen. Man must recognize that the lower and visible sides flow from the invisible and higher level of meaning.
 
@@ -42,7 +42,7 @@ Events appear on the screen of space to express the different levels of consciou
 
 We saw, in the analogy of the book, that as consciousness was lifted up to the level where man could see meaning expressed in the arrangement of its letters, it also included the knowledge that the letters were arranged according to certain rules, and that such arrangements, when printed on paper and bound together, formed a book. What is true of the book is true of every event in the world.
 
-<span style="color: #4ade80;">*"They shall not hurt or destroy in all my holy mountain: for the earth shall be full of the knowledge of the Lord, as the waters cover the sea."*</span> ([Isaiah 11:9](https://www.biblegateway.com/passage/?search=Isaiah+11:9&version=KJV))
+*"They shall not hurt or destroy in all my holy mountain: for the earth shall be full of the knowledge of the Lord, as the waters cover the sea."* ([Isaiah 11:9](https://www.biblegateway.com/passage/?search=Isaiah+11:9&version=KJV))
 
 Nothing is to be discarded; all is to be redeemed. Our lives, ascending the vertical scale of meaning towards an ever increasing awareness - an awareness of things of higher significance - are the process whereby this redemption is brought to pass.
 
@@ -58,7 +58,7 @@ That burial had to be refused if that lad was to realize his dream. We tried to 
 
 The true answer, viewed from the level of higher meaning, would be such a reversal of our common habits of thinking that it would be instantly rejected. The truth is that future states are causative of present facts - the Indian boy dreaming of a hero's death, with full military honors, was like Lady Macbeth transported *"beyond this ignorant present"*, and could *"feel now the future in the instant."*
 
-<span style="color: #4ade80;">*"...and by it he being dead yet speaketh."*</span> ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
+*"...and by it he being dead yet speaketh."* ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
 
 
 

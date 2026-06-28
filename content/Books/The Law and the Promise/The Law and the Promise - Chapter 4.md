@@ -55,7 +55,7 @@ Imaginative writers communicate not their vision of the world but their attitude
 
 *"Prophets”, wrote Blake, "* in the modern sense of the word, have never existed. Jonah was no prophet in the modern sense, for his prophesy of Nineveh failed. Every honest man is a prophet; he utters his opinion both of private & public matters. Thus: If you go on So, the result is So. He never says, such a thing shall happen let you do what you will. A Prophet is a Seer, not an Arbitrary Dictator." The function of the Prophet is not to tell us what is inevitable, but to tell us what can be built up out of persistent imaginal activities.
 
-The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in <span style="color: #4ade80;">*"Your Dreams and the visions of your head as you lay in bed"*</span> ([Daniel 2:28](https://www.biblegateway.com/passage/?search=Daniel+2:28&version=KJV)). <span style="color: #4ade80;">*"Would that all the Lord's people were prophets"*</span> ([Numbers 11:29](https://www.biblegateway.com/passage/?search=Numbers+11:29&version=KJV)) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
+The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your Dreams and the visions of your head as you lay in bed"* ([Daniel 2:28](https://www.biblegateway.com/passage/?search=Daniel+2:28&version=KJV)). *"Would that all the Lord's people were prophets"* ([Numbers 11:29](https://www.biblegateway.com/passage/?search=Numbers+11:29&version=KJV)) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
 
 *"...The mind can make Substance, and people planets of its own with beings brighter than have been, and give a breath to forms which can outlive all flesh..."* (Lord G. Byron) "
 
@@ -87,9 +87,9 @@ Test yourself, if only out of curiosity. You will discover the *"Prophet"* is yo
 
 There is no fiction. Imagining fulfills itself in what our lives become.
 
-<span style="color: #4ade80;">*"And now I have told you before it takes place, so that when it does take place, you may believe."*</span> (John 14:29)
+*"And now I have told you before it takes place, so that when it does take place, you may believe."* ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
 
-The Greeks were right: <span style="color: #4ade80;">*"The Gods have come down to us in the likeness of men!"*</span> ([Acts 14:11](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
+The Greeks were right: *"The Gods have come down to us in the likeness of men!"* ([Acts 14:11](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
 
 *"Real are the Dreams of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
 
@@ -105,7 +105,7 @@ E.B., an author, is fully aware that *"today's fiction can become tomorrow's fac
 
 Ends run true to their imaginal origins — we reap the fruit of forgotten blossom-time. In life the events do not come up always where we have strewn the seed; so that we may not recognize our own harvest. Events are the emergence of a hidden imaginal activity. Man is free to imagine whatever he desires. This is why, despite all fatalists and misguided prophets of doom, all awakened men know that they are free. They know that they are creating reality. Is there a scriptural passage to support this claim?
 
-Yes: <span style="color: #4ade80;">*"And it came to pass, as he interpreted to us, so it was."*</span> ([Genesis 41:13](https://www.biblegateway.com/passage/?search=Genesis+41:13&version=KJV))
+Yes: *"And it came to pass, as he interpreted to us, so it was."* ([Genesis 41:13](https://www.biblegateway.com/passage/?search=Genesis+41:13&version=KJV))
 
 W. B. Yeats must have discovered that *"there is no fiction"*, for after describing some of his experiences in the conscious use of imagination, he writes: *"If all who have described events like this have not dreamed, we should rewrite our histories for all men, certainly all imaginative men, must be forever casting forth enchantments, glamours, illusions; and all men, especially tranquil men, who have no powerful egotistic life must be continually passing under their power. Our most elaborate thoughts, elaborate purposes, precise emotions, are often as I think, not really ours, but have on a sudden come up, as it were, out of hell or down out of heaven..."* (Ideas of Good and Evil) "
 

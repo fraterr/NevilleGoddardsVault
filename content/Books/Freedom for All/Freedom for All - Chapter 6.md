@@ -22,7 +22,7 @@ Every problem reveals its own solution. For sickness it is health; for poverty i
 
 These two states then, your problem and its solution, are the two birds you bring to the priest. You are the priest who now performs the drama of the curing of the man of leprosy – you and your problem. You are the priest; and with the formula for the cure of leprosy you now free yourself from your problem.
 
-First: Take one of the birds (your problem) and kill it by extracting the blood from it. Blood is man’s consciousness. <span style="color: #4ade80;">*"He hath made of one blood all nations of men to dwell on all the face of the earth"*</span> ([Acts 17:26](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)).
+First: Take one of the birds (your problem) and kill it by extracting the blood from it. Blood is man’s consciousness. *"He hath made of one blood all nations of men to dwell on all the face of the earth"* ([Acts 17:26](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)).
 
 Your consciousness is the one and only reality which animates and makes real that which you are conscious of being. So turning your attention away from the problem is equivalent to extracting the blood from the bird. Your consciousness is the one blood which makes all states living realities. By removing your attention from any given state you have drained the lifeblood from that state. You kill or eliminate the first bird (your problem) by removing your attention from it. Into this blood (your consciousness) you dip the live bird (the solution), or that which heretofore you desired to be or possess. This you do by freeing yourself to be the desirable state now.
 

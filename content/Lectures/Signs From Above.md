@@ -58,7 +58,7 @@ Now let us go into the silence.
 - The birth from above is a spiritual experience that unfolds over time
 
 ### The Dialogue between Jehovah and Nicodemus
-- The dialogue in John 3:22 is between Jehovah and Nicodemus
+- The dialogue in [John 3:22](https://www.biblegateway.com/passage/?search=John+3:22&version=KJV) is between Jehovah and Nicodemus
 - The Bible is not written about physical history, but about supernatural history
 - Nicodemus represents those who believe in an outside God
 - Nicodemus seeks to understand the meaning of Jesus through revelation

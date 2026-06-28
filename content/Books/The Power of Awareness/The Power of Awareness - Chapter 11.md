@@ -2,7 +2,7 @@ You ARE free to choose the concept you will accept of yourself. Therefore, you p
 
 The higher concept is waiting for you to incarnate it in the world of experience.
 
-<span style="color: #4ade80;">*"Now unto Him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us, unto him be glory."*</span> ([Eph. 3:20](https://www.biblegateway.com/passage/?search=Ephesians+3:20&version=KJV))
+*"Now unto Him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us, unto him be glory."* ([Eph. 3:20](https://www.biblegateway.com/passage/?search=Ephesians+3:20&version=KJV))
 
 Him, that is able to do more than you can ask or think, is your imagination, and the power that worketh in us is your attention. Understanding imagination to be HIM that is able to do all that you ask, and attention to be the power by which you create your world, you can now build your ideal world. Imagine yourself to be the ideal you dream of and desire. Remain attentive to this imagined state, and as fast as you completely feel that you are already this ideal it will manifest itself as reality in your world.
 

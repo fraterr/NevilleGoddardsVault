@@ -16,7 +16,7 @@ Four months later as I was again walking my dog, the same man approached me and 
 
 *"I knew his job was a fact when I imagined it that night some four months before, but I won't deny there was immense satisfaction in having him appear in the flesh to confirm it!"* ...F.B.
 
-<span style="color: #4ade80;">*"I have no silver and gold, but I give you what I have."*</span> ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV))
+*"I have no silver and gold, but I give you what I have."* ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV))
 
 None is to be discarded, all must be saved, and our Imagination reshaping memory is the process whereby this salvation is brought to pass. To condemn the man for having lost his way is to punish the already punished. *"O whom should I pity if I pity not the sinner who is gone astray?"* (William Blake, *"Jerusalem"*).
 
@@ -33,7 +33,7 @@ Imagining with new content transformed both the man who asked and the man who ga
 
 Imagining has not yet had its due in the systems either of moralists or educators.
 
-When it does, there will be <span style="color: #4ade80;">*"the opening of the prison to those who are bound"*</span>. ([Isa. 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV))
+When it does, there will be *"the opening of the prison to those who are bound"*. ([Isa. 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV))
 
 Nothing has existence for us save through the memory we have of it, therefore we should remember it not as it was — unless of course, it was altogether desirable — but as we desire it to be.
 

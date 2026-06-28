@@ -1,12 +1,12 @@
-<span style="color: #4ade80;">*"...what is seen was made out of things which do not appear."*</span> ([Heb. 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
+*"...what is seen was made out of things which do not appear."* ([Heb. 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
 
 *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
 
 *"The secret of imagining is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."* — Douglas Fawcett
 
-To refuse to recognize the creative power of man's invisible, imaginal activity, is too great to be argued with. Man, through his imaginal activity, literally <span style="color: #4ade80;">*"calls into existence the things that do not exist"*</span> ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
+To refuse to recognize the creative power of man's invisible, imaginal activity, is too great to be argued with. Man, through his imaginal activity, literally *"calls into existence the things that do not exist"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
-By man's imaginal activity, all things are made, and without such activity, <span style="color: #4ade80;">*"was not anything made that was made"*</span> (John 1:3).
+By man's imaginal activity, all things are made, and without such activity, *"was not anything made that was made"* ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)).
 
 Such causal activity could be defined as, an imaginal assemblage of images, which occurring, some physical event invariably takes place. It is for us to assemble the images of happy outcome and then keep from interfering. The event must not be forced but allowed to happen.
 
@@ -36,7 +36,7 @@ There is no form in nature, which is not produced by, and sustained by some imag
 
 It is useless to hold standards that we do not apply. Unlike Portia, who said: *"I can easier teach twenty what were good to be done, than be one of the twenty to follow mine own teaching."* (William Shakespeare, *"The Merchant of Venice"*)
 
-G.B. followed her own teaching. It is fatally easy to make the acceptance of the imaginal faith a substitute for living by it. <span style="color: #4ade80;">*"... He has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound..."*</span> ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV))
+G.B. followed her own teaching. It is fatally easy to make the acceptance of the imaginal faith a substitute for living by it. *"... He has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound..."* ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV))
 
 
 

@@ -22,7 +22,7 @@ You do not grope in space after a desirable state. Like Isaac, you sit still and
 
 Then in the absence of your first son, Esau, you invite the desirable state, your second son, Jacob, to come close so that you may feel it. *"Come close, my son, that I may feel you"* (27:21). First, you are aware of it in your immediate environment; then you draw it closer and closer and closer until you sense it and feel it in your immediate presence so that it is real and natural to you
 
-. <span style="color: #4ade80;">*"If two of you shall agree on earth as touching on any point that they shall ask, it shall be done for them of My Father, Which is in heaven"*</span> (Matthew 18:19).
+. *"If two of you shall agree on earth as touching on any point that they shall ask, it shall be done for them of My Father, Which is in heaven"* ([Matthew 18:19](https://www.biblegateway.com/passage/?search=Matthew+18:19&version=KJV)).
 
 The two agree through the sense of feel; and the agreement is established on earth – is objectified; is made real.
 
@@ -84,7 +84,7 @@ Sit in your living room and name a piece of furniture, rug or lamp that you woul
 
 Second. The blessing or the making of a place real.
 
-You are now seated in your apartment in New York City, contemplating the joy that would be yours if you were on an ocean liner sailing across the great Atlantic. <span style="color: #4ade80;">*"I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am there ye may be also"*</span> (John 14:2-3). Your eyes are closed; you have consciously released the New York apartment and in its place you sense and feel that you are on an ocean liner. You are seated in a deck chair; there is nothing round you but the vast Atlantic. Fix the reality of this ship and ocean so that in this state you can mentally recall the day when you were seated in your New York apartment dreaming of this day at sea. Recall the mental picture of yourself seated there in New York dreaming of this day. In your imagination see the memory picture of yourself back there in your New York apartment. If you succeed in looking back on your New York apartment without consciously returning there, then you have successfully prepared the reality of this voyage.
+You are now seated in your apartment in New York City, contemplating the joy that would be yours if you were on an ocean liner sailing across the great Atlantic. *"I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am there ye may be also"* ([John 14:2-3](https://www.biblegateway.com/passage/?search=John+14:2-3&version=KJV)). Your eyes are closed; you have consciously released the New York apartment and in its place you sense and feel that you are on an ocean liner. You are seated in a deck chair; there is nothing round you but the vast Atlantic. Fix the reality of this ship and ocean so that in this state you can mentally recall the day when you were seated in your New York apartment dreaming of this day at sea. Recall the mental picture of yourself seated there in New York dreaming of this day. In your imagination see the memory picture of yourself back there in your New York apartment. If you succeed in looking back on your New York apartment without consciously returning there, then you have successfully prepared the reality of this voyage.
 
 Remain in this conscious state feeling the reality of the ship and the ocean; feel the joy of this accomplishment – then open your eyes.
 
@@ -96,7 +96,7 @@ You consciously let go of this day, month or year, as the case may be, and you i
 
 With the knowledge of your power to bless you can open the doors of any prison – the prison of illness or poverty or of a humdrum existence.
 
-<span style="color: #4ade80;">*"The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken hearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound"*</span> ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV), Luke 4:18).
+*"The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken hearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound"* ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV), [Luke 4:18](https://www.biblegateway.com/passage/?search=Luke+4:18&version=KJV)).
 
 ## Summary
 

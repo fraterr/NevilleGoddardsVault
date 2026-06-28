@@ -20,7 +20,7 @@ I tell you, you are God dreaming this Dream of Life. You may not know you are; I
 
 Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your Assumption? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
 
-Let me share with you some of my own discoveries. We go back, now, to the Psalmist, and the Psalmist asks the question concerning this life: he said, <span style="color: #4ade80;">'Send Thy light and Thy truth to me. Let them bring me to Thy holy hill and to Thy dwelling.'</span> ([Psalm 43:3](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
+Let me share with you some of my own discoveries. We go back, now, to the Psalmist, and the Psalmist asks the question concerning this life: he said, 'Send Thy light and Thy truth to me. Let them bring me to Thy holy hill and to Thy dwelling.' ([Psalm 43:3](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
 
 Now, when the story is told, it takes a man to tell it, for it takes a man to express the power of God and the wisdom of God, and this one makes the claim, 'I am [the Light of the world](/lectures/the-light-of-the-world). I am the Truth.' So, when the Psalmist pleads to the Light and the Truth to lead him, and to lead him to the hill and the dwelling of God, one comes into the world in whom the Light unfolds and the Truth unfolds, and he declares, 'I am the Light of the world. I am the Truth.' Yes, 'I am the Way, I am the Truth, I am the Light' ' the one and only true and living way. To what?
 
@@ -54,7 +54,7 @@ But who is doing it? Who said he was the light of the world? He said, 'I Am the 
 
 It's a simple, simple technique. I hope you've had the thrill of seeing this wonderful golden light emanating from your head. It happens before you are born from above. So, do not condition it by thinking you must first be born from above. You do not. It is there because God is already in you. Yes, He is awaiting birth within you. Frankly, He is awaiting the discovery of Himself through the Son standing before Him and calling Him Father. For the purpose of life is to find the Father.
 
-'How long, how vast, how severe the anguish <span style="color: #4ade80;">'ere we find the Father were long to tell.'</span> ([Daniel 12:6](https://www.biblegateway.com/passage/?search=Daniel+12:6&version=KJV))
+'How long, how vast, how severe the anguish 'ere we find the Father were long to tell.' ([Daniel 12:6](https://www.biblegateway.com/passage/?search=Daniel+12:6&version=KJV))
 
 But the Father has been built in since Eternity in these dark convolutions of the human brain. That's where the Father is. You will never come into the presence of someone that you will call Father. You will come into the presence of someone who will call you Father. You will never find the Father outside of your Self. When you find the Father, it's because His Son calls you Father. There is no other Father.
 
@@ -74,7 +74,7 @@ Everything that man has imagined, is now imagining, or will imagine, will be exp
 
 For the whole search of man is for the key, the Source of the phenomena of life. And there's only one God, and that God is your own wonderful human imagination. So, you are in search of that God, You will find Him, may I tell you, because Truth in Scripture is that which is firm and unchangeable. Let no one tell you that you will find it by dieting, by going to holy places, by attending services on Sunday morning, by going to Mass, by any outside ritual. Forget it.
 
-You are told: <span style="color: #4ade80;">'Blessed are [the pure in heart](/lectures/the-pure-in-heart), for they shall see God.'</span> (Matthew 5:8) Well, how do I think I'm <span style="color: #4ade80;">'pure in heart'</span>? By diets? By going to church? By doing all the things that people tell me to do? No.
+You are told: 'Blessed are [the pure in heart](/lectures/the-pure-in-heart), for they shall see God.' ([Matthew 5:8](https://www.biblegateway.com/passage/?search=Matthew+5:8&version=KJV)) Well, how do I think I'm 'pure in heart'? By diets? By going to church? By doing all the things that people tell me to do? No.
 
 Man is purified by the death of his delusions.
 

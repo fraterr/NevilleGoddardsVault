@@ -10,7 +10,7 @@ My brother Victor wanted to be a successful business man, and he knew how to rem
 
 Walking by faith, every day as Victor passed that building, he saw 'J. C. Goddard and Sons' on the marquee in place of the existing name of 'I. N. Roach & Company'. Sight told him the building belonged to another, but faith said the building was his. By simply rearranging the structure of his mind every day for two years, our family's fortune changed. 
 
-Now, we are told: <span style="color: #4ade80;">*"Faith is the assurance of things hoped for; the conviction of things not seen, so that what is seen was made out of things that do not appear."*</span> ([Hebrews 11](https://www.biblegateway.com/passage/?search=Hebrews+11&version=KJV)) Only my brother Victor saw his mental act. Others saw the sign, <span style="color: #4ade80;">'J. N. Roach & Company'</span> - by sight, but Victor saw the words, <span style="color: #4ade80;">'J.C. Goddard & Sons'</span> - by faith. 
+Now, we are told: *"Faith is the assurance of things hoped for; the conviction of things not seen, so that what is seen was made out of things that do not appear."* ([Hebrews 11](https://www.biblegateway.com/passage/?search=Hebrews+11&version=KJV)) Only my brother Victor saw his mental act. Others saw the sign, 'J. N. Roach & Company' - by sight, but Victor saw the words, 'J.C. Goddard & Sons' - by faith. 
 
 Someone once asked Blake what he saw when he looked at the sun, and he replied, *"I see a host of angels singing, 'Holy, Holy, Holy, Lord God Almighty."*' We can all see the same tree but see it differently, just as we can the same man. One may see him in need, while another sees him gainfully employed, both using the same power. You have the power to either live by faith or by sight. If you live by sight, accepting everything that happens, you remain an automaton, unable to change the conditions and events in your world. Only as you begin to live by faith will your life change. 
 
@@ -22,7 +22,7 @@ Like Blake, I have found the Bible most entertaining, challenging, and instructi
 
 Take this simple statement in Hebrews: *"In many and various ways God spoke of old to our fathers by the prophets, but in these last days he has spoken to us by his son who reflects the glory of God and bears the stamp of his nature."* 
 
-The prophets, instruments through which God spoke, recorded their visions of what God intended, saying: <span style="color: #4ade80;">*"The heavens declare the glory of God and the firmament shows forth his handiwork."*</span> ([Psalms 18](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV) & 19) But in [the last days](/lectures/the-last-days) God speaks to us by his son, David. This is a fantastic revelation, for in the end God is going to reveal himself. 
+The prophets, instruments through which God spoke, recorded their visions of what God intended, saying: *"The heavens declare the glory of God and the firmament shows forth his handiwork."* ([Psalms 18](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV) & 19) But in [the last days](/lectures/the-last-days) God speaks to us by his son, David. This is a fantastic revelation, for in the end God is going to reveal himself. 
 
 I could tell you until the ends of time that you are He, but only David can make you believe it. I'll tell you why. Many people, like Bishop Pike, question the authority of scripture; but it will never be questioned after it is experienced. 
 

@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."*</span> ([Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
+*"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."* ([Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 Man can decree a thing and it will come to pass.
 

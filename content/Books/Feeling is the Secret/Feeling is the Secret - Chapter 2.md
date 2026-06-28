@@ -1,7 +1,7 @@
 SLEEP, the life that occupies one-third of our stay on earth, is the natural door into the subconscious.
 So it is with sleep that we are now concerned. The conscious two-thirds of our life on earth is measured by the degree of attention we give sleep. Our understanding of and delight in what sleep has to bestow will cause us, night after night, to set out for it as though we were keeping an appointment with a lover.
 
-<span style="color: #4ade80;">*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*</span>, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
+*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
 
 It is in sleep and in Prayer, a State akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
@@ -9,7 +9,7 @@ The subconscious – unlike the woman of the world who marries her husband to ch
 
 The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost feeling that they may reveal you to yourself.
 
-<span style="color: #4ade80;">*"As in heaven, so on earth"*</span> (Matthew 6:10; Luke 11:2). As in the subconscious, so on earth.
+*"As in heaven, so on earth"* ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
 
 Whatever you have in consciousness as you go to sleep is the measure of your expression in the waking two-thirds of your life on earth.
 
@@ -23,11 +23,11 @@ To be realized, then, the wish must be resolved into the feeling of being or hav
 
 Once asleep, man has no freedom of choice. His entire slumber is dominated by his last waking concept of self.
 
-It follows, therefore, that he should always assume the feeling of accomplishment and satisfaction before he retires in sleep, <span style="color: #4ade80;">*"Come before me with singing and thanksgiving"*</span> ([Psalm 95:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)), <span style="color: #4ade80;">*"Enter into his gates with thanksgiving and into his courts with praise"*</span> ([Psalm 100:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Your mood prior to sleep defines your state of consciousness as you enter into the presence of your everlasting lover, the subconscious.
+It follows, therefore, that he should always assume the feeling of accomplishment and satisfaction before he retires in sleep, *"Come before me with singing and thanksgiving"* ([Psalm 95:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)), *"Enter into his gates with thanksgiving and into his courts with praise"* ([Psalm 100:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Your mood prior to sleep defines your state of consciousness as you enter into the presence of your everlasting lover, the subconscious.
 
 She sees you exactly as you feel yourself to be. If, as you prepare for sleep, you assume and maintain the consciousness of success by feeling *"I am successful"*, you must be successful. Lie flat on your back with your head on a level with your body. Feel as you would were you in possession of your wish and quietly relax into unconsciousness.
 
-<span style="color: #4ade80;">*"He that keepeth Israel shall neither slumber nor sleep"*</span> ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Nevertheless <span style="color: #4ade80;">*"He giveth his beloved sleep"*</span> ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)).
+*"He that keepeth Israel shall neither slumber nor sleep"* ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)). Nevertheless *"He giveth his beloved sleep"* ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV)).
 
 The subconscious never sleeps. Sleep is the door through which the conscious, waking mind passes to be creatively joined to the subconscious.
 
@@ -47,9 +47,9 @@ Your subconscious, whose natural state is sleep, sees you as you believe yoursel
 
 As you feel so do you impress her; and she, the perfect lover, gives form to these impressions and out-pictures them as the children of her beloved.
 
-<span style="color: #4ade80;">*"Thou art all fair, my love; there is no spot in thee"*</span> ([Song of Solomon 4:7](https://www.biblegateway.com/passage/?search=Song+of+Solomon+4:7&version=KJV)) is the attitude of mind to adopt before dropping off to sleep.
+*"Thou art all fair, my love; there is no spot in thee"* ([Song of Solomon 4:7](https://www.biblegateway.com/passage/?search=Song+of+Solomon+4:7&version=KJV)) is the attitude of mind to adopt before dropping off to sleep.
 
-Disregard appearances and feel that things are as you wish them to be, for <span style="color: #4ade80;">*"He calleth things that are not seen as though they were, and the unseen becomes seen"*</span> (Approx., [Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). To assume the feeling of satisfaction is to call conditions into being which will mirror satisfaction.
+Disregard appearances and feel that things are as you wish them to be, for *"He calleth things that are not seen as though they were, and the unseen becomes seen"* (Approx., [Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). To assume the feeling of satisfaction is to call conditions into being which will mirror satisfaction.
 
 *"Signs follow, they do not precede"*.
 
@@ -77,7 +77,7 @@ Every night, as you drop off to sleep, feel satisfied and spotless, for your sub
 
 The waking two-thirds of your life on earth ever corroborates or bears witness to your subconscious impressions. The actions and events of the day are effects; they are not causes. Free will is only freedom of choice.
 
-<span style="color: #4ade80;">*"Choose ye this day whom ye shall serve"*</span> ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV)) is your freedom to choose the kind of mood you assume; but the expression of the mood is the secret of the subconscious.
+*"Choose ye this day whom ye shall serve"* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV)) is your freedom to choose the kind of mood you assume; but the expression of the mood is the secret of the subconscious.
 
 The subconscious receives impressions only through the feelings of man and, in a way known only to itself, gives these impressions form and expression.
 
@@ -85,7 +85,7 @@ The actions of man are determined by his subconscious impressions.
 
 His illusion of free will, his belief in freedom of action, is but ignorance of the causes which make him act. He thinks himself free because he has forgotten the link between himself and the event.
 
-Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. <span style="color: #4ade80;">*"Let the dead bury the dead"*</span> (Matthew 8:22; Luke 9:60). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
+Man awake is under compulsion to express his subconscious impressions. If in the past he unwisely impressed himself, then let him begin to change his thought and feeling, for only as he does so will he change his world. Do not waste one moment in regret, for to think feelingly of the mistakes of the past is to reinfect yourself. *"Let the dead bury the dead"* ([Matthew 8:22](https://www.biblegateway.com/passage/?search=Matthew+8:22&version=KJV); [Luke 9:60](https://www.biblegateway.com/passage/?search=Luke+9:60&version=KJV)). Turn from appearances and assume the feeling that would be yours were you already the one you wish to be.
 
 Feeling a state produces that state.
 
@@ -99,7 +99,7 @@ Unless you consciously and purposely define the attitude of mind with which you 
 
 Ideas enveloped in feeling are creative actions. Use your divine right wisely. Through your ability to think and feel, you have dominion over all creation.
 
-While you are awake, you are a gardener selecting seed for your garden, but <span style="color: #4ade80;">*"Except a corn of wheat fall into the ground and die, it abideth alone; but if it die, it bringeth forth much fruit"*</span> (John 12:24). Your conception of yourself as you fall asleep is the seed you drop into the ground of the subconscious. Dropping off to sleep feeling satisfied and happy compels conditions and events to appear in your world which confirm these attitudes of mind.
+While you are awake, you are a gardener selecting seed for your garden, but *"Except a corn of wheat fall into the ground and die, it abideth alone; but if it die, it bringeth forth much fruit"* ([John 12:24](https://www.biblegateway.com/passage/?search=John+12:24&version=KJV)). Your conception of yourself as you fall asleep is the seed you drop into the ground of the subconscious. Dropping off to sleep feeling satisfied and happy compels conditions and events to appear in your world which confirm these attitudes of mind.
 
 Sleep is the door into heaven. What you take in as a feeling you bring out as a condition, action, or object in space. So sleep in the feeling of the wish fulfilled.
 

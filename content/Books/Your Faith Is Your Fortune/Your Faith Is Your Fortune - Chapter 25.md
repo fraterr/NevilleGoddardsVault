@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"Then cometh Jesus with them, unto a place called Gethsemane, and saith unto the disciples, Sit ye here, while I go and pray yonder."*</span> ([Matt. 26:36](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
+*"Then cometh Jesus with them, unto a place called Gethsemane, and saith unto the disciples, Sit ye here, while I go and pray yonder."* ([Matt. 26:36](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 A most wonderful mystical romance is told in the story of Jesus in the Garden of Gethsemane, but man has failed to see the light of its symbology and has mistakenly interpreted this mystical union as an agonizing experience in which Jesus pleaded in vain with His Father to change His destiny.
 

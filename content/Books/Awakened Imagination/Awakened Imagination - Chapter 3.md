@@ -1,12 +1,12 @@
-<span style="color: #4ade80;">*"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."*</span> ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
+*"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
 
 DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.
 
-<span style="color: #4ade80;">*"The first shall be last and the last shall be first."*</span> (Matthew 19:30)
+*"The first shall be last and the last shall be first."* ([Matthew 19:30](https://www.biblegateway.com/passage/?search=Matthew+19:30&version=KJV))
 
-<span style="color: #4ade80;">*"He it is, Who coming after me is preferred before me."*</span> (John 1:27)
+*"He it is, Who coming after me is preferred before me."* ([John 1:27](https://www.biblegateway.com/passage/?search=John+1:27&version=KJV))
 
-<span style="color: #4ade80;">*"The second Man is the Lord from heaven."*</span> ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
+*"The second Man is the Lord from heaven."* ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
 
 Man begins to awake to the imaginative life the moment he feels the presence of another being in himself.
 
@@ -14,7 +14,7 @@ In your limbs lie nations twain, rival races from their birth; one the mastery s
 
 There are two distinct centers of thought or outlooks on the world possessed by every man. The Bible speaks of these two outlooks as natural and spiritual.
 
-<span style="color: #4ade80;">*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."*</span> ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV))
+*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV))
 
 Man's inner body is as real in the world of subjective experience as his outer physical body is real in the world of external realities, but the inner body expresses a more fundamental part of reality.
 
@@ -78,9 +78,9 @@ It is thus that this creative principle is being realized. So the clue to purpos
 
 Ideas only act if they are felt, if they awaken inner movement. Inner movement is conditioned by self-motivation, outer movement by compulsion.
 
-<span style="color: #4ade80;">*"Wherever the sole of your foot shall tread, the same give I unto you."*</span> ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
+*"Wherever the sole of your foot shall tread, the same give I unto you."* ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
 
-<span style="color: #4ade80;">*"..and remember, The Lord thy God in the midst of thee is mighty."*</span> ([Zephaniah 3:17](https://www.biblegateway.com/passage/?search=Zephaniah+3:17&version=KJV))
+*"..and remember, The Lord thy God in the midst of thee is mighty."* ([Zephaniah 3:17](https://www.biblegateway.com/passage/?search=Zephaniah+3:17&version=KJV))
 
 
 ## Summary

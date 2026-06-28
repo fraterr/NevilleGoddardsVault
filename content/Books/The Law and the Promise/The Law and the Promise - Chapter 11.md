@@ -1,6 +1,6 @@
-<span style="color: #4ade80;">*"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."*</span> ([Jeremiah 18:2-4](https://www.biblegateway.com/passage/?search=Jeremiah+18:2-4&version=KJV))
+*"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* ([Jeremiah 18:2-4](https://www.biblegateway.com/passage/?search=Jeremiah+18:2-4&version=KJV))
 
-The word translated <span style="color: #4ade80;">'Potter'</span> means imagination. Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
+The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
 This conception of creation as a work of imagination, and the Lord our Father as our imagination, will take us further into the mystery of creation than any other guide.
 
@@ -32,9 +32,9 @@ She tested the Potter and proved His creativity in performance.
 
 Only the indolent mind would fail to rise to this challenge.
 
-Paul states, <span style="color: #4ade80;">*"the spirit of God dwells in you”</span> ([1Cor. 3:16](https://www.biblegateway.com/passage/?search=1+Corinthians+3:16&version=KJV), [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), James 4:5), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." ([2Cor. 13:5,6](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5,6&version=KJV))
+Paul states, *"the spirit of God dwells in you” ([1Cor. 3:16](https://www.biblegateway.com/passage/?search=1+Corinthians+3:16&version=KJV), [Romans 8:9, 8:11](https://www.biblegateway.com/passage/?search=Romans+8:9,+8:11&version=KJV), [James 4:5](https://www.biblegateway.com/passage/?search=James+4:5&version=KJV)), now, "* Examine yourselves to see whether you are holding to your faith. [Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless indeed you fail to meet the test! I hope you will find out that we have not failed." ([2Cor. 13:5,6](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5,6&version=KJV))
 
-If <span style="color: #4ade80;">*"all things were made through Him, and without Him was not anything made that was made”</span> (John 1:3), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, <span style="color: #4ade80;">"*who gives life to the dead and calls into existence the things that do not exist."</span> ([Rom. 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
+If *"all things were made through Him, and without Him was not anything made that was made” ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." ([Rom. 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
 The Potter's presence in us is inferred from what He does there. We cannot see Him there as One, not ourselves. The nature of the Potter — Jesus Christ — is to create and there is no creation without Him.
 
@@ -86,7 +86,7 @@ I knew your teaching but had never actually attempted to solve any problem in th
 
 I know, now, that imagination could have brought forty thousand dollars into my business just as easily as four thousands." ...L.N.C
 
-<span style="color: #4ade80;">*"O Lord, Thou art our Father; we are the clay, and Thou art our Potter; we are all the work of Thy hand."*</span> ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
+*"O Lord, Thou art our Father; we are the clay, and Thou art our Potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
 
 

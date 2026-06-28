@@ -105,7 +105,7 @@ Now let us go into the silence.
 - Man's destiny is to enter a heavenly world where there are no mortal limitations
 - Ultimately, what God has done within a person is all that matters
 
-### Psalm 22 and Triumph
+### [Psalm 22](https://www.biblegateway.com/passage/?search=Psalm+22&version=KJV) and Triumph
 - [Psalm 22](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV) is identified as the song of the Messiah
 - The author prophesies that one will experience the glory they had with God before the world existed
 
@@ -114,7 +114,7 @@ Now let us go into the silence.
 - It will eventually manifest, making Jesus Christ's story become one's own storymortal limitations
 - Ultimately, what God has done within a person is all that matters
 
-### Psalm 22 and Triumph
+### [Psalm 22](https://www.biblegateway.com/passage/?search=Psalm+22&version=KJV) and Triumph
 - [Psalm 22](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV) is identified as the song of the Messiah
 - The author prophesies that one will experience the glory they had with God before the world existed
 

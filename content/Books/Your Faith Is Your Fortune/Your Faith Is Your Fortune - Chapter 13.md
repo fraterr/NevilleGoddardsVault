@@ -1,4 +1,4 @@
-<span style="color: #4ade80;">*"And as we have borne the image of the earthly, we shall also bear the image of the heavenly."*</span> ([1Cor. 15:49](https://www.biblegateway.com/passage/?search=1+Corinthians+15:49&version=KJV))
+*"And as we have borne the image of the earthly, we shall also bear the image of the heavenly."* ([1Cor. 15:49](https://www.biblegateway.com/passage/?search=1+Corinthians+15:49&version=KJV))
 
 Your consciousness or your I AM is the unlimited potential upon which impressions are made. I’m-pressions are defined states pressed upon your I AM, Your consciousness or your I AM can be likened to a sensitive film. In the virgin state it is potentially unlimited You can impress or record a message of love or a hymn of hate, a wonderful symphony or discordant jazz. It does not matter what the nature of the impression might be; your I AM will, without a murmur, willingly receive and sustain all impressions.
 

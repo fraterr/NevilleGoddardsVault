@@ -26,7 +26,7 @@ The following story tells of one who went *"through the glass"* and broke the ch
 
 *"One morning, I moved from my bed to a couch and had started to sit up when I was seized with such an excruciating pain my entire body became paralyzed. I could neither sit up nor lie down. This terrible pain lasted for more than a full minute, but when it stopped — I was free! It seemed as if all the wires binding my legs had been cut. One moment I was bound; the next moment I was free. Not by degrees, but instantly."* ...V.H.
 
-<span style="color: #4ade80;">*"We walk by faith), not by sight."*</span>  ([2Cor. 5:7](https://www.biblegateway.com/passage/?search=2+Corinthians+5:7&version=KJV))
+*"We walk by faith), not by sight."*  ([2Cor. 5:7](https://www.biblegateway.com/passage/?search=2+Corinthians+5:7&version=KJV))
 
 When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only imagination sees.
 
@@ -46,7 +46,7 @@ To the extent that man builds from Dreams of fancy, he is alive; and, therefore,
 
 It follows that restricting the imagination by *"staying the eye"* on the reflective glass of the senses is a reduction of life.
 
-The specious surface of fact reflects rather than discloses, deflecting the <span style="color: #4ade80;">*"Eye of Imagination"*</span> from the truth that sets man free (John 8:32).
+The specious surface of fact reflects rather than discloses, deflecting the *"Eye of Imagination"* from the truth that sets man free ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV)).
 
 *"The Eye of Imagination”, if not deflected, looks on what ought to be there, not what is. However familiar the scene on which sight rests, the "* Eye of Imagination" could gaze on one never before witnessed.
 
@@ -58,15 +58,15 @@ Self-abandonment. That is the secret.
 
 We have to abandon ourselves to the state, in our love for the state, and in so doing live the life of the state and no more our present state. Imagination seizes upon the life of the state and gives itself to the expression of the life of that state.
 
-Faith plus Love is self-commission. We can't commit ourselves to what we do not love. <span style="color: #4ade80;">*"Never would you have made anything if you had not loved it."*</span> (<span style="color: #4ade80;">*"For you love all the things that are, and despise nothing which you have made: For never would you have made anything, if you hated it."*</span>, Book of Wisdom 11:24).
+Faith plus Love is self-commission. We can't commit ourselves to what we do not love. *"Never would you have made anything if you had not loved it."* (*"For you love all the things that are, and despise nothing which you have made: For never would you have made anything, if you hated it."*, Book of [Wisdom 11:24](https://www.biblegateway.com/passage/?search=Wisdom+11:24&version=KJV)).
 
 And to make the state alive, one must become it.
 
-<span style="color: #4ade80;">*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."*</span> (<span style="color: #4ade80;">*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*</span>, Galatians 2:20)
+*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 
-We must be <span style="color: #4ade80;">*"imitators of God as dear children"*</span> ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)) and commit ourselves to what we love, as God Who loved us committed Himself to us.
+We must be *"imitators of God as dear children"* ([Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians+5:1&version=KJV)) and commit ourselves to what we love, as God Who loved us committed Himself to us.
 
 We must BE the state to experience the state.
 
@@ -144,7 +144,7 @@ Paul states: *"I know a man in Christ who fourteen years ago was caught up to th
 
 Paul is telling us that he is that man and that he traveled by the power of imagination or Christ.
 
-In his next letter to the Corinthians, he writes: <span style="color: #4ade80;">*"[Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"* ([2Corinthians 13:5](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5&version=KJV)). We need not be 'dead' in order to enjoy spiritual privileges. *"</span>Man is All Imagination and God is Man.<span style="color: #4ade80;">"* (William Blake, from *"</span>Annotations to Berkeley"*). Test yourselves as this mother did.
+In his next letter to the Corinthians, he writes: *"[Test yourselves](/lectures/test-yourselves). Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"* ([2Corinthians 13:5](https://www.biblegateway.com/passage/?search=2+Corinthians+13:5&version=KJV)). We need not be 'dead' in order to enjoy spiritual privileges. *"Man is All Imagination and God is Man."* (William Blake, from *"Annotations to Berkeley"*). Test yourselves as this mother did.
 
 Sir Arthur Eddington said that all we have a right to say of the external world is that it is a *"shared experience"*. Things are more or less 'real' according to the extent to which they are capable of being shared with others or with ourselves at another time.
 
