@@ -10,6 +10,14 @@ export default function Sidebar() {
       <div className={styles.header}>
         <h1 className={styles.title}>Neville Goddard's Vault</h1>
         <p className={styles.subtitle}>Awaken Your Imagination</p>
+        <a 
+          href="https://buymeacoffee.com/practicalhumanism" 
+          target="_blank" 
+          rel="noopener noreferrer" 
+          className={styles.teaButton}
+        >
+          ☕ Buy me a tea
+        </a>
       </div>
       
       <nav className={styles.nav}>

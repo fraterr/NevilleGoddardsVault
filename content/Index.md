@@ -40,7 +40,7 @@ Transcripts of Neville's talks and lessons given over radio broadcasts.
 
 ### Search
 
-Neville's writings indexed and organized by key topics, themes, [[Bible References|Bible verses], and more. Enables focused study on specific aspects of his teachings.
+Neville's writings indexed and organized by key topics, themes, [Bible verses](/search), and more. Enables focused study on specific aspects of his teachings.
 
 ### Feedback
 
