@@ -31,6 +31,19 @@ interface DocMetadata {
   keywords?: string[];
 }
 
+// Slugify utility
+export function slugify(text: string): string {
+  return text
+    .toLowerCase()
+    .replace(/[^a-z0-9]+/g, '-')
+    .replace(/(^-|-$)+/g, '');
+}
+
+// Helper to convert path parts to slugified URL path
+export function slugifyParts(parts: string[]): string[] {
+  return parts.map(slugify);
+}
+
 // Load metadata safely
 let cachedMetadata: DocMetadata[] = [];
 try {
@@ -39,6 +52,39 @@ try {
   }
 } catch (e) {
   console.error("Error reading metadata.json:", e);
+}
+
+// Helper to resolve a slugified route back to the actual filesystem path
+interface ResolvedPathInfo {
+  fsPath: string;
+  isDir: boolean;
+}
+
+function resolveSlugToPath(slug: string[]): ResolvedPathInfo | null {
+  let currentPath = contentDirectory;
+  
+  for (const slugPart of slug) {
+    if (!fs.existsSync(currentPath)) return null;
+    
+    const entries = fs.readdirSync(currentPath);
+    let found = false;
+    
+    for (const entry of entries) {
+      if (entry.startsWith('.')) continue;
+      
+      const nameWithoutExt = entry.endsWith('.md') ? entry.slice(0, -3) : entry;
+      if (slugify(nameWithoutExt) === slugPart) {
+        currentPath = path.join(currentPath, entry);
+        found = true;
+        break;
+      }
+    }
+    
+    if (!found) return null;
+  }
+  
+  const isDir = fs.statSync(currentPath).isDirectory();
+  return { fsPath: currentPath, isDir };
 }
 
 function buildVaultTree(dir: string, currentSlug: string[] = []): VaultNode[] {
@@ -52,9 +98,11 @@ function buildVaultTree(dir: string, currentSlug: string[] = []): VaultNode[] {
     
     const fullPath = path.join(dir, entry.name);
     const isDirectory = entry.isDirectory();
+    const nameWithoutExt = entry.name.replace(/\.md$/, '');
+    const nodeSlug = [...currentSlug, slugify(nameWithoutExt)];
     
     if (isDirectory) {
-      const children = buildVaultTree(fullPath, [...currentSlug, entry.name]);
+      const children = buildVaultTree(fullPath, nodeSlug);
       
       // Filter out duplicate folder note files from children list
       const filteredChildren = children.filter(child => {
@@ -65,16 +113,15 @@ function buildVaultTree(dir: string, currentSlug: string[] = []): VaultNode[] {
         name: entry.name,
         type: 'directory',
         path: fullPath,
-        slug: [...currentSlug, entry.name],
+        slug: nodeSlug,
         children: filteredChildren
       });
     } else if (entry.name.endsWith('.md')) {
-      const nameWithoutExt = entry.name.replace(/\.md$/, '');
       nodes.push({
         name: nameWithoutExt,
         type: 'file',
         path: fullPath,
-        slug: [...currentSlug, nameWithoutExt],
+        slug: nodeSlug,
       });
     }
   }
@@ -121,7 +168,7 @@ function evaluateDataviewQuery(queryText: string): string {
   let filtered = cachedMetadata.filter(doc => {
     // FROM filter
     if (fromVal) {
-      const hasFrom = doc.slug.some(s => s.toLowerCase() === fromVal);
+      const hasFrom = doc.slug.map(slugify).some(s => s === fromVal);
       if (!hasFrom) return false;
     }
 
@@ -164,7 +211,6 @@ function evaluateDataviewQuery(queryText: string): string {
       return sort.order === 'ASC' ? aVal.localeCompare(bVal) : bVal.localeCompare(aVal);
     });
   } else {
-    // Default alphabetical sort
     filtered.sort((a, b) => a.title.localeCompare(b.title));
   }
 
@@ -178,7 +224,7 @@ function evaluateDataviewQuery(queryText: string): string {
   
   const rows: string[] = [];
   for (const doc of filtered) {
-    const pageLink = `[${doc.title}](/${doc.slug.join('/')})`;
+    const pageLink = `[${doc.title}](/${doc.slug.map(slugify).join('/')})`;
     const rowValues = [pageLink];
     
     for (const col of columns) {
@@ -197,41 +243,40 @@ function evaluateDataviewQuery(queryText: string): string {
 }
 
 export function getDocumentBySlug(slug: string[]): MarkdownDocument | null {
-  const dirPath = path.join(contentDirectory, ...slug);
-  const isDir = fs.existsSync(dirPath) && fs.statSync(dirPath).isDirectory();
+  const resolved = resolveSlugToPath(slug);
+  if (!resolved) return null;
   
+  const { fsPath, isDir } = resolved;
   let content = '';
   let frontmatter: Record<string, any> = {};
-  let resolvedPath = '';
 
   if (isDir) {
-    // First check for a folder note matching folder name (e.g. Feeling is the Secret.md)
-    const folderNotePath = path.join(dirPath, slug[slug.length - 1] + '.md');
+    const folderName = path.basename(fsPath);
+    const folderNotePath = path.join(fsPath, folderName + '.md');
     if (fs.existsSync(folderNotePath)) {
       const fileContents = fs.readFileSync(folderNotePath, 'utf8');
       const parsed = matter(fileContents);
       content = parsed.content;
       frontmatter = parsed.data;
-      resolvedPath = folderNotePath;
     } else {
-      // Default TOC if no folder note
-      content = `# ${slug[slug.length - 1]}`;
+      content = `# ${folderName}`;
     }
 
     // Build directory Table of Contents
-    const entries = fs.readdirSync(dirPath, { withFileTypes: true });
+    const entries = fs.readdirSync(fsPath, { withFileTypes: true });
     const links: string[] = [];
     
     for (const entry of entries) {
       if (entry.name.startsWith('.')) continue;
-      // Skip the folder note file itself
-      if (entry.name === slug[slug.length - 1] + '.md') continue;
+      if (entry.name === folderName + '.md') continue;
       
       const nameWithoutExt = entry.name.replace(/\.md$/, '');
+      const itemSlug = [...slug, slugify(nameWithoutExt)];
+      
       if (entry.isDirectory()) {
-        links.push(`- 📁 **[${nameWithoutExt}](/${slug.join('/')}/${nameWithoutExt})**`);
+        links.push(`- 📁 **[${nameWithoutExt}](/${itemSlug.join('/')})**`);
       } else if (entry.name.endsWith('.md')) {
-        links.push(`- 📄 [${nameWithoutExt}](/${slug.join('/')}/${nameWithoutExt})`);
+        links.push(`- 📄 [${nameWithoutExt}](/${itemSlug.join('/')})`);
       }
     }
 
@@ -244,29 +289,14 @@ export function getDocumentBySlug(slug: string[]): MarkdownDocument | null {
     });
 
     if (links.length > 0) {
-      // Replace dataview blocks with empty space if they exist in the folder note
       content = content.replace(/```dataview[\s\S]*?```/g, '');
       content = content.trim() + '\n\n## Content\n' + links.join('\n');
     }
   } else {
-    // Try exact file path
-    let fileFullPath = path.join(contentDirectory, ...slug) + '.md';
-    if (!fs.existsSync(fileFullPath)) {
-      const allFiles = getAllFiles(contentDirectory);
-      const targetName = slug[slug.length - 1] + '.md';
-      const foundFile = allFiles.find(f => f.endsWith(targetName));
-      if (foundFile) {
-        fileFullPath = foundFile;
-      } else {
-        return null;
-      }
-    }
-    
-    const fileContents = fs.readFileSync(fileFullPath, 'utf8');
+    const fileContents = fs.readFileSync(fsPath, 'utf8');
     const parsed = matter(fileContents);
     content = parsed.content;
     frontmatter = parsed.data;
-    resolvedPath = fileFullPath;
   }
 
   // Parse and replace Dataview blocks dynamically
@@ -303,9 +333,9 @@ export function resolveWikilink(linkName: string): string {
   
   if (found) {
     const relPath = path.relative(contentDirectory, found);
-    const slugPath = relPath.replace(/\.md$/, '').replace(/\\/g, '/');
-    return `/${slugPath}`;
+    const parts = relPath.replace(/\.md$/, '').split(path.sep);
+    return `/${parts.map(slugify).join('/')}`;
   }
   
-  return `/${target.replace(/\s+/g, '-')}`;
+  return `/${slugify(target)}`;
 }

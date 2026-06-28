@@ -2,6 +2,7 @@ import React from 'react';
 import ReactMarkdown from 'react-markdown';
 import remarkGfm from 'remark-gfm';
 import Link from 'next/link';
+import { slugify } from '@/lib/markdown';
 import styles from './MarkdownRenderer.module.css';
 
 interface MarkdownRendererProps {
@@ -17,7 +18,9 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
           // Overwrite link component to use Next.js Link for internal links
           a: ({ node, href, children, ...props }) => {
             if (href?.startsWith('/')) {
-              return <Link href={href}>{children}</Link>;
+              // Ensure path parts are safely slugified to prevent space/casing 404s
+              const slugifiedHref = href.split('/').map(slugify).join('/');
+              return <Link href={slugifiedHref}>{children}</Link>;
             }
             return (
               <a href={href} target="_blank" rel="noopener noreferrer" {...props}>
