@@ -46,26 +46,6 @@
   text-decoration-color: var(--accent-gold);
 }
 
-.markdownBody a[href*="biblegateway.com"] {
-  color: var(--accent-gold);
-  background-color: rgba(212, 175, 55, 0.1);
-  padding: 0.1rem 0.4rem;
-  border-radius: 4px;
-  font-size: 0.85em;
-  font-weight: 500;
-  text-decoration: none;
-  border: 1px solid rgba(212, 175, 55, 0.2);
-  white-space: nowrap;
-  transition: all 0.2s ease;
-  vertical-align: text-bottom;
-}
-
-.markdownBody a[href*="biblegateway.com"]:hover {
-  background-color: rgba(212, 175, 55, 0.2);
-  border-color: rgba(212, 175, 55, 0.4);
-  text-decoration: none;
-}
-
 .markdownBody blockquote {
   border-left: 4px solid var(--accent-gold);
   padding: 1rem 1.5rem;
