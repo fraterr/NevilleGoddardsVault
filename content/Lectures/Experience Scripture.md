@@ -4,7 +4,7 @@ We are told in the Book of Daniel: *"And on like a son of man came to the Ancien
 
 Well, *"dominion"* means *"complete control of all human and non-human forces"*―complete control. That’s dominion.
 
-*"Glory"* is God Himself, as told us in the Book of Exodus: *"I make my glory pass before you,…and when I pass by."* [Exodus 33:18 and following] So he equates *"glory"* with *"I."* So here, it is God Himself.
+> *"Glory"* is God Himself, as told us in the Book of Exodus: *"I make my glory pass before you,…and when I pass by."* [Exodus 33:18 and following] So he equates *"glory"* with *"I."* So here, it is God Himself.
 
 And now *"Kingdom"* is simply the realm where a monarchical ruler dominates all things―the king.
 
@@ -26,7 +26,7 @@ Today the world―I hear it on TV, I read it in the papers; and these very promi
 
 You are told in Scripture that *"of that day and hour no one knows but the Father."* [Mark 13:32]
 
-*"It is not for you to be given the time or the signs."* [Acts 1:7]
+> *"It is not for you to be given the time or the signs."* [Acts 1:7]
 
 When the sign comes, you’ll understand it. Everything will happen in you just as described in the story of Christ; but earthquakes and convulsions of nature, cosmic catastrophes haven’t a thing to do with the end. This is a unique story all about you. It hasn’t a thing to do with the end of the world. It’s the end of your journey though the tribulation of human experience, that’s *"the end."* Then comes, with shocking suddenness, the *"I"* awakening in you. It is not another; it is you. You are the Lord [Jesus Christ](/lectures/jesus-christ). You are the Lord God Jehovah. You are the central figure of Scripture. It has not a thing to do with another.”
 
@@ -56,7 +56,7 @@ Now we are told, *"As Moses lifted up the serpent in the wilderness, so must the
 
 You actually find yourself―now we will take the story. He was standing on the Mount of Olives, as you read it in the 13th of Mark [Mark 13:3,4] and the 24th of Matthew [Matthew 24:3]. Now we go back to the 14th Chapter of Zechariah. *"Zechariah"* means *"Jehovah remembers."* This is the last chapter of Zechariah [Zechariah 14:40]. *"And he was standing on the Mount of Olives,"*―and this expression *"Mount of Olives"* is only used twice in the Old Testament. Here is the Mount of Olives. It is used first in Second Samuel concerning David [II Samuel 15:30]; but here is the second use of it at almost the end of the Old Testament, the 14th Chapter of Zechariah. Remember, the word means *"Jehovah remembers."* This is his pledge, his covenant:
 
-*"Now, the Lord is standing upon the Mount of Olives, and the Mount of Olives was split from east to west, forming a very wide valley; and one half of the mount moved northward, and one half moved south."*
+> *"Now, the Lord is standing upon the Mount of Olives, and the Mount of Olives was split from east to west, forming a very wide valley; and one half of the mount moved northward, and one half moved south."*
 
 And then came out of Jerusalem,--for the Mount of Olives faced Jerusalem,--came *"Living water,"*―came living water. [Zechariah 14:8]
 
@@ -72,7 +72,7 @@ I knew exactly how to do it. And you push the base of your skull, and something 
 
 In the world, yes, I seem to be less than my Father, for I am now doing a job. I am in the world as one that is *"sent"*; but the Sender and the *"sent"* are one. I am only inferior to my Self―the Sender―when I am playing the part of the *"sent,"* but I’ll return to my Self―the Sender, and I’ll be one with my Self―the Sender.
 
-*"I will leave the world and return to my Father."*
+> *"I will leave the world and return to my Father."*
 
 And *"I and my Father are one."*
 
@@ -86,7 +86,7 @@ How can I―a man―know that I am liquid, liquid light? But I am! And I fuse wi
 
 When they are looking now, as they are,--they go off to Jerusalem physically. They have these enormous productions where some nations give them millions to excavate all kinds of things to try to find where he was buried. Where he was buried! The only place where Christ was ever buried is in the human skull; and it’s called in Scripture *"Golgotha."* IN the Book of Luke they actually call it by the name *"skull."*
 
-*"When they had brought him to the place called The Skull, there they buried him."* [Luke 23:33]
+> *"When they had brought him to the place called The Skull, there they buried him."* [Luke 23:33]
 
 Now *"Golgotha"* means *"skull,"* but it’s the Hebrew form of *"skull."* We speak of *"Calvary."* Well, *"Calvary"* is the Latin form of *"skull."* And so, the whole thing is simply your own wonderful human skull. That’s where the whole drama takes place. It all takes place in the imagination of man. There is nothing but God, and God is the human imagination. And the drama of God is unfolding within us.
 
@@ -104,7 +104,7 @@ Then I knew what to do. I put my head through the little opening, and I pushed i
 
 Then I stood up and looked back at this [indicating the physical body] out of which I came, and it was ghastly pale, as told us in Jeremiah:
 
-*"Can a man bear a child?"*
+> *"Can a man bear a child?"*
 
 The obvious answer is, No. *"Why, then, do I see every men drawing himself out of himself just like a woman in labor? And why does every face turn ghastly pale?"*
 
@@ -112,7 +112,7 @@ The obvious answer is, No. *"Why, then, do I see every men drawing himself out o
 
 Well, the face was just as white as snow as I came out of it. And then the entire drama unfolded around me. There were witnesses to the event, but they could not see me because God was born at that moment. The sign of my *"birth"* was there; the child they could see. And I saw the child and could take it in my arms. But they could not see me because *"God is Spirit,"* and no mortal eye can see Him. So, they could not see the one that was born at that moment. It’s God-in-man that is buried. It is God-in-man, which is the *"I"* of man―the personal pronoun *"I."* That’s God-in-man, and that is *"born."* It awakens in him and comes out. The pattern by which He does it all is told us in Scripture, and it is recorded as the story of Jesus Christ. Well, Jesus Christ refers to himself constantly as the Son of Man.
 
-*"Who do men say that the Son of Man is?"* And when they answered, concerning men, he did not answer. He asked another question: *"Who do you say that I am?"* So, he equates himself with the Son of Man.
+> *"Who do men say that the Son of Man is?"* And when they answered, concerning men, he did not answer. He asked another question: *"Who do you say that I am?"* So, he equates himself with the Son of Man.
 
 Then one answered and said, *"Thou art the Christ, the Son of the Living God."* *"Blessed are you, Simon Barjona, for flesh and blood did not reveal this unto you, but my Father who is in heaven."* And *"I and my Father are one."* So, I revealed it to you. I allowed you to know Who-I-Am. That’s what he is saying.
 
@@ -140,7 +140,7 @@ One chap, he had an audience of over six thousand people. That is, they were all
 
 I said, *"I am sorry. I cannot take it. Give it to someone else, but I cannot take it. I have orders. I have orders that I must obey, and it came from the Ancient of Days,"* Well, he couldn’t understand that
 
-*"Ancient of Days"*―these are just words to the average preacher. They mean nothing; they are simply idle words. And yet, every word is true in Scripture. Here stands the Ancient of Days―no father, no mother; no beginning,--the Ancient of Days. He has no origin. You stand before Him, and He actually embraces you, and you become one now―without father, because you are the Father. And as Father, you have no father. You are the Father. Now go and, *"Down with the bluebloods,"*―down with all churchianity, all external things in this world. So, no inducement whatsoever could get me to join any -ism.
+> *"Ancient of Days"*―these are just words to the average preacher. They mean nothing; they are simply idle words. And yet, every word is true in Scripture. Here stands the Ancient of Days―no father, no mother; no beginning,--the Ancient of Days. He has no origin. You stand before Him, and He actually embraces you, and you become one now―without father, because you are the Father. And as Father, you have no father. You are the Father. Now go and, *"Down with the bluebloods,"*―down with all churchianity, all external things in this world. So, no inducement whatsoever could get me to join any -ism.
 
 Now the end of my days―it doesn’t really matter. At least, I kept the faith; so I could say with Paul [II Timothy 4:8]: *"I have finished the race. I have fought the good fight, and I have kept the faith. Now there is laid up for me the Crown of Righteousness,"*―which means the crown of faith. I have kept the faith.
 

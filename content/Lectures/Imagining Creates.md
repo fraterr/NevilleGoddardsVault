@@ -20,7 +20,7 @@ Now, imagination - being [spiritual sensation](/lectures/spiritual-sensation) - 
 Many will say that was just coincidence, but it was not! It is reality, but how do I get you to believe me? But whether you believe me or not, I know from experience that God and you are one grand Imagination, and there is [no other God](/lectures/no-other-god)! One day, Imagination in you will awaken and you - fully aware of who you really are - will know that all things are subject to you. That is your destiny. 
 
 The present moment is a formed imaginal act. Arrest it, and you can change it in yourself by following the advice given in the 18th chapter of the Book of Jeremiah:
-*" 'Arise! Go down to the potter's house and I will let you hear my words.' So I went down to the potter's house and there he was working at his wheel. The image in his hand was misshapen, but he reworked it into another image as it seemed good to the potter to do."* 
+> *" 'Arise! Go down to the potter's house and I will let you hear my words.' So I went down to the potter's house and there he was working at his wheel. The image in his hand was misshapen, but he reworked it into another image as it seemed good to the potter to do."* 
 
 The word translated *"potter,"* means imagination, and we are told that the Lord is not only our Father, but the potter, and we are the clay in his hands! ([Isaiah 64](https://www.biblegateway.com/passage/?search=Isaiah+64&version=KJV)) 
 

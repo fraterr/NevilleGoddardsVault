@@ -20,11 +20,11 @@ The outer man is the external word, which comes first. The inner man is then sen
   
 Now another lady shared this vision saying: "I am standing in the midst of an enormous crowd. Everyone around me is screaming, `He is crazy. He is mad. He is crazy. He is mad,' over and over again. Walking quickly to discover who they are referring to, I see a man standing alone at the head of the crowd. Recognizing him as the man I love, I run to him and cry, `I love you, I love you.'   
   
-*"Although the crowd surges upon him and beats him, I continue to express my love. Suddenly he places his hands upon my neck. I feel his thumbs press into my throat and feel as though I am going to die. Then the pressure is released. The man raises his hands, which become two white wings, which caress me with an indescribable love as I awake."*   
+> *"Although the crowd surges upon him and beats him, I continue to express my love. Suddenly he places his hands upon my neck. I feel his thumbs press into my throat and feel as though I am going to die. Then the pressure is released. The man raises his hands, which become two white wings, which caress me with an indescribable love as I awake."*   
   
 That night this lady fulfilled the 40th, 48th, 51st, 52nd and 53rd [chapters] of Isaiah. I say to her without any doubt in my heart, that she is very near salvation. Everything in her wonderful vision was made visible. She was the man and the crowd. She sent herself through hell because she loves herself, just as you and I do. In Blake's lovely song, *"A Little Boy Lost"*, he said:   
   
-*"Nought loves another as itself,  
+> *"Nought loves another as itself,  
 Nor venerates another so.  
 Nor is it possible to thought   
 A Greater than itself to know."*   

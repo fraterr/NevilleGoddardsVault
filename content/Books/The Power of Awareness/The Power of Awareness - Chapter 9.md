@@ -1,6 +1,6 @@
-*"And all mine are thine, and thine are mine."* ([John 17:10](https://www.biblegateway.com/passage/?search=John+17:10&version=KJV))
+> *"And all mine are thine, and thine are mine."* ([John 17:10](https://www.biblegateway.com/passage/?search=John+17:10&version=KJV))
 
-*"Thrust in thy sickle, and reap; for the time is come for thee to reap; for the harvest of the earth is ripe."* (Rev. 14:15)
+> *"Thrust in thy sickle, and reap; for the time is come for thee to reap; for the harvest of the earth is ripe."* (Rev. 14:15)
 
 All is yours. Do not go seeking for that which you are.
 
@@ -22,13 +22,13 @@ Man believes the future to be the natural development of the past. But the law o
 
 In my Father’s house are many mansions; If it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again and receive you unto myself: that where I am, there ye may be also. And now I have told you
 
-*"before it came to pass, that, when it is come to pass, ye might believe."* ([John 14:2, 3, 29](https://www.biblegateway.com/passage/?search=John+14:2,+3,+29&version=KJV))
+> *"before it came to pass, that, when it is come to pass, ye might believe."* ([John 14:2, 3, 29](https://www.biblegateway.com/passage/?search=John+14:2,+3,+29&version=KJV))
 
 The *“I”* in this quotation is your imagination which goes into the future, into one of the many mansions. Mansion is the state desired . . . telling of an event before it occurs physically is simply feeling yourself into the state desired until it has the tone of reality.
 
 You go and prepare a place for yourself by imagining yourself into the feeling of your wish fulfilled. Then, you speed from this state of the wish fulfilled — where you have not been physically — back to where you were physically a moment ago. Then, with an irresistible forward movement, you move forward across a series of events to the physical realization of your wish, that where you have been in imagination, there you will be in the flesh also.
 
-*"Unto the place from whence the rivers come, thither they return again."* (Eccles. 1:7)
+> *"Unto the place from whence the rivers come, thither they return again."* (Eccles. 1:7)
 
 
 

@@ -1,4 +1,4 @@
-*"Take heed therefore how ye hear; for whosoever hath, to him shall be given; and whosoever hath not, from him shall be taken even that which he seemeth to have."* ([Luke 8](https://www.biblegateway.com/passage/?search=Luke+8&version=KJV): 18)
+> *"Take heed therefore how ye hear; for whosoever hath, to him shall be given; and whosoever hath not, from him shall be taken even that which he seemeth to have."* ([Luke 8](https://www.biblegateway.com/passage/?search=Luke+8&version=KJV): 18)
 
 The Bible which is the greatest psychological book ever written, warns man to be aware of what he hears; then follows this warning with the statement, *“To him that hath it shall be given and to him that hath not it shall be taken away.”* Though many look upon this statement as one of the most cruel and unjust of the sayings attributed to Jesus, still remains a just and merciful law based upon life’s changeless principle of expression.
 
@@ -10,7 +10,7 @@ All things gravitate to that consciousness with which they are in tune. Likewise
 
 Once defined, your conscious claim established, continue in this confidence until the reward is received. As surely as the day follows the night any attribute, consciously claimed, will manifest itself. Thus, that which to the sleeping orthodox world is acruel and unjust law becomes to the enlightened one of the most merciful and just statements of truth.
 
-*“I am come not to destroy but to fulfill.”* Nothing is actually destroyed. Any seeming destruction is a result of a change in consciousness. Consciousness ever fills full the state in which it dwells. The state from which consciousness is detached seems to those not familiar with this law to be destructive. However, this is only preparatory to a new state of consciousness.
+> *“I am come not to destroy but to fulfill.”* Nothing is actually destroyed. Any seeming destruction is a result of a change in consciousness. Consciousness ever fills full the state in which it dwells. The state from which consciousness is detached seems to those not familiar with this law to be destructive. However, this is only preparatory to a new state of consciousness.
 
 Claim yourself to be that which you want filled full.*“Nothing is destroyed. All is fulfilled.”* *“To him that hath it shall be given.”*
 

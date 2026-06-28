@@ -1,4 +1,4 @@
-*"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
+> *"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
 
 The purpose of the first portion of this book is to show, through actual true stories, how [imagining creates](/lectures/imagining-creates) reality.
 
@@ -10,7 +10,7 @@ Nothing appears or continues in being by a power of its own.
 
 Events happen because comparatively stable imaginal activities created them, and they continue in being only as long as they receive such support.
 
-*"The secret of imagining"*, writes Douglas Fawcett, *"is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."*
+> *"The secret of imagining"*, writes Douglas Fawcett, *"is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."*
 
 When man solves the mystery of imagining, he will have discovered [the secret of causation](/lectures/the-secret-of-causation), and that is: Imagining creates reality.
 

@@ -22,7 +22,7 @@ A friend of mine shared this vision with me. He said: "I am driving my car, when
 
 "I am not alone, there are others but they seem to be mindless water carriers. Asking a question of one, he pointed to a large boulder made of the same substance as my body. I climbed this rock and saw you, Neville, wearing a similar body. At your side was a mindless, brainless automaton. 
 
-*"We began to talk, and I opened my wallet to show you a card which implied I was a writer. The man at your side questioned you and you answered him very superficially, conveying to me with a look that the man was incapable of understanding anything. Then you and I were alone, and you said: 'No one can deny you the next four reunions with God.' I did not understand the words, but your manner implied they were very important and a joy permeated my being as I awoke."* 
+> *"We began to talk, and I opened my wallet to show you a card which implied I was a writer. The man at your side questioned you and you answered him very superficially, conveying to me with a look that the man was incapable of understanding anything. Then you and I were alone, and you said: 'No one can deny you the next four reunions with God.' I did not understand the words, but your manner implied they were very important and a joy permeated my being as I awoke."* 
 
 These fleshly garments look like the garments he saw, when seen from a certain level. Paul tells us that the first man (Esau, Cain, etc.) is the man of dust, but the second man (Christ) is the man of heaven. (I Corinthians 15) 
 

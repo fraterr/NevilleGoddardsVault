@@ -52,7 +52,7 @@ Asleep to your true identity, you are dreaming the horrors of life for a divine 
 
 Do not be concerned with the horrors of the world; simply remember that all is ordered and correct. Instead, fall in love with the I AM within you and change your world. God made it as it is now and he can change it, for your husband is a creator. Everything in your world can be traced back to your own wonderful human imagination, who is God. 
 
-*"Man is all imagination, and God is Man. He exists in us and we in him. The eternal body of Man is the imagination and that is God Himself."* (William Blake). Fall in love with the state you now desire to occupy and to the degree that you are self-persuaded, you will enter it. 
+> *"Man is all imagination, and God is Man. He exists in us and we in him. The eternal body of Man is the imagination and that is God Himself."* (William Blake). Fall in love with the state you now desire to occupy and to the degree that you are self-persuaded, you will enter it. 
 
 Don't believe in anyone outside of your own wonderful human imagination! Every coin is inscribed with the statement: *"In God we trust"* yet I wonder how many trust in God - and not the coin! If you really believe in God, you can be penniless, yet walk in the Assumption of wealth and be wealthy. Learn to trust your own wonderful human imagination, for he is the only God. Do that and you will never go wrong! 
 

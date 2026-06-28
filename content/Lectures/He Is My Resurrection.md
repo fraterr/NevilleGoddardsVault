@@ -22,7 +22,7 @@ Your return begins through the impregnation by one who has awakened. He does not
   
 Now let me tell you of another vision. This lady said: "While standing at attention in a military drill, Marta and I were called to the front where you, Neville, dressed in a long black robe, presented us each with a black umbrella, which was opened and raised over our heads. Then you spoke profound words of eternal wisdom.  
   
-*"Suddenly the scene changed and Marta and I, still with the umbrellas over our heads, are standing in a room, when I said to Marta: 'Did you understand what he said?' and she answered: 'No.' Dorothy Dix then entered the room and said: 'I will explain it to you.' I was so surprised with that remark that I awoke."*  
+> *"Suddenly the scene changed and Marta and I, still with the umbrellas over our heads, are standing in a room, when I said to Marta: 'Did you understand what he said?' and she answered: 'No.' Dorothy Dix then entered the room and said: 'I will explain it to you.' I was so surprised with that remark that I awoke."*  
   
 The symbolism in this vision was perfect: a black robe and black umbrellas. In symbolism, black is the incomprehensible divine silence, eternity. In the Song of Solomon, the bride speaks, saying: *"I am black."* The word translated *"black"* should be *"the blackest of black."* In Hebrew there are no superlatives or comparative. To emphasize the comparative, a word must be repeated, as *"black-black."* To make it superlative, the word must be repeated three times, such as *"holy, holy, holy,"* as there is no way to say *"holiest"* in Hebrew. The world *"black"* spoken by the bride should be repeated to the nth degree. *"I am black, but comely O daughters of Jerusalem, black like the curtains of Solomon."* Here, black is the incomprehensible mystery, and in her dream she did not understand it. Then one appears who she least expected to be able to interpret it, but one who was present, by invitation, at the last supper. Don't discount that.  
   
@@ -49,10 +49,10 @@ This lad was educated out of his belief when he should have continued in it, as 
 Now I know that Man is all Imagination, and God is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination and that is Jesus, the divine body of which we are His members. I know this because if He makes all things and I imagine, remain faithful to my imaginal state and it happens. I have found him, not as someone divorced from me, but as my own wonderful human imagination.  
   
 So that little planchette, moved by this lad's own unconscious motion, revealed his true identity; yet the so-called wise men called it neurotic sin. I know exactly what he went through, for I was raised in the low church of the Episcopal world and my mother used to tell me that the priests were the wisest men in the world. I believed her until I became a man and the visions began to appear within me. Then I realized how very stupid they really are. Throughout the centuries they have fooled the people into believing they are so wise because they can speak a little phrase in Latin. But when you ask them to explain the verse I spoke of tonight: *"I came out from the Father and came into the world, again I am leaving the world and going to the Father"* they give you only the literal meaning and say that a glorious being came out from the Father.   
-*"Where?"* you ask, and they reply: *"Don't ask questions, my son."*   
-*"He came out in what way?"*  
-*"Out of our holy blessed mother."*  
-*"In what manner did he do it?"*  
+> *"Where?"* you ask, and they reply: *"Don't ask questions, my son."*   
+> *"He came out in what way?"*  
+> *"Out of our holy blessed mother."*  
+> *"In what manner did he do it?"*  
 Again, *"Don't ask questions, my son. This is [the great secret](/lectures/the-great-secret) of the church."*  
   
 At the end of your conversation you will discover you have been talking to one who doesn't know the answers, so he gives you all kinds of confused thoughts to bewilder you. During my thirty years on the platform I have talked with them time and time again. They stand open-mouthed and bewildered as I speak from experience, while they speak from theory. They call it blasphemy when I tell them I have found the Son of God who called me Father, yet I see them as blind leaders of the blind, as foretold in scripture.  

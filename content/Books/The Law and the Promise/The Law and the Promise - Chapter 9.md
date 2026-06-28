@@ -1,4 +1,4 @@
-*"If the Spectator would Enter into these Images in his Imagination, approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
+> *"If the Spectator would Enter into these Images in his Imagination, approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
 (William Blake)
 
 Imagination it seems will do nothing that we wish until we enter into the image of the wish fulfilled.
@@ -36,11 +36,11 @@ This next story proves that by shifting the focus of her imagining, Mrs. M.F. en
 
 Why England necessarily, I cannot tell, except that I had seen a current motion picture featuring the area around Buckingham Palace and had promptly fallen in love with the scene. All I did in my imagination was to stand quietly outside the great iron gates and feel the cold metal bars gripped tightly in my hands as I viewed the Palace.
 
-*"For many, many nights I felt an intense joy at 'being' there and fell asleep in this happy state. Soon after, my husband met a stranger at a party who, within one month, was instrumental in securing a teaching fellowship for him at a great university. Imagine my excitement when I heard the university was in England! Tied to a narrow sphere? Within another month, we were crossing the Atlantic and our supposedly insurmountable difficulties melted as though they never existed. We had our year in Europe, one of the happiest years of my life."* ...M.F.
+> *"For many, many nights I felt an intense joy at 'being' there and fell asleep in this happy state. Soon after, my husband met a stranger at a party who, within one month, was instrumental in securing a teaching fellowship for him at a great university. Imagine my excitement when I heard the university was in England! Tied to a narrow sphere? Within another month, we were crossing the Atlantic and our supposedly insurmountable difficulties melted as though they never existed. We had our year in Europe, one of the happiest years of my life."* ...M.F.
 
 What the world looks like depends entirely on where man is when he makes his observations. And man, being 'All Imagination,' must be where he is in imagination.
 
-*"The stone which the builders rejected has become the chief corner-stone."* ([Psalm 118:22](https://www.biblegateway.com/passage/?search=Psalm+118:22&version=KJV))
+> *"The stone which the builders rejected has become the chief corner-stone."* ([Psalm 118:22](https://www.biblegateway.com/passage/?search=Psalm+118:22&version=KJV))
 
 That stone is Imagining. I acquaint you with this secret and leave you to Act or Re-act.
 
@@ -53,9 +53,9 @@ Cannot for less be told. — George Herbert (The Elixir)
 
 "Within two weeks, I received a registered letter from Lloyd's of London, telling me I had inherited seven thousand dollars from a woman I had never met! I had known her brother slightly almost forty years before and had performed a small service fifteen years ago for the lady when this brother had died in our country, and she had written to me asking for particulars regarding his death which I was able to provide. I had not heard from her since that time.
 
-*"Now, here was the check for seven thousand dollars — more than enough to cover the cost of my house restoration, plus many, many other things I desired."* ...E.C.A.
+> *"Now, here was the check for seven thousand dollars — more than enough to cover the cost of my house restoration, plus many, many other things I desired."* ...E.C.A.
 
-*"He who does not imagine in stronger and better lineaments, and in stronger and better light than his perishing and mortal eye can see, does not imagine at all."* — Blake
+> *"He who does not imagine in stronger and better lineaments, and in stronger and better light than his perishing and mortal eye can see, does not imagine at all."* — Blake
 
 Unless the individual imagines himself, someone else, or somewhere else, the present conditions and circumstances of his life will continue in being and his problems recur, for all events renew themselves from his constant images. By him they were made; by him they continue in being; and by him they can cease to be.
 

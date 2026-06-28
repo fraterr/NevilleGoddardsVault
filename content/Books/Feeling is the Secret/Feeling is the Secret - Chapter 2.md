@@ -1,7 +1,7 @@
 SLEEP, the life that occupies one-third of our stay on earth, is the natural door into the subconscious.
 So it is with sleep that we are now concerned. The conscious two-thirds of our life on earth is measured by the degree of attention we give sleep. Our understanding of and delight in what sleep has to bestow will cause us, night after night, to set out for it as though we were keeping an appointment with a lover.
 
-*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
+> *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
 
 It is in sleep and in Prayer, a State akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
@@ -9,7 +9,7 @@ The subconscious – unlike the woman of the world who marries her husband to ch
 
 The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost feeling that they may reveal you to yourself.
 
-*"As in heaven, so on earth"* ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
+> *"As in heaven, so on earth"* ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
 
 Whatever you have in consciousness as you go to sleep is the measure of your expression in the waking two-thirds of your life on earth.
 
@@ -27,7 +27,7 @@ It follows, therefore, that he should always assume the feeling of accomplishmen
 
 She sees you exactly as you feel yourself to be. If, as you prepare for sleep, you assume and maintain the consciousness of success by feeling *"I am successful"*, you must be successful. Lie flat on your back with your head on a level with your body. Feel as you would were you in possession of your wish and quietly relax into unconsciousness.
 
-*"He that keepeth Israel shall neither slumber nor sleep"* ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalm+121:4&version=KJV)). Nevertheless *"He giveth his beloved sleep"* ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalm+127:2&version=KJV)).
+> *"He that keepeth Israel shall neither slumber nor sleep"* ([Psalm 121:4](https://www.biblegateway.com/passage/?search=Psalm+121:4&version=KJV)). Nevertheless *"He giveth his beloved sleep"* ([Psalm 127:2](https://www.biblegateway.com/passage/?search=Psalm+127:2&version=KJV)).
 
 The subconscious never sleeps. Sleep is the door through which the conscious, waking mind passes to be creatively joined to the subconscious.
 
@@ -47,11 +47,11 @@ Your subconscious, whose natural state is sleep, sees you as you believe yoursel
 
 As you feel so do you impress her; and she, the perfect lover, gives form to these impressions and out-pictures them as the children of her beloved.
 
-*"Thou art all fair, my love; there is no spot in thee"* ([Song of Solomon 4:7](https://www.biblegateway.com/passage/?search=Song+of+Solomon+4:7&version=KJV)) is the attitude of mind to adopt before dropping off to sleep.
+> *"Thou art all fair, my love; there is no spot in thee"* ([Song of Solomon 4:7](https://www.biblegateway.com/passage/?search=Song+of+Solomon+4:7&version=KJV)) is the attitude of mind to adopt before dropping off to sleep.
 
 Disregard appearances and feel that things are as you wish them to be, for *"He calleth things that are not seen as though they were, and the unseen becomes seen"* (Approx., [Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)). To assume the feeling of satisfaction is to call conditions into being which will mirror satisfaction.
 
-*"Signs follow, they do not precede"*.
+> *"Signs follow, they do not precede"*.
 
 Proof that you are will follow the consciousness that you are; it will not precede it.
 
@@ -77,7 +77,7 @@ Every night, as you drop off to sleep, feel satisfied and spotless, for your sub
 
 The waking two-thirds of your life on earth ever corroborates or bears witness to your subconscious impressions. The actions and events of the day are effects; they are not causes. Free will is only freedom of choice.
 
-*"Choose ye this day whom ye shall serve"* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV)) is your freedom to choose the kind of mood you assume; but the expression of the mood is the secret of the subconscious.
+> *"Choose ye this day whom ye shall serve"* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV)) is your freedom to choose the kind of mood you assume; but the expression of the mood is the secret of the subconscious.
 
 The subconscious receives impressions only through the feelings of man and, in a way known only to itself, gives these impressions form and expression.
 

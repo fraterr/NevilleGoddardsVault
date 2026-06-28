@@ -1,8 +1,8 @@
-*"...what is seen was made out of things which do not appear."* (Heb. 11:3)
+> *"...what is seen was made out of things which do not appear."* (Heb. 11:3)
 
-*"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
+> *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
 
-*"The secret of imagining is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."* — Douglas Fawcett
+> *"The secret of imagining is the greatest of all problems to the solution of which the mystic aspires. Supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery."* — Douglas Fawcett
 
 To refuse to recognize the creative power of man's invisible, imaginal activity, is too great to be argued with. Man, through his imaginal activity, literally *"calls into existence the things that do not exist"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
@@ -18,7 +18,7 @@ This grandmother is daily treading the wine press for her little grand-daughter.
 
 "Kim hasn't even seen a picture of me in this past year. At the most, I could only be a name to her. Now, some time each day, her family tells me, she starts talking about me — to no one in particular — just talking. Sometimes it goes on for an hour; or she goes to the phone and pretends to call. In her monologue are such bits as: 'My Dee Dee loves me. My Dee Dee always comes to see me every day'.
 
-*"Even though I know what I have been doing in my imagination, it has caused me, too, 'to wonder much'."* ...U.K.
+> *"Even though I know what I have been doing in my imagination, it has caused me, too, 'to wonder much'."* ...U.K.
 
 All imaginative men and women are forever casting forth enchantments, and all passive men and women, who have no powerful imaginative lives, are continually passing under the spell of their power.
 
@@ -28,11 +28,11 @@ There is no form in nature, which is not produced by, and sustained by some imag
 
 "To tell all the problems involved would take pages, for my husband has never had such a difficult child nor such a trying parent situation. The lad was too young to be expelled, yet the teachers refused to have him in their classes. To make matters worse, the mother and grandmother literally 'camped' on the school grounds making trouble for everyone.
 
-*"I wanted to help the boy, but, I also, wanted to help my husband. So, nightly, I constructed two scenes in my imagination: one, I 'saw' a perfectly normal, happy child; two, I 'heard' my husband say, 'I can't believe it, dear, but do you know "* R." is acting like a normal boy, now, and it is heaven not having those two women around'.
+> *"I wanted to help the boy, but, I also, wanted to help my husband. So, nightly, I constructed two scenes in my imagination: one, I 'saw' a perfectly normal, happy child; two, I 'heard' my husband say, 'I can't believe it, dear, but do you know "* R." is acting like a normal boy, now, and it is heaven not having those two women around'.
 
 "After two months of persisting in my imaginal play, night after night, my husband came home and said, 'It's like heaven around school' — not exactly the same words but close enough for me. The grandmother had become involved in something that took her out of town and the mother had to accompany her.
 
-*"At the same time a new teacher had welcomed the challenge of 'R.' and he was progressing wonderfully well into all I imagined for him."* ...G.B.
+> *"At the same time a new teacher had welcomed the challenge of 'R.' and he was progressing wonderfully well into all I imagined for him."* ...G.B.
 
 It is useless to hold standards that we do not apply. Unlike Portia, who said: *"I can easier teach twenty what were good to be done, than be one of the twenty to follow mine own teaching."* (William Shakespeare, *"The Merchant of Venice"*)
 

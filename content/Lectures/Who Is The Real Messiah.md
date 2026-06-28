@@ -6,11 +6,11 @@ You and I were taught as Christians that Jesus Christ differs – is something e
 
 Now, in the 40th Psalm we are told:
 
-*"I delight to do Thy will, O God.Thy law is within my heart."* [Psalm 40:8]
+> *"I delight to do Thy will, O God.Thy law is within my heart."* [Psalm 40:8]
 
 This is the Psalm of David. It’s the 40th Psalm.
 
-*"I delight to do Thy will, O God."*
+> *"I delight to do Thy will, O God."*
 
 In the 13th Chapter of the Book of Acts, by the same author that gave us the Book of Luke, we are told – and this is the Lord speaking: *"I have found in David, the son of Jesse, a man after my own heart who will do all my will,"* [Acts 13:22], -- confirming the 40th Psalm, which is the Psalm of David: *"I delight to do Thy will."*
 
@@ -20,7 +20,7 @@ You came down and became man; but before you came down and became man, you had p
 
 So he inquired. But who inquired? The king. But the king was insane; his name was Saul. He couldn’t even remember that he met the lad and met the father of the lad prior. Here in the 16th Chapter, he has asked the father of the lad to let the lad serve him. In the 17th Chapter he is inquiring: *"Whose son are you, young man?"*
 
-*"Inquire whose son – whose lad – the stripling is."*
+> *"Inquire whose son – whose lad – the stripling is."*
 
 No one knows, because Saul is an insane man, as we are! You are not confined in some institution; but if you have lost your memory as to Who-You-Are, you are insane. You are suffering from amnesia. And in this case, although we are not violent, we are suffering from total amnesia, because we do not know our only *"son."* That only son is David, named in the New Testament as Jesus Christ, which is Jehovah’s Messiah. And David is the Messiah. *"Rise and anoint him, for this is he, and then the spirit of the Lord came mightily upon David from that moment forward,"* [I Samuel 16:12, 13]. He never lost a battle, because the Spirit of the Lord was with him. But to find David, what else is worthwhile in this world?
 
@@ -36,17 +36,17 @@ Now we are told, *"Be ye perfect, as your Father in Heaven is perfect,"* [Matthe
 
 So every one will awake. I can’t conceive of failure. I can’t conceive of one being in this world failing, because God the Father is in Him! Even if he dies as a little child, he once breathed. That breath was God. *"Nothing is impossible to God,"* [Luke 1:37]. The most horrible beast that walked the face of this earth in the form of man cannot fail to awake! I do not care what he is. Every being in this world, male and female, will awaken; and when they awaken, it’s because the Son appears.
 
-*"No one knows who the Son is except the Father, and no one knows who the Father is except the Son and any one to whom the Son chooses to reveal it."* [Matthew 11:27 and [Luke 10:2](https://www.biblegateway.com/passage/?search=Luke+10:2&version=KJV)2]
+> *"No one knows who the Son is except the Father, and no one knows who the Father is except the Son and any one to whom the Son chooses to reveal it."* [Matthew 11:27 and [Luke 10:2](https://www.biblegateway.com/passage/?search=Luke+10:2&version=KJV)2]
 
 So in the fullness of time, He sends His Son into our hearts crying *"Father."* And then, in that moment in time, the Son appears. He was always within us. The whole vast thing takes place within the Immortal Head of man. So when you depart, having found the Son, you will be part of the watchers, watching every one in the world; and they are all your brothers. And you will know that:
 
-                        *"What seems to be, Is, to those to whom It seems to be, and is productive of the most dreadful consequences to those to whom it seems to be, even of torments, despair, eternal death; but the Divine Mercy steps in and redeems Man in the one body called Jesus."*
+>                         *"What seems to be, Is, to those to whom It seems to be, and is productive of the most dreadful consequences to those to whom it seems to be, even of torments, despair, eternal death; but the Divine Mercy steps in and redeems Man in the one body called Jesus."*
 
                         [William Blake, from Jerusalem]
 
 And *"Jesus"* is *"Jehovah."* *"Jesus"* is the word that means *"Jehovah."* *"Christ"* is *"Messiah,"* the Son. So *"Jesus Christ"* is simply *"Jehovah’s Messiah."* That Messiah is David. Jesus is the Lord God Jehovah. His Son – if he is a father, he has a son, and the Son is David. There is no other Son.
 
-*"So David in the spirit calls Him “My Father"* [Matthew 22:43] – my rock – *"the Rock of my Salvation"* [Psalm 89:26] – he calls Him *"my God."*
+> *"So David in the spirit calls Him “My Father"* [Matthew 22:43] – my rock – *"the Rock of my Salvation"* [Psalm 89:26] – he calls Him *"my God."*
 
 So Jesus is the man that is *"born from above,"* and the man *"born from above"* is Jehovah. He is God the Father; and if he is a father, there must be a son. *"Where is my son?"* Then the Son comes, and he’s David; and David brings back your memory, and you are set free. For: *"If the Son sets you free, you are free indeed."* This is [the great mystery](/lectures/the-great-mystery) of the Christian faith.
 
@@ -64,15 +64,15 @@ I have been called, and I have been sent. I am an Apostle. I stood in the presen
 
 So here, the day is coming – and I do hope it’s soon for every one here – when you will find the Son; and when you find him, he is David -- David of Biblical fame, the David mentioned in the Book of Samuel and the Book of Chronicles, the David of the Psalms; that is the David of whom I speak – the one who could say:
 
-*"I will tell of the decree of the Lord: He said unto me, ‘Thou are my son, today I have begotten thee."* [Psalm 2:7]
+> *"I will tell of the decree of the Lord: He said unto me, ‘Thou are my son, today I have begotten thee."* [Psalm 2:7]
 
 This is the David of whom I speak, and he is the Son of God; and Jesus Christ – Jesus is Jehovah, and *"Christ"* means *"Messiah."* That is the *"Anointed One."* And who was anointed? Was it not David?
 
-*"Rise and anoint him. That is he. And from that moment forward, the Spirit of the Lord descended upon him and possessed him;"* and he lost not a battle, for the Spirit of God went with him.
+> *"Rise and anoint him. That is he. And from that moment forward, the Spirit of the Lord descended upon him and possessed him;"* and he lost not a battle, for the Spirit of God went with him.
 
 So this is our destiny. You and I are destined to awaken as the Being that we really are. Now the word called *"perfect"* is *"telos."* It simply means the *"end,"* the *"climax;"* it always comes at the end. And you will be saying these words, *"I have finished the work Thou gavest me to do. Now return unto me the glory that was mine, the glory that I had with Thee before that the world was,"* [John 17:4, 5]. That’s what you will say! You are only asking for the return of what you gave up to come down into the world of *"death."*
 
-*"I have finished the work,"* – that is what the word *"telos"* means: to finish it, to accomplish it; *"and having finished it, I am only asking for the return of what was mine before that the world was."*
+> *"I have finished the work,"* – that is what the word *"telos"* means: to finish it, to accomplish it; *"and having finished it, I am only asking for the return of what was mine before that the world was."*
 
 And *"glory"* means God Himself. *"Glorify Thou me with Thine own Self, with that glory which I had with Thee before that the world was."*
 

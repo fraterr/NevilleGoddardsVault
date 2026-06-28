@@ -1,4 +1,4 @@
-*"[All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your imagination of which this world of mortality is but a shadow."*   
+> *"[All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your imagination of which this world of mortality is but a shadow."*   
 (William Blake)  
   
 The world of imagination is infinite and eternal, whereas the world of generation is finite and temporary. In that eternal world, the permanent realities of everything exist. Their reflections are here, cast in a glass called nature. 
@@ -14,7 +14,7 @@ The permanent realities of an extinct bird, animal, or fish, live! They can be r
 This world of generation I call the world of Caesar should not be neglected, as it is an important aspect of reality, even though it is only a shadow. Scripture urges us to revise, to forgive, and change our thoughts, thereby changing the conditions of our life. This is how it is done.  
   
 A friend recently wrote saying: “Three weeks ago a friend called, saying he was afraid he was going to be fired. I instantly revised his call. Hearing his voice bubbling with excitement, he told me how he had been praised for his work and I felt the thrill of rejoicing with him. Today he came to my office and said the very words I heard in my imagination.   
-*"This morning, while dressing I was thinking about an ad I was working on which carried the name of a very prominent man in San Francisco. As I ran the ad through my mind I said to myself, I want to put the word ‘Mister’ before his name. I did it and it felt right. I made a mental note to do it when I arrived at the office, and promptly dropped the thought. That afternoon the man called, asking that I insert ‘Mister’ before his name - not in the ad, but in a radio commercial where his name was used."*   
+> *"This morning, while dressing I was thinking about an ad I was working on which carried the name of a very prominent man in San Francisco. As I ran the ad through my mind I said to myself, I want to put the word ‘Mister’ before his name. I did it and it felt right. I made a mental note to do it when I arrived at the office, and promptly dropped the thought. That afternoon the man called, asking that I insert ‘Mister’ before his name - not in the ad, but in a radio commercial where his name was used."*   
   
 Then my friend added this thought: “I stand in awe at the operation of this law. You asked about the little pig I saw. He was small, but fat, and the way I am stuffing him today, in no time at all he will be so large he will fill this room.  
   
@@ -24,7 +24,7 @@ Now a lady wrote, saying: *"I found myself looking at an enormous building at th
   
 “Three nights later I found myself in a very large building containing a theater, where you were the one actor who was playing every part. As you assumed the role of the blind man, I realized there was no one to lead you, so I ran to help. As we walked, we came upon a young boy sound asleep. Then you said: ‘I told him to meditate and he has fallen asleep again.’   
   
-*"The scene changed, and I am viewing paper decorations hanging above a door. I reached up to pull them down, when an enormous wind caught me and I felt as though I was borne in the arms of a very strong man and awoke saying, ‘I love thee, O Lord.’"*   
+> *"The scene changed, and I am viewing paper decorations hanging above a door. I reached up to pull them down, when an enormous wind caught me and I felt as though I was borne in the arms of a very strong man and awoke saying, ‘I love thee, O Lord.’"*   
   
 This marvelous series of Dreams revealed much. This lady admitted crossing the water while walking on a solid foundation. Now the Bible is a parable from beginning to end, and water is the symbol of its psychological truth. The literal interpretation of a parable is solid as a rock. When the meaning behind the parable is discovered, the stone is rolled away and the water found. However if a little solid reality in this world is desired while playing with this psychological truth, it becomes stepping-stones below the water. Loving what is heard is not enough. One must be willing to go all out and [walk on the water](/lectures/walk-on-the-water). Instead, feeling she must be practical as she was living in a world of reality where rent must be paid, food bought, and clothes purchased, she is unable to walk by faith) at the present time.  
   
@@ -39,7 +39,7 @@ In Barbados we have a saying: *"I have a hind-claw,"* meaning there is some mone
   
 Now, I want to share an experience of a lady who wrote, saying: “About a year ago I was deeply concerned for my mother. While lying on my bed, I began to imagine her face radiantly happy, and hear her tell me she had never known such happiness before. As I listened, I heard my name whispered softly three times.   
   
-*"Startled, I raised myself off the pillow to see you standing in mid-air. Dressed in a gray suit, you smiled, raised your arms, and removed the eyes from your head. Then you came over and calling me brother, you pressed them into my eyes. Bending your head, I watched it grow transparent and enormous in size. Then I saw that every living thing in the universe was there. You straightened up, and as you did your head returned to its normal size. Again, raising your right hand, you took off the top of your head and handed it to me, where I saw the greenest of green grass growing there, and you vanished."*  
+> *"Startled, I raised myself off the pillow to see you standing in mid-air. Dressed in a gray suit, you smiled, raised your arms, and removed the eyes from your head. Then you came over and calling me brother, you pressed them into my eyes. Bending your head, I watched it grow transparent and enormous in size. Then I saw that every living thing in the universe was there. You straightened up, and as you did your head returned to its normal size. Again, raising your right hand, you took off the top of your head and handed it to me, where I saw the greenest of green grass growing there, and you vanished."*  
   
 Yes, I called this lady brother advisedly, for regardless of the sex worn here, we are immortal brothers, all of us. So I say: “Go unto my brothers and say to them, ‘I have ascended unto my God and your God, unto my Father and your Father.   
   

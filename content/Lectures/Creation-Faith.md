@@ -1,6 +1,6 @@
 The mystery of creation is to be understood in terms of faith, so what is faith? It is the assurance of things hoped for, the conviction of things not seen with the mortal eye. Through faith we understand that the world was created by the word of God, so that what is seen was made out of things which do not appear.   
   
-*"Many suppose that before creation, all was solitude and chaos. That is the most pernicious idea that can enter the mind of man, for it robs the Bible of all sublimity and the nature of the man who entertains that idea a little grubbing worm outside of himself. Eternity exists and all things in eternity, independent of creation which was an act of mercy."* (William Blake)  
+> *"Many suppose that before creation, all was solitude and chaos. That is the most pernicious idea that can enter the mind of man, for it robs the Bible of all sublimity and the nature of the man who entertains that idea a little grubbing worm outside of himself. Eternity exists and all things in eternity, independent of creation which was an act of mercy."* (William Blake)  
   
 [All things exist](/lectures/all-things-exist), and the mystery of their creation must be understood in terms of faith. But faith does not give reality to that which is unseen. Faith is loyalty to the unseen reality! Only in this sense can the meaning of faith be understood.   
   

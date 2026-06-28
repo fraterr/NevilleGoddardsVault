@@ -22,7 +22,7 @@ As this designer, by her controlled imagination, started the subtle change in he
 
 By the intensity of her imagination and feeling, the designer cast a kind of enchantment on her producer’s mind and caused him to think that his generous praise originated with him. Often our most elaborate and original thoughts are determined by another.
 
-*"We should never be certain that it was not some woman treading in the wine-press who began that subtle change in men’s mind, or that the passion did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."*
+> *"We should never be certain that it was not some woman treading in the wine-press who began that subtle change in men’s mind, or that the passion did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."*
 (William Butler Yeats)
 
 

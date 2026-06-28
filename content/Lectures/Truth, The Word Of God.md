@@ -10,7 +10,7 @@ A friend recently shared these experiences with me saying, "I am in the computer
 
 "One day an old computer which had been stored in our warehouse for sometime, was sold. No one had checked to make sure it was operating properly, so on the day of the delivery I imagined everything was perfect. But as I checked it out, I discovered that two vital parts were missing and could not be found.
 
-*"That afternoon the salesman came in, picked up a little package not more than ten feet from the computer and said, 'Here are the parts.' And he was right! Inside this little brown package were the missing parts that seemingly were not there before."* Here is a man who has been baptized with water by psychologically applying the truth!
+> *"That afternoon the salesman came in, picked up a little package not more than ten feet from the computer and said, 'Here are the parts.' And he was right! Inside this little brown package were the missing parts that seemingly were not there before."* Here is a man who has been baptized with water by psychologically applying the truth!
 
 Truth first appears as a stone. That is when everything is done literally. The head of a bull is cut off, and sacrifices are made to a God on the outside. Water comes from the stone when the literal facts take on psychological meaning. Then the water turns into the wine of spiritual truth, through experience.
 
@@ -40,7 +40,7 @@ When you are sent, you will carry the message of the one who sent you. You will 
 
 In the meantime, as you test yourself, you are being baptized with the water of repentance. Always creating on this level, when you change your attitude and allow it to become fixed, your outer world will reflect your change. Then one day you will be baptized with the Holy Spirit.
 
-*"Among you stands one who you do not know. I, myself did not know him,"* said John. *"But I saw the Holy Spirit descend as a dove and remain on him. He who sent me said to me, 'He on whom you see the Spirit descend and remain, this is he who baptizes with the Holy Spirit."*'
+> *"Among you stands one who you do not know. I, myself did not know him,"* said John. *"But I saw the Holy Spirit descend as a dove and remain on him. He who sent me said to me, 'He on whom you see the Spirit descend and remain, this is he who baptizes with the Holy Spirit."*'
 
 The word *"with"* used here, is the preposition *"in."* You are not sprinkled with water, but are incorporated into the Spirit of Love Himself; thereby being baptized in the Holy Spirit. At that moment you are no longer another, you are the body of Christ. He who is baptized into Christ puts on Christ and wears this body as his own.
 

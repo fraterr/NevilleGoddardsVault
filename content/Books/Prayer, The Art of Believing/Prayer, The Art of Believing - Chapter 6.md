@@ -1,4 +1,4 @@
-*“How beautiful upon the mountains are the feet of him that bringeth good tidings, that publisheth peace, that bringeth good tidings of good, that pubisheth salvation.”*
+> *“How beautiful upon the mountains are the feet of him that bringeth good tidings, that publisheth peace, that bringeth good tidings of good, that pubisheth salvation.”*
 
 A very effective way to bring good tidings to another is to call before your minds eyes the subjective image of the person you wish to help and have him affirm that which you desired him to do. Mentally hear him tell you he has done it. This awakens within him the vibratory correlate of the state affirmed, which vibration persists until its mission is accomplished. It does not matter what it is you desire to have done, or whom you select to do it. As soon as you subjectively affirm that it is done, results follow.
 

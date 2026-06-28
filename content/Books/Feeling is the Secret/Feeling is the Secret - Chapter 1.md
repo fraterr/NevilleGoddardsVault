@@ -60,7 +60,7 @@ The subconscious is the womb of creation. It receives the idea unto itself throu
 
 Although the subconscious faithfully serves man, it must not be inferred that the relation is that of a servant to a master as was anciently conceived. The ancient prophets called it the slave and servant of man. St. Paul personified it as a *"woman"* and said: *"The woman should be subject to man in everything"* ([Ephesians 5:24](https://www.biblegateway.com/passage/?search=Ephesians+5:24&version=KJV); also, 1Corinthians 14:34, [Ephesians 5:22](https://www.biblegateway.com/passage/?search=Ephesians+5:22&version=KJV), [Colossians 3:18, 1](https://www.biblegateway.com/passage/?search=Colossians+3:18,+1&version=KJV)Peter 3:1). The subconscious does serve man and faithfully gives form to his feelings. However, the subconscious has a distinct distaste for compulsion and responds to persuasion rather than to command; consequently, it resembles the beloved wife more than the servant.
 
-*"The husband is head of the wife,"* Ephesians (5:23), may not be true of man and woman in their earthly relationship, but it is true of the conscious and the subconscious, or the male and female aspects of consciousness. The mystery to which Paul referred when he wrote, *"This is a great mystery (5:32) ... He that loveth his wife loveth himself (5:28)... And they two shall be one flesh (5:31)"*, is simply the mystery of consciousness. Consciousness is really one and undivided but for creation's sake it appears to be divided into two.
+> *"The husband is head of the wife,"* Ephesians (5:23), may not be true of man and woman in their earthly relationship, but it is true of the conscious and the subconscious, or the male and female aspects of consciousness. The mystery to which Paul referred when he wrote, *"This is a great mystery (5:32) ... He that loveth his wife loveth himself (5:28)... And they two shall be one flesh (5:31)"*, is simply the mystery of consciousness. Consciousness is really one and undivided but for creation's sake it appears to be divided into two.
 
 The conscious (objective) or male aspect truly is the head and dominates the subconscious (subjective) or female aspect.
 
@@ -72,9 +72,9 @@ Your desires are not subconsciously accepted until you assume the feeling of the
 
 It is easier to ascribe your feeling to events in the world than to admit that the conditions of the world reflect your feeling. However, it is eternally true that the outside mirrors the inside.
 
-*"As within, so without"* (*"As above, so below; as below, so above; as within, so without; as without, so within"*, *"Correspondence"*, the second of The Seven Principles of Hermes Trismegistus).
+> *"As within, so without"* (*"As above, so below; as below, so above; as within, so without; as without, so within"*, *"Correspondence"*, the second of The Seven Principles of Hermes Trismegistus).
 
-*"A man can receive nothing unless it is given him from heaven"* ([John 3:27](https://www.biblegateway.com/passage/?search=John+3:27&version=KJV)) and *"The kingdom of heaven is within you"* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV)). Nothing comes from without; all things come from within – from the subconscious.
+> *"A man can receive nothing unless it is given him from heaven"* ([John 3:27](https://www.biblegateway.com/passage/?search=John+3:27&version=KJV)) and *"The kingdom of heaven is within you"* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV)). Nothing comes from without; all things come from within – from the subconscious.
 
 It is impossible for you to see other than the contents of your consciousness. Your world in its every detail is your consciousness objectified. Objective states bear witness of subconscious impressions. A change of impression results in a change of expression.
 

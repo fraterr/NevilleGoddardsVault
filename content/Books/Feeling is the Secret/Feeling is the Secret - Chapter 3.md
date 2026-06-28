@@ -1,6 +1,6 @@
 Prayer, like sleep, is also an entrance into the subconscious.
 
-*"When you pray, enter into your closet, and when you have shut your door, pray to your Father which is in secret and your Father which is in secret shall reward you openly"* ([Matthew 6:6](https://www.biblegateway.com/passage/?search=Matthew+6:6&version=KJV)).
+> *"When you pray, enter into your closet, and when you have shut your door, pray to your Father which is in secret and your Father which is in secret shall reward you openly"* ([Matthew 6:6](https://www.biblegateway.com/passage/?search=Matthew+6:6&version=KJV)).
 
 Prayer is an illusion of sleep which diminishes the impression of the outer world and renders the mind more receptive to suggestion from within. The mind in Prayer is in a state of relaxation and receptivity akin to the feeling attained just before dropping off to sleep.
 

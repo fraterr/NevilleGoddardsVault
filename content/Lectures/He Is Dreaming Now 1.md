@@ -1,8 +1,8 @@
 Tonight’s title is: *"[He is Dreaming Now](/lectures/he-is-dreaming-now)."* God’s name―His real presence―is within us, in the very midst of us, for His real presence is concentrate in His name.
 
-*"Come, let us go and look at him,"* said the brothers, and each took one of Alice’s hands and led her up to where the king was sleeping.
+> *"Come, let us go and look at him,"* said the brothers, and each took one of Alice’s hands and led her up to where the king was sleeping.
 
-*"He is dreaming now."* said Tweedle-Dee, *"and what do you think he is dreaming about?"*
+> *"He is dreaming now."* said Tweedle-Dee, *"and what do you think he is dreaming about?"*
 
 Alice said, *"Why, nobody could guess that."*
 
@@ -14,11 +14,11 @@ We think this is the real world, and then we speak of the *"dream world."* To us
 
 When we really wake, we will not be God and man. It will just be you; and you will be God, who was the Dreamer. The whole will simply awaken within you. it will not be a twin. The wall of separation will be broken down. It will only be God; and God-and-you will be the One.
 
-*"God becomes as I am, that I may be as He is."* (from *"There Is No Natural Religion"* by William Blake)
+> *"God becomes as I am, that I may be as He is."* (from *"There Is No Natural Religion"* by William Blake)
 
 When the promise was made that God and an Angel would lead Israel, this promise was given special force by Jehovah’s assurance that *"My name is in him."* That is, Jehovah Himself would lead them. Well, who is Jehovah? In Scripture we are told His name really is *"I AM."*
 
-*"Go, say to them that I AM hath sent me unto you…This is my name forever, and by this name I will be known throughout all generations."* ([Exodus 3:14-15](https://www.biblegateway.com/passage/?search=Exodus+3:14-15&version=KJV)) *"There is no other name."* ([Acts 4:2](https://www.biblegateway.com/passage/?search=Acts+4:2&version=KJV))
+> *"Go, say to them that I AM hath sent me unto you…This is my name forever, and by this name I will be known throughout all generations."* ([Exodus 3:14-15](https://www.biblegateway.com/passage/?search=Exodus+3:14-15&version=KJV)) *"There is no other name."* ([Acts 4:2](https://www.biblegateway.com/passage/?search=Acts+4:2&version=KJV))
 
 Now, here in this room―take this simple little object here. My simple apprehension of this corporeal object we call sense. It is now a *"sense"* object. It is *"real,"* for I can see it, I can touch it; if I strike it, I can hear it. So, this is called *"sense"* because it’s present. If absent, it’s imagination.
 
@@ -38,7 +38,7 @@ As he agreed to have this company underwrite it for two hundred and fifty thousa
 
 So, his need was two hundred and fifty thousand dollars, and he has raised between the call in May and this day three hundred and fifty thousand dollars. And they say because of the market, because of this, or because of that, it can’t be done.
 
-*"[All things are possible](/lectures/all-things-are-possible) to God"* ([Matthew 19:26](https://www.biblegateway.com/passage/?search=Matthew+19:26&version=KJV)), but man worships a false god. Man hasn’t the slightest concept who God is! *"God is not a God afar off"*; God is not even near, for nearness implies separation. And He is in the very midst of me. He is my own true identity! My own I-AM-ness,--that’s God! He actually, literally became as I am with all of my weaknesses―with all of my limitations, that I may be as He is without limitations, without weakness. So, He is not pretending that He is me. He is not pretending that He is you. He literally emptied Himself of His infinite wisdom and power, and assumed the restrictions of man; and then finally He awakes within man, and Man is the one that awakes within Him. God and man are One. That little line of demarcation between the two when man in his dream worships a false god is all removed, and then hen knows who God really is.
+> *"[All things are possible](/lectures/all-things-are-possible) to God"* ([Matthew 19:26](https://www.biblegateway.com/passage/?search=Matthew+19:26&version=KJV)), but man worships a false god. Man hasn’t the slightest concept who God is! *"God is not a God afar off"*; God is not even near, for nearness implies separation. And He is in the very midst of me. He is my own true identity! My own I-AM-ness,--that’s God! He actually, literally became as I am with all of my weaknesses―with all of my limitations, that I may be as He is without limitations, without weakness. So, He is not pretending that He is me. He is not pretending that He is you. He literally emptied Himself of His infinite wisdom and power, and assumed the restrictions of man; and then finally He awakes within man, and Man is the one that awakes within Him. God and man are One. That little line of demarcation between the two when man in his dream worships a false god is all removed, and then hen knows who God really is.
 
 So, He’s dreaming now―dreaming your life. One day He will awake from the dream of life, and then you will know Who-You-Are! You will know that you are that central figure in Scripture called the Lord [Jesus Christ](/lectures/jesus-christ), for the name will unfold itself within you, and the ultimate revelation of that name is *"God the Father"*! And because He is God the Father, you will see His son in your presence calling you, *"Father."* You will know you are his father, and he will know that he is your son, and there will be no uncertainty as to this relationship between you and the Son of God, whose Son is your son.
 
@@ -68,7 +68,7 @@ I said, *"Do you sleep in it every night? I know you do physically, but do you s
 
 Well, the husband wanted to sell it. I said, *"Where would you go?"*
 
-*"Well, at our age we would not get another home. We’d move into an apartment. It would be cramped for us, but nevertheless we would move into an apartment."*
+> *"Well, at our age we would not get another home. We’d move into an apartment. It would be cramped for us, but nevertheless we would move into an apartment."*
 
 So, they went down to see the Le Brea apartments, and they saw one they liked on the tenth floor, and it was just the answer to their Prayer, but they wouldn’t move unless they sold.
 
@@ -78,7 +78,7 @@ A total stranger, within the month,--no agent came,--a total stranger [he didn�
 
 You will find it first in your imagination. That’s where you find it. And then you clothe it with the tones of reality, and you clothe it with all the sensory vividness that you can give that image.
 
-*"If the spectator could enter into these images in his imagination, approaching [that image] on the fiery chariot of his [own] contemplative thought, [as if he made] a friend and a companion of one of these images,…then he would rise from his grave,"*―Well, this is a grave,--*"then he would be happy in it [his new choice, his new state]."* (from *"A Vision of the Last Judgment"* by William Blake)
+> *"If the spectator could enter into these images in his imagination, approaching [that image] on the fiery chariot of his [own] contemplative thought, [as if he made] a friend and a companion of one of these images,…then he would rise from his grave,"*―Well, this is a grave,--*"then he would be happy in it [his new choice, his new state]."* (from *"A Vision of the Last Judgment"* by William Blake)
 
 So, in one month he sold it for the seventy-five thousand and moved out. He had to give up half of the things he had, because he couldn’t use them in the smaller area. Now in seventeen years you know, if you have a home or even an apartment, what you accumulate. We accumulate and accumulate like a pack rat! Well, that’s what he did. Now he has this lovely apartment, and he’s blissfully happy, so he tells me.
 
@@ -92,7 +92,7 @@ Now today, even after a month, Jim now thinks that it didn’t happen because he
 
 Well, you give him six more months and he’ll be convinced beyond a doubt that what he did in imagination and what his wife did had no bearing whatsoever upon the sale. But that is the story told throughout the Bible.
 
-*"Were there not ten of you, and only one has returned to say thanks?"* (See [Luke 17:14-18](https://www.biblegateway.com/passage/?search=Luke+17:14-18&version=KJV)) Well, the other nine thought it would have happened anyway. No, not a thing could cure them of their leprosy; and one spoke and it became a fact. And he kept on going. It wasn’t done because he did it,--it would have happened anyway.
+> *"Were there not ten of you, and only one has returned to say thanks?"* (See [Luke 17:14-18](https://www.biblegateway.com/passage/?search=Luke+17:14-18&version=KJV)) Well, the other nine thought it would have happened anyway. No, not a thing could cure them of their leprosy; and one spoke and it became a fact. And he kept on going. It wasn’t done because he did it,--it would have happened anyway.
 
 That’s what the nine said, but one Samaritan came back and said, Thank you. That’s the whole vast world in which we live. We are so sound asleep, we could never believe in these irrational things of which I speak. *"Why, that doesn’t make sense!"*
 
@@ -102,9 +102,9 @@ I could tell you unnumbered stories where I know the cause. I know the beginning
 
 What do I want in the object world? I hope for that. Well, I must now subjectively appropriate that state. I don’t beg for it. I simply appropriate it. if God is my own wonderful human imagination, to whom can I turn? I turn to God by, in my own imagination, appropriating this state. That is what I am told to do.
 
-*"When you pray, believe that you have received, and you will."* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV)) And whoever says a thing, believing that what he says will come to pass, it will be done for him. Well, is He not speaking to me? Is He not telling me that He dwells within me?
+> *"When you pray, believe that you have received, and you will."* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV)) And whoever says a thing, believing that what he says will come to pass, it will be done for him. Well, is He not speaking to me? Is He not telling me that He dwells within me?
 
-*"I dwell in you, and you dwell in me, and we are one. And the things that I have done, you will do also."*
+> *"I dwell in you, and you dwell in me, and we are one. And the things that I have done, you will do also."*
 
 Well, what have you done? I have found the Father. Who is he? He said, *"I am the Father."* I am going to find that, too, for that is what I am told. *"All the things that I have done, ye shall do, and even greater than these because I go and leave the world. I am returning to my Father, from whom I came; and so you will remain here until you reach the end of the journey."* Not at the end of history, but within history, you will know the truth of the things that I say, for you will know the Father; and when you know the Father, you’ll know yourself because you are the Father!
 
@@ -136,11 +136,11 @@ So, I can tell you that I went to bed and prepared that place; and then, not kno
 
 Anyone can do it. In fact, you’re invited to do it, for we are told: *"Come, test me and see"* (Second Corinthians 13:5) We are invited to test Him. Well, how would I test you, if you and I are one, and you are the Dreamer in me? Here, I assume to be the weaker one, and this is sound asleep. Well, the true reality of my Being is that Dreamer-in-me―the One Who is dreaming the dream of life. *"Everything is possible to God"* ([Matthew 19:26](https://www.biblegateway.com/passage/?search=Matthew+19:26&version=KJV)), and God is in man as man’s own wonderful human imagination.
 
-*"Well, let us go and look at him. Well, he is sleeping now and he’s dreaming. And what do you suppose he is dreaming about?...Well, he is dreaming about you."* (*"Through the Looking Glass"* by Lewis Carroll)
+> *"Well, let us go and look at him. Well, he is sleeping now and he’s dreaming. And what do you suppose he is dreaming about?...Well, he is dreaming about you."* (*"Through the Looking Glass"* by Lewis Carroll)
 
 Well, that is a shock to Alice. *"Dreaming about me? Nobody could know that!"*
 
-*"If he stopped dreaming about you,"* said Tweedle-Dee, *"where do you suppose you would be?"*
+> *"If he stopped dreaming about you,"* said Tweedle-Dee, *"where do you suppose you would be?"*
 
 If you stopped dreaming of being poor, where do you suppose poverty would be? If you stopped dreaming about anything that you now think you are,--it could be poverty, it could be limitations of the flesh, limitation socially, limitations of anything; if you stopped dreaming that, where do you think that would be? It exists only in your imagination. If you stop dreaming about it, it has not life in itself, for life is in you, and you animate it and keep it alive.
 
@@ -152,7 +152,7 @@ So, this is [the great mystery](/lectures/the-great-mystery) as revealed in Scri
 
 If you do not accept it, and will not dream that dream―don’t let them give you that kind of a dream; you hold onto a new kind of dream, a better dream; this Dreamer-in-you can do everything, and it does everything. *"For by Him all things were made, and without Him was not anything made that was made."* ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV))
 
-*"I kill, and I make alive; I wound, and I heal."* Yes: *"I, even I am He."* That’s what we are told in the 32nd chapter of Deuteronomy.
+> *"I kill, and I make alive; I wound, and I heal."* Yes: *"I, even I am He."* That’s what we are told in the 32nd chapter of Deuteronomy.
 
 So, the One in you―the Dreamer―kills and makes alive. Don’t think for one moment that there is a God who makes alive and another being who kills. There’s only one Creator. There is only one Being that can create anything, and that Being is in you as your own wonderful human imagination.
 
@@ -164,7 +164,7 @@ There is a man who is paid a huge salary to write in the newspapers to scare peo
 
 So, I say to everyone: it is entirely up to you, because if you know Who-You-Are, you cannot turn to another, if you know who you are.
 
-*"Choose this day whom you will serve."* *"I have chosen to serve the Lord,"* said he. His name is Joshua. Well, *"Joshua"* is the Hebraic form of the Anglicized name *"Jesus."* It’s the same thing,--the same meaning. It means *"Jehovah-Saves."* So, *"Joshua"* and *"Jesus"* are identical in meaning. So, it is Jesus who is speaking: *"I chose the Lord,"* and he tells you: *"[I am the Lord](/lectures/i-am-the-lord)."* *"He who sees me sees the Father."* ([John 14:9](https://www.biblegateway.com/passage/?search=John+14:9&version=KJV)) *"I and the Father are one."* ([John 10:30](https://www.biblegateway.com/passage/?search=John+10:30&version=KJV))
+> *"Choose this day whom you will serve."* *"I have chosen to serve the Lord,"* said he. His name is Joshua. Well, *"Joshua"* is the Hebraic form of the Anglicized name *"Jesus."* It’s the same thing,--the same meaning. It means *"Jehovah-Saves."* So, *"Joshua"* and *"Jesus"* are identical in meaning. So, it is Jesus who is speaking: *"I chose the Lord,"* and he tells you: *"[I am the Lord](/lectures/i-am-the-lord)."* *"He who sees me sees the Father."* ([John 14:9](https://www.biblegateway.com/passage/?search=John+14:9&version=KJV)) *"I and the Father are one."* ([John 10:30](https://www.biblegateway.com/passage/?search=John+10:30&version=KJV))
 
 And, so, your imaginal acts are coming into your world. May I tell you? they are not receding into the past, as people think; and you will say, *"It was just my imagination."* No, they are advancing into the future, and they will confront you. Well, when they confront you as a harvest, you do not even recognize your own harvest! You will say, *"I don’t know this; I never did this."* Yes, you did. The whole vast world is simply the harvest of men who cannot stop imagining. You can’t stop it. That is life itself.
 
@@ -180,9 +180,9 @@ And Vic said, *"With what?"*
 
 He said, *"Well, I have money. It’s in the bank, pays me nothing."*
 
-*"But,"* he said, *"I’ve got no collateral."*
+> *"But,"* he said, *"I’ve got no collateral."*
 
-*"I’m not asking for any collateral."* He said, *"Do you want the building?"*
+> *"I’m not asking for any collateral."* He said, *"Do you want the building?"*
 
 Vic said, *"I would love it, but I have no money and I have no collateral."*
 

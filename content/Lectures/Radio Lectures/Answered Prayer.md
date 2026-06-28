@@ -28,7 +28,7 @@ Steadying attention makes no call upon any special faculty, but it does demand c
 
 Have you had a Prayer answered? Men would give anything to feel certain their prayers would have definite results.
 
-*"When ye pray, believe that ye receive, and ye shall receive."* Believing you receive is the condition for answered Prayer.
+> *"When ye pray, believe that ye receive, and ye shall receive."* Believing you receive is the condition for answered Prayer.
 
 ### Prayer Implies Responsibility
 

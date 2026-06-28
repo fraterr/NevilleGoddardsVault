@@ -1,4 +1,4 @@
-*"Pray for my soul, more things are wrought by Prayer than this world Dreams of"* (Tennyson).
+> *"Pray for my soul, more things are wrought by Prayer than this world Dreams of"* (Tennyson).
 
 Prayer is an art and requires practice. The first requirement is a controlled imagination. Parade and vain repetitions are foreign to Prayer. Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for Prayer is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
 
@@ -8,7 +8,7 @@ They attribute the results obtained to the ceremonies and mistake the letter for
 
 The essence of Prayer is faith; but faith must be permeated with understanding to be given that active quality which it does not possess when standing alone.
 
-*"Therefore, get wisdom; and with all thy getting get understanding."*
+> *"Therefore, get wisdom; and with all thy getting get understanding."*
 
 This book is an attempt to reduce the unknown to the known, by pointing out conditions on which prayers are answered, and without which they cannot be answered.
 

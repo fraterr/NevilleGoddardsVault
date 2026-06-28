@@ -1,7 +1,7 @@
-*"Verily, verily, I say unto you before Abraham was, I AM."* ([John 8](https://www.biblegateway.com/passage/?search=John+8&version=KJV): 58)
+> *"Verily, verily, I say unto you before Abraham was, I AM."* ([John 8](https://www.biblegateway.com/passage/?search=John+8&version=KJV): 58)
 
 
-*“In the beginning was the Word, and the Word was with God, and the Word was God.”*
+> *“In the beginning was the Word, and the Word was with God, and the Word was God.”*
 
 In the beginning was the unconditioned awareness of being; and the unconditioned awareness of being became conditioned by imagining itself to be something, and the unconditioned awareness of being became that which it had imagined itself to be; so did creation begin.
 

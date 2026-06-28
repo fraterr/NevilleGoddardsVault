@@ -1,6 +1,6 @@
 William Blake once wrote these words to his friend, Thomas Butts:   
   
-*"Now I a fourfold vision see,   
+> *"Now I a fourfold vision see,   
 And a fourfold vision is given to me:  
 'Tis fourfold in my supreme delight  
 And threefold in soft Beulah's night   

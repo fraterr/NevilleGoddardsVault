@@ -80,7 +80,7 @@ Shall throw open the gates of new life to thee!”
 Then standing before him, he said: *"See the Christ stand!"* 
 He is telling you who he is; he is the *"Anointed One."* *"Christ"* means the “anointed one.’ 
 
-*"Rise and anoints him. This is he"* [I Samuel 16:12], said the Lord to His prophet Samuel. *"This is he."* Who are they speaking to? To Samuel. Of whom? He spoke of David. So Samuel took the ointment, -- that is, the oil -- the precious oil, and anointed David in the presence of his brothers; *"and from that day forward the Spirit of the Lord came mightily upon David."* [I Samuel 16:13]
+> *"Rise and anoints him. This is he"* [I Samuel 16:12], said the Lord to His prophet Samuel. *"This is he."* Who are they speaking to? To Samuel. Of whom? He spoke of David. So Samuel took the ointment, -- that is, the oil -- the precious oil, and anointed David in the presence of his brothers; *"and from that day forward the Spirit of the Lord came mightily upon David."* [I Samuel 16:13]
 
 Now you are told, *"Those who come later will find no joy in Him."* [Ecclesiastes 4:16]
 
@@ -124,7 +124,7 @@ So, dare to assume a noble concept of yourself. Live in it as though it were tru
 
 Now a lady wrote me this week and asked me if I could throw some light on this. She said, “I found myself in a dormitory. I recall the dormitory, for I was in that school from the age of 12 to 18. But here you are as an instructor, and you are teaching all of us how to solve puzzles. You did not actually do it for us; you allowed us to use our own talents, but you are instructing. You were the instructor teaching us how to solve puzzles, leaving us full freedom to make our own efforts.
 
-*"Then you sat next to me, and you asked me this, -- and this puzzled me because I do not understand what it means. You asked me, ‘Do you know what twenty-seven is?’"* 
+> *"Then you sat next to me, and you asked me this, -- and this puzzled me because I do not understand what it means. You asked me, ‘Do you know what twenty-seven is?’"* 
 
 Do you know what twenty-seven is? 
 
@@ -199,7 +199,7 @@ So, they told it in the form of a story, that it would be accepted that way; and
 So, Peter was the one who denied him three times before the cock crowed. So, he is still reminding him that he did at the very last deny him. *"You turned your back upon me three times, and I told you the cock would not crow until you had denied me three times, and then the third time you wept bitterly because you knew how prophetically true my words were."* 
 So, man will swear, *" I will live by this for the rest of my days."* All right, you don’t have to swear. Try it! Try living by it! It’s not the easiest thing in the world to watch one’s imagination morning, noon and night, and to actually control it as you would a boat at sea when you steer it in the direction you want it to go. But, it has to be done eventually. Therefore, get started now.
 
-*"If you say you love me, you will keep my word,"* he says.
+> *"If you say you love me, you will keep my word,"* he says.
 
 So Peter says, *"You know I love you."* 
 
@@ -207,7 +207,7 @@ Well, the only way you can love me is to obey my word. *"Those who love me,"* he
 
 “What must I do to be doing the work of God? [John 6:28]
 
-*"[Believe in him](/lectures/believe-in-him) whom He has sent."* [John 6:29] 
+> *"[Believe in him](/lectures/believe-in-him) whom He has sent."* [John 6:29] 
 
 Well, the only one you can believe in -- what? A little man? No; believe in the teaching, for he tells you, *"They aren’t my words, but the words of Him who sent me."* 
 

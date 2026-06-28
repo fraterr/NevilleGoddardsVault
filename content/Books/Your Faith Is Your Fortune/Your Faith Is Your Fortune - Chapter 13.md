@@ -1,18 +1,18 @@
-*"And as we have borne the image of the earthly, we shall also bear the image of the heavenly."* (1Cor. 15:49)
+> *"And as we have borne the image of the earthly, we shall also bear the image of the heavenly."* (1Cor. 15:49)
 
 Your consciousness or your I AM is the unlimited potential upon which impressions are made. I’m-pressions are defined states pressed upon your I AM, Your consciousness or your I AM can be likened to a sensitive film. In the virgin state it is potentially unlimited You can impress or record a message of love or a hymn of hate, a wonderful symphony or discordant jazz. It does not matter what the nature of the impression might be; your I AM will, without a murmur, willingly receive and sustain all impressions.
 
 Your consciousness is the one referred to in [Isaiah 53:3-7](https://www.biblegateway.com/passage/?search=Isaiah+53:3-7&version=KJV).
 
-*“He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him, he was despised, and we esteemed him not.”*
+> *“He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him, he was despised, and we esteemed him not.”*
 
-*“Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.”*
+> *“Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.”*
 
-*“But he was wounded for our transgressions, he was bruised for our inquiries; the chastisement of our peace was upon him; and with his stripes we are healed.”*
+> *“But he was wounded for our transgressions, he was bruised for our inquiries; the chastisement of our peace was upon him; and with his stripes we are healed.”*
 
-*“All we like sheep have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all.”*
+> *“All we like sheep have gone astray; we have turned every one to his own way; and the Lord hath laid on him the iniquity of us all.”*
 
-*“He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a Iamb to the slaughter and as a sheep before her shearers is dumb, so he openeth not his mouth.”*
+> *“He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a Iamb to the slaughter and as a sheep before her shearers is dumb, so he openeth not his mouth.”*
 
 Your unconditioned consciousness is impersonal; it is no respecter of persons. Without thought or effort it automatically expresses every impression that is registered upon it. It does not object to any impression that is placed upon it for, although it is capable of receiving and expressing any and all defined states, it remains forever an immaculate and an unlimited potential.
 

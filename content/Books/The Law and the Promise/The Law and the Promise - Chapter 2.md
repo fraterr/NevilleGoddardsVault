@@ -1,4 +1,4 @@
-*"My God, I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
+> *"My God, I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
 
 I wish it were true of man's noble Dreams, but unfortunately — perpetual construction, deferred occupancy — is the common fault of man. Why *"build a stately habitation"*, unless you intend to *"dwell therein"*? Why build a dream house and not *"dwell therein"*?
 
@@ -48,7 +48,7 @@ But now it was realized — our one big desire was objectified. And we did not p
 
 Through the medium of a dream — a controlled, waking dream — the Doctor and his wife created reality. They learned how to live in their dream house as, in fact, now they do. Although help seemingly came from without, the course of events was ultimately determined by the imaginal activity of the Doctor and his wife. The participants were drawn into their imaginal drama because it was dramatically necessary that they should be. Their imaginal structure demanded it.
 
-*"All things by a law divine In one another's being mingle."* (— Percy Bysshe Shelley, *"Love's Philosophy"*)
+> *"All things by a law divine In one another's being mingle."* (— Percy Bysshe Shelley, *"Love's Philosophy"*)
 
 The following story illustrates the way in which a lady prepared her *"stately habitation"* by imaginatively sleeping in it — or *"dwelling therein"*.
 
@@ -74,15 +74,15 @@ The following story illustrates the way in which a lady prepared her *"stately h
 
 "We left, and that night — in my imagination — I stood on that dining room balcony and looked down at my husband standing by the fireplace. He looked up at me and said, 'Well, honey, how do you like our new home?' I said, 'I love it'. I continued to see that beautiful room and my husband in it and 'felt' the balcony railing gripped in my hands until I fell asleep.
 
-*"The next day, as we were having dinner in my mother's house, the telephone rang and the agent, in an unbelieving voice, informed me that we had just purchased a house. The owner had split the property right down the middle, giving us the house and the acre it stood on for the price we offered."* ...J.R.B. 
+> *"The next day, as we were having dinner in my mother's house, the telephone rang and the agent, in an unbelieving voice, informed me that we had just purchased a house. The owner had split the property right down the middle, giving us the house and the acre it stood on for the price we offered."* ...J.R.B. 
 
-*"... dreamers often lie in bed awake, while they do dream things true."* (approx., William Shakespeare,*"Romeo and Juliet"*)
+> *"... dreamers often lie in bed awake, while they do dream things true."* (approx., William Shakespeare,*"Romeo and Juliet"*)
 
 One must adopt either the way of imagination or the way of sense.
 
 No compromise or neutrality is possible.
 
-*"He who is not for me is against me"* ([Matthew 12:30](https://www.biblegateway.com/passage/?search=Matthew+12:30&version=KJV), [Luke 11:23](https://www.biblegateway.com/passage/?search=Luke+11:23&version=KJV)).
+> *"He who is not for me is against me"* ([Matthew 12:30](https://www.biblegateway.com/passage/?search=Matthew+12:30&version=KJV), [Luke 11:23](https://www.biblegateway.com/passage/?search=Luke+11:23&version=KJV)).
 
 When man finally identifies himself with his Imagination rather than his senses, he has at long last discovered the core of reality.
 

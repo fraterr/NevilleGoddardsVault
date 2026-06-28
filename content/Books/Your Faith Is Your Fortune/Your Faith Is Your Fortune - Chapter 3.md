@@ -1,6 +1,6 @@
-*"Ye shall know the truth, and the truth shall make you free."* ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
+> *"Ye shall know the truth, and the truth shall make you free."* ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
 
-*“Ye shall know the truth and the truth shall set you free.”*
+> *“Ye shall know the truth and the truth shall set you free.”*
 
 The truth that sets man free is the knowledge that his consciousness is the resurrection and the life, that his consciousness both resurrects and makes alive all that he is conscious of being. Apart from consciousness there is neither resurrection nor life.
 
@@ -16,7 +16,7 @@ When it is recorded that Jesus left the world and went to His Father it is simpl
 
 To rise in consciousness to the level of the thing desired and to remain there until such level becomes your nature is the way of all seeming miracles. *“And I, if I be lifted up, I shall draw all men unto me.”* If I be lifted up in consciousness to the naturalness of the thing desired, I shall draw the manifestation of that desire to me.
 
-*“No man comes unto me save the Father within me draws him, and I and my Father are one.”* My consciousness is the Father who draws the manifestation of life to me. The nature of the manifestation is determined by the state of consciousness in which I dwell. I am always drawing into my world that which I am conscious of being.
+> *“No man comes unto me save the Father within me draws him, and I and my Father are one.”* My consciousness is the Father who draws the manifestation of life to me. The nature of the manifestation is determined by the state of consciousness in which I dwell. I am always drawing into my world that which I am conscious of being.
 
 If you are dissatisfied with your present expression of life, then you must be born again. Rebirth is the dropping of that level with which you are dissatisfied and rising to that level of consciousness which you desire to express and possess.
 
@@ -30,7 +30,7 @@ To rise to the level of any state is to automatically become that state in expre
 
 To accomplish this seemingly impossible feat you take your attention away from your problem and place it upon just being. You say silently but feelingly, *“I AM.”* Do not condition this awareness but continue declaring quietly, *“I AM — I AM.”* Simply feel that you are faceless and formless and continue doing so until you feel yourself floating.
 
-*“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true Meditation.
+> *“Floating”* is a psychological state which completely denies the physical. Through practice in relaxation and wilfully refusing to react to sensory impressions, it is possible to develop a state of consciousness of pure receptivity. It is a surprisingly easy accomplishment. In this state of complete detachment a definite singleness of purposeful thought can be indelibly engraved upon your unmodified consciousness. This state of consciousness is necessary for true Meditation.
 
 This wonderful experience of rising and floating is the signal that you are absent from the body or problem and are now present with the Lord; in this expanded state you are not conscious of being anything but I AM — I AM; you are only conscious of being.
 
@@ -58,7 +58,7 @@ With this discovery man’s human ear or hearing (understanding) is cut off by t
 
 Before man can transform his world, he must first lay this foundation or understanding. [I AM the Lord](/lectures/i-am-the-lord). Man must know that his awareness of being is God. Until this is firmly established so that no suggestion or argument of others can shake him, he will find himself returning to the slavery of his former belief. *“If ye believe not that I AM He, ye shall die in your sins.”* Unless man discovers that his consciousness is the cause of every expression of his life, he will continue seeking the cause of his confusion in the world of effects, and so shall die in his fruitless search.
 
-*“I AM the vine and ye are the branches.”* Consciousness is the vine and that which you are conscious of being is as branches that you feed and keep alive. Just as a branch has no life except it be rooted in the vine, likewise things have no life except you be conscious of them. Just as a branch withers and dies if the sap of the vine ceases to flow towards it, so do things and qualities pass away if you take your attention from them; because your attention is the sap of life which sustains the expression of your life.
+> *“I AM the vine and ye are the branches.”* Consciousness is the vine and that which you are conscious of being is as branches that you feed and keep alive. Just as a branch has no life except it be rooted in the vine, likewise things have no life except you be conscious of them. Just as a branch withers and dies if the sap of the vine ceases to flow towards it, so do things and qualities pass away if you take your attention from them; because your attention is the sap of life which sustains the expression of your life.
 
 
 

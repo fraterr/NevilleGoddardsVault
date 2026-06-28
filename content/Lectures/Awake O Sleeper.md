@@ -52,7 +52,7 @@ It's like leaving one room and entering another. Your friend is in the same fabu
   
 In the 1st chapter of Genesis it is said: *"God made man in his own image. Male and female made he them."* The 2nd chapter changes this somewhat, but it is not a contradiction if you see it through imagination.   
   
-*"The Lord God formed man of dust from the ground and breathed into his mouth the breath of life, and man became a living soul."*   
+> *"The Lord God formed man of dust from the ground and breathed into his mouth the breath of life, and man became a living soul."*   
   
 Man's destiny is to become a life-giving spirit, not just to remain an animated body. The purpose of your fall is to transform you into an entirely different world, one where you are a life-giving spirit, animating everything around you. There you will stop time at will and start it again. That is your destiny. Now, reason cannot understand this, and you can't blame anyone who has not had the vision. Scholars believe the Bible is all myth, and certainly it is. If you take my body apart you will find no rib that is missing, yet scripture tells us one was removed.   
   
@@ -64,7 +64,7 @@ Now let me repeat: I not only believe in God, I believe that all men are gods an
   
 In spite of the horrors of the world, God is love! When you stand in His presence you can't feel anything but love. And when love embraces you and you become one with God, you will know an ecstasy you have never known before. And with this union, you are incorporated into His body and know yourself to be all love!   
   
-*"He who is united to the Lord becomes one Spirit with him."* ([Romans 6](https://www.biblegateway.com/passage/?search=Romans+6&version=KJV)) When you are incorporated into the body of love, you are united with the one body, the one Spirit, one Lord, one God and Father of all, knowing that you are He. Then you will awaken as the one who commanded the fall, for you will have fulfilled your purpose.   
+> *"He who is united to the Lord becomes one Spirit with him."* ([Romans 6](https://www.biblegateway.com/passage/?search=Romans+6&version=KJV)) When you are incorporated into the body of love, you are united with the one body, the one Spirit, one Lord, one God and Father of all, knowing that you are He. Then you will awaken as the one who commanded the fall, for you will have fulfilled your purpose.   
   
 You will awaken in this world of death knowing you are God, the Father of God's only begotten son, David. It is recorded that in the spirit David called Jesus *"Adonai"*, which is the Hebrew name for Father (Lord). (In Hebrew the name YAD HE VAU HE [pron. *"YOD HEY VAV HEY"* is so sacred the word *"adoniyah"* [corr. adonai, pron. *"a-do-NAI"*] is substituted.) In the spirit, David will call you father, and you will have fulfilled the 2nd Psalm. It is David who says: *"I shall tell of the decree of the Lord. He said to me, ‘Thou art my son, today I have begotten thee.’"*   
   
@@ -78,7 +78,7 @@ When someone born into poverty persists in dreaming he possesses great wealth an
   
 When the gods came down in the likeness of men, some found a female garment and some a male. Entering death's door with those who enter, and lying down in the grave with visions of eternity, the gods are dreaming the dream of life until they awake and see Jesus and the linen clothes which were woven with the cooperation of a male and female. These were emanations of the soul which is neither male nor female.   
   
-*"As it was appointed for all men to die once and after that comes the judgment, so Christ was offered once for the sins of many and will appear a second time, not concerning sin, but to save those who are eagerly waiting for him."* ([Hebrews 9](https://www.biblegateway.com/passage/?search=Hebrews+9&version=KJV))   
+> *"As it was appointed for all men to die once and after that comes the judgment, so Christ was offered once for the sins of many and will appear a second time, not concerning sin, but to save those who are eagerly waiting for him."* ([Hebrews 9](https://www.biblegateway.com/passage/?search=Hebrews+9&version=KJV))   
   
 You may hear of someone's death, but he has not died to himself, as it was appointed that all men would die only once. We died when we left our heavenly home to come down and assume the limitations of the flesh. At that moment we were united with Christ in a death like his, with the promise that we would be united with him in a resurrection like his.   
   

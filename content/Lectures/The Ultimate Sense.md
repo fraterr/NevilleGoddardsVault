@@ -14,9 +14,9 @@ The word translated *"seed"* in Galatians is *"sperma"* meaning the sperm of man
 
 When you read scripture try to remember that these characteristics are only personifications and try to find out what they represent. Until you understand the significance of the name, you are going to miss its message. Quite often you will find a classic telling a far greater story than you will ever hear from the pulpit on a Sunday morning. One of my favorites was written by a mathematician. You know his story as Alice Through the Looking Glass. 
 
-*"Come and look at him!"* the brother cried, and they each took one of Alice's hands, and led her up to where the King was sleeping. 
+> *"Come and look at him!"* the brother cried, and they each took one of Alice's hands, and led her up to where the King was sleeping. 
 
-*"He's dreaming now,"* said Tweedle-dee: *"and what do you think he's dreaming about?"* 
+> *"He's dreaming now,"* said Tweedle-dee: *"and what do you think he's dreaming about?"* 
 
 Alice said, *"Nobody can guess that."* *"Why, about you!"* Tweedle-dee exclaimed, clapping his hands triumphantly. *"And if he left off dreaming about you, where do you suppose you'd be?"*
 

@@ -1,15 +1,15 @@
-*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+> *"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   
 Here are a few paradoxes which disturb many people. All of these are actual quotes or interpretations of a quote:  
-*"I shall no longer speak to you in figures, but tell you plainly of the Father."*  
-*"I came out from the Father and came into the world. Again I am leaving the world and going to the Father."*  
-*"I and my Father are one."*  
-*"I am going to the Father, for the Father is greater than I."*  
-*"When you see me, you have seen the Father."*  
-*"He who you call God, he is my Father, but I know my Father and you know not your God."*  
-*"Show us the Father. If you knew me you would not ask, for no one can know me in the true sense and not know God, for He and I are inseparable."*   
+> *"I shall no longer speak to you in figures, but tell you plainly of the Father."*  
+> *"I came out from the Father and came into the world. Again I am leaving the world and going to the Father."*  
+> *"I and my Father are one."*  
+> *"I am going to the Father, for the Father is greater than I."*  
+> *"When you see me, you have seen the Father."*  
+> *"He who you call God, he is my Father, but I know my Father and you know not your God."*  
+> *"Show us the Father. If you knew me you would not ask, for no one can know me in the true sense and not know God, for He and I are inseparable."*   
   
 Who is the father who is one with his son, yet greater than he? Can he be the son of God, yet God the Father? And how can I ever know that I and my Father are one? Let us try to solve these strange contradictions.   
   

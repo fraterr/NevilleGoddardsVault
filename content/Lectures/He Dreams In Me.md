@@ -34,7 +34,7 @@ The 44th Psalm is a Maskil of the Sons of Korah. The word *"Maskil"* means *"a s
   
 Now listen to the words of Blake. Claiming that the poem, *"Jerusalem"* was dictated by the brothers on high, he begins it in this manner:  
   
-*"Awake! Awake, O sleeper of the land of shadows, awake!  
+> *"Awake! Awake, O sleeper of the land of shadows, awake!  
 Expand! [I am in you](/lectures/i-am-in-you) and you in me, mutual in love divine:  
 I am not a God afar off, I am a brother and friend;   
 Within your bosoms I reside, and you reside in me:   
@@ -67,7 +67,7 @@ So in the Old Testament, God is called upon to *"Rouse thyself! Why sleepest tho
   
 Everyone has kept the faith. No one can come down into this world and violate that agreement. You and I agreed to dream in concert before we entered death's door, the human skull. And one day we are going to awake as the poet said:  
   
-*"He has awakened from the dream of life.  
+> *"He has awakened from the dream of life.  
 'Tis we who lost in stormy visions  
 Keep with phantoms the unprofitable strife."*  
   

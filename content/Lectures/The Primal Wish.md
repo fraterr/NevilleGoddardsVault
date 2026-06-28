@@ -10,7 +10,7 @@ Now let me share with you a letter that was given to me a few days ago by a dear
 
 “As they walked through the door they were transformed and fused into a single being who was you, and you led me to the back of the house. Then I saw that the cliff filled with mines had vanished and in its place was an enormous field of wheat being harvested by men and women. There was already a mountain of wheat to my right.
 
-*"Then I asked, ‘What are they doing?’ And you replied, ‘They are doing the same thing today that they did this time last year.’ Sensing a lapse of memory I said, ‘How long have I been here?’ and you replied, ‘Two years.’ In this I sensed symbolism, so I asked, ‘Did I learn anything?’ and nodding you said, ‘Yes, you learned how to move’ and disappeared. Then I walked back into the house which had now turned into a palace and I was led to my quarters."*
+> *"Then I asked, ‘What are they doing?’ And you replied, ‘They are doing the same thing today that they did this time last year.’ Sensing a lapse of memory I said, ‘How long have I been here?’ and you replied, ‘Two years.’ In this I sensed symbolism, so I asked, ‘Did I learn anything?’ and nodding you said, ‘Yes, you learned how to move’ and disappeared. Then I walked back into the house which had now turned into a palace and I was led to my quarters."*
 
 We are told in the book of Numbers, *"[God speaks to man](/lectures/god-speaks-to-man) through the medium of Dreams."* I tell you, you are not here by accident, not one of you, for tonight I will lead you toward the fulfillment of that primal wish, *"Let us make man in our image."* I will lead you toward getting dominion over everything in the world, things on the earth, below the earth, under water, below the water, in the heavens and beyond. [Infinite power](/lectures/infinite-power) is yours after the image of the invisible God is formed in you, for there is nothing but God.
 
@@ -24,17 +24,17 @@ What are they doing now? The same thing they did this time last year. It goes on
 
 As my friend walked through the door the shepherd led him to fields ripe with harvest, as well as a mountain of harvested wheat. It took a long, long time to harvest that much, but it was all done in the conflict. He wondered what they were doing, for he knew the war was still on. He could hear the heavy guns in the distance, but they seemed so very far away. Then he asked three questions and the answers were quite simple.
 
-*"What are they doing?"*
+> *"What are they doing?"*
 
-*"The same thing they did this time last year."*
+> *"The same thing they did this time last year."*
 
 Sensing amnesia he said, *"How long have I been here?"*
 
-*"Two years."*
+> *"Two years."*
 
-*"Have I learned anything?"*
+> *"Have I learned anything?"*
 
-*"Yes, you have learned how to move."*
+> *"Yes, you have learned how to move."*
 
 The first creative act in the Bible, *"God moved upon the face of the water."* We are here to learn now to move from state to state, from a state of conflict to the state of fulfilled desire. God moved and then proclaimed, *"Let there be light."* Everything exists, but must be illuminated from within, for I am the light.
 

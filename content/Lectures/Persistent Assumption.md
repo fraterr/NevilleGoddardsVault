@@ -25,7 +25,7 @@ Begin now to actively, constantly, use your imagination; for as you prove its cr
 Think of something lovely you would like to give another. Then ask yourself if you gave it to him and he wouldn't accept it, would you want to keep it for yourself? If, for instance, you gave a friend a million dollars and he would not accept it, would you be willing to keep it? I'm sure you would. Then imagine giving the money to him, then give to others in the same way. You may not even have a bank account; but you can still give, because there is no one to give to but yourself! There is only God whose name is I am!
 
 
-*"Hear, O Israel, the Lord our God, the Lord is one."* This great confession of faith is recorded in the sixth chapter, the fourth verse of the Book of Deuteronomy. The Lord is not two, not a dozen - just one. If I say *"I am"* that's one, but if I say *"we are"* I am speaking of many.
+> *"Hear, O Israel, the Lord our God, the Lord is one."* This great confession of faith is recorded in the sixth chapter, the fourth verse of the Book of Deuteronomy. The Lord is not two, not a dozen - just one. If I say *"I am"* that's one, but if I say *"we are"* I am speaking of many.
 
 Jesus' name is *"I am."* He is not some superior being other than yourself. He is the inspiration for everything you write, be it trivia or profound. Inspiration does not come from some other being, because there cannot be another. When you sit down to write, the thoughts come from your own being! It is nonsense to think of some other being as possessing you.
 

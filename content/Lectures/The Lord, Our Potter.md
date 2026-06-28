@@ -2,7 +2,7 @@ In the 64th chapter of the Book of Isaiah we read: *"O Lord, thou art our Father
 
 The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"I AM"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"imagination"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 
 
-*"God is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is God Himself."* (William. Blake)
+> *"God is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is God Himself."* (William. Blake)
 
 Let me share a story I read in the October 26th magazine section of the New York Times. It was a letter written by one while in prison on an island in the Asian Sea. This gentleman was under house arrest, watched 24-hours a day, and only allowed to go for a short walk before dinner. Every morning at 9:00 and every evening at 6:00 he had to sign in at the police station before returning to his room. 
 
@@ -70,7 +70,7 @@ Although to me the promise is the one grand objective, for it is the true realit
 
 I know that I am not this garment I wear, for I have seen it on the bed when I am not in it; but I have never been anywhere where I am not aware that I am. That *"I am"* is the Lord - he who I could never be so far away from as even to be near; because nearness implies separation, and I can't be separated from the Lord. 
 
-*"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the works of thy hand."* When I, all imagination, entered death's door, I found a male garment waiting there. Blake said it so beautifully: *"When weary man enters the grave he finds his Savior in the cave. Some find a female garment there and some a male, woven with care."* I found a male garment, others find a female garment; but I - the finder - am Man, not male or female. And I- Man -am one with God; for I and my Savior are one. I and my Lord are one. I and God are one. And I and the potter are one. 
+> *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the works of thy hand."* When I, all imagination, entered death's door, I found a male garment waiting there. Blake said it so beautifully: *"When weary man enters the grave he finds his Savior in the cave. Some find a female garment there and some a male, woven with care."* I found a male garment, others find a female garment; but I - the finder - am Man, not male or female. And I- Man -am one with God; for I and my Savior are one. I and my Lord are one. I and God are one. And I and the potter are one. 
 
 Entering the cave which is the human skull, we find a garment woven by the female with care. Immortality occupies the garment you wear and walks in it, believing He is the restriction he wears - from the cradle to the grave - until He awakes. And on that day you will know who you really are; for you will know yourself to be the Lord God Jehovah who is Jesus Christ. 
 

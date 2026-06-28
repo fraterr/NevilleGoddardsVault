@@ -8,7 +8,7 @@ In an earlier chapter, God is defined as I AM. Since creation is finished, the F
 
 Not my will but thine be done.
 
-*“I will be”* is a confession that *“I am not”* The Father’s will is always *“I AM.”* Until you realize that YOU are the Father (there is only one I AM and your infinite self is that I AM), your will is always *“I will be.”*
+> *“I will be”* is a confession that *“I am not”* The Father’s will is always *“I AM.”* Until you realize that YOU are the Father (there is only one I AM and your infinite self is that I AM), your will is always *“I will be.”*
 
 In the law of Assumption your consciousness of being is the Father’s will. The mere wish without this consciousness is the *“my will.”* This great quotation, so little understood, is a perfect statement of the law of Assumption.
 

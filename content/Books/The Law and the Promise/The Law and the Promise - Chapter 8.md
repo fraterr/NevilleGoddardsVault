@@ -1,4 +1,4 @@
-*"A man that looks on glass,
+> *"A man that looks on glass,
 On it may stay his eye;
 Or if he pleaseth, through it pass,
 And then the heav'n espy."*
@@ -24,9 +24,9 @@ The following story tells of one who went *"through the glass"* and broke the ch
 
 "I knew something of your teaching and tried very hard to apply what I had heard, but as my condition grew worse and I could no longer attend any of your lectures, my despondency grew deeper. One day a friend sent me a postcard picturing the scene of a lovely beach by the ocean. The picture was so beautiful, I looked and looked at it and began to remember past summer days at the seashore with my parents. For a moment, the postcard picture seemed to become animated and flooding memories of myself running free on the beach filled my mind. I felt the impact of my bare feet against the hard wet sand; I felt the icy water running over my toes and heard the crash of waves breaking on shore. This imaginal activity was so satisfying to me as I lay in bed that I continued to imagine this wonderful scene, day after day, for about one week.
 
-*"One morning, I moved from my bed to a couch and had started to sit up when I was seized with such an excruciating pain my entire body became paralyzed. I could neither sit up nor lie down. This terrible pain lasted for more than a full minute, but when it stopped — I was free! It seemed as if all the wires binding my legs had been cut. One moment I was bound; the next moment I was free. Not by degrees, but instantly."* ...V.H.
+> *"One morning, I moved from my bed to a couch and had started to sit up when I was seized with such an excruciating pain my entire body became paralyzed. I could neither sit up nor lie down. This terrible pain lasted for more than a full minute, but when it stopped — I was free! It seemed as if all the wires binding my legs had been cut. One moment I was bound; the next moment I was free. Not by degrees, but instantly."* ...V.H.
 
-*"We walk by faith), not by sight."*  (2Cor. 5:7)
+> *"We walk by faith), not by sight."*  (2Cor. 5:7)
 
 When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only imagination sees.
 
@@ -48,7 +48,7 @@ It follows that restricting the imagination by *"staying the eye"* on the reflec
 
 The specious surface of fact reflects rather than discloses, deflecting the *"Eye of Imagination"* from the truth that sets man free ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV)).
 
-*"The Eye of Imagination”, if not deflected, looks on what ought to be there, not what is. However familiar the scene on which sight rests, the "* Eye of Imagination" could gaze on one never before witnessed.
+> *"The Eye of Imagination”, if not deflected, looks on what ought to be there, not what is. However familiar the scene on which sight rests, the "* Eye of Imagination" could gaze on one never before witnessed.
 
 It is this *"Eye of Imagination"* and only this that can free us from the sense fixation of outer things which completely dominates our ordinary existence and keeps us looking on the reflective glass of facts.
 
@@ -62,7 +62,7 @@ Faith plus Love is self-commission. We can't commit ourselves to what we do not 
 
 And to make the state alive, one must become it.
 
-*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+> *"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 
@@ -84,7 +84,7 @@ This lady *"let go"* with immediate and miraculous results.
 
 "Attempting to 'see' my brother in the busy activity of remodeling, I suddenly found myself gripping the back of a kitchen chair I had used many times when 'something' happened, then suddenly I found myself standing beside my brother's bed in the hospital. This was the last place I would have wanted to be, physically or mentally, but there I was and my brother's hand reached up and clasped my hand tightly as I heard him say, 'I knew you would come, Jo'. It was a well hand I clasped, strong and sure, and the joy that filled and spilled over in my voice as I heard myself say, 'It's all better now. You know it'. My brother didn't answer, but I distinctly heard a voice say to me, 'Remember this moment'. I seemed to awake then, back in my own home.
 
-*"This took place the night after he had entered the hospital. The following day his wife telephoned me saying, 'It is unbelievable! The doctor can't account for it, Jo, but no operation is necessary. He's so improved that they have agreed to release him tomorrow.' The following Monday, my brother went back to his work and has been perfectly well since that day."* ...J.S.
+> *"This took place the night after he had entered the hospital. The following day his wife telephoned me saying, 'It is unbelievable! The doctor can't account for it, Jo, but no operation is necessary. He's so improved that they have agreed to release him tomorrow.' The following Monday, my brother went back to his work and has been perfectly well since that day."* ...J.S.
 
 Not facts — but Dreams of fancy shape our lives.
 
@@ -103,9 +103,9 @@ But a dream within a dream?" (— Edgar Allan Poe)
 
 "Seated in my living room in San Francisco, I imagined I was in my daughter's living room in London, England. I surrounded myself so completely with that room which I knew intimately, that I suddenly found myself actually standing in it. My daughter was standing by her fireplace, her face turned away from me. A moment later she turned and our eyes met. I saw such a startled, frightened expression on her face that I, too, became emotionally upset and immediately found myself back in my own living room in San Francisco.
 
-*"Five days later, I received an airmail letter from my daughter which had been written on the day of my experiment with imaginal travel. In her letter she told me she had 'seen' me in her living room that day just as real as though I were actually standing there in the flesh. She confessed she had been very frightened and that before she could speak, I had vanished. The time of this 'visitation', as she gave it in her letter, was exactly the time I had begun the imaginative action allowing, of course, for the difference in time between the two points. She explained that she told her husband of this amazing experience and he insisted that she write to me immediately as he stated, 'Your mother must have died or is dying'. But I wasn't 'dead' or 'dying', but very much alive and very excited by this marvelous experience."* ...M.L.J.
+> *"Five days later, I received an airmail letter from my daughter which had been written on the day of my experiment with imaginal travel. In her letter she told me she had 'seen' me in her living room that day just as real as though I were actually standing there in the flesh. She confessed she had been very frightened and that before she could speak, I had vanished. The time of this 'visitation', as she gave it in her letter, was exactly the time I had begun the imaginative action allowing, of course, for the difference in time between the two points. She explained that she told her husband of this amazing experience and he insisted that she write to me immediately as he stated, 'Your mother must have died or is dying'. But I wasn't 'dead' or 'dying', but very much alive and very excited by this marvelous experience."* ...M.L.J.
 
-*"Nothing can act but where it is: with all my heart; only where is it?"*
+> *"Nothing can act but where it is: with all my heart; only where is it?"*
 (Thomas Carlyle)
 
 Man is All Imagination. Therefore, a man must be where he is in imagination, for his Imagination is himself. Imagination is active at and through any state that it is aware of. If we take shifting of awareness seriously, there are possibilities beyond belief.
