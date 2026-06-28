@@ -1,6 +1,6 @@
 # Creation-Faith
 
-The mystery of creation is to be understood in terms of faith, so what is faith? It is the assurance of things hoped for, the conviction of things not seen with the mortal eye. Through faith we understand that the world was created by the word of God, so that what is seen was made out of things which do not appear.   
+The mystery of creation is to be understood in terms of faith, so what is faith? It is the assurance of things hoped for, the conviction of things not seen with the mortal eye. Through faith we understand that the world was created by the word of [God](/glossary#god), so that what is seen was made out of things which do not appear.   
   
 *"Many suppose that before creation, all was solitude and chaos. That is the most pernicious idea that can enter the mind of man, for it robs the Bible of all sublimity and the nature of the man who entertains that idea a little grubbing worm outside of himself. Eternity exists and all things in eternity, independent of creation which was an act of mercy."* (William Blake)  
   
@@ -8,15 +8,15 @@ The mystery of creation is to be understood in terms of faith, so what is faith?
   
 If you have a goal, although it is unseen, it already exists. Your normal mortal eye cannot see it, but by rearranging the structure of your mind, you can see it clearly. If, as the days follow one another, you remain loyal to this unseen reality, and your goal is reached, you will have discovered the mystery of creation.   
   
-Eternity exists and all things in eternity independent of your creative act. You may continue to build only upon what your mortal eye sees, and perpetuate the same thing over and over again, remaining forever where you are. But if you know that all things exist, though unseen at the moment, and you have access to them through your imagination, you can rearrange the pattern of your thinking and change your world by remaining loyal to your unseen construction. And when it externalizes itself by becoming a fact that you may share with others, then you will have found the secret of creation, which was an act of faith.   
+Eternity exists and all things in eternity independent of your creative act. You may continue to build only upon what your mortal eye sees, and perpetuate the same thing over and over again, remaining forever where you are. But if you know that all things exist, though unseen at the moment, and you have access to them through your [imagination](/glossary#imagination), you can rearrange the pattern of your thinking and change your world by remaining loyal to your unseen construction. And when it externalizes itself by becoming a fact that you may share with others, then you will have found the secret of creation, which was an act of faith.   
   
-The 11th chapter of the Book of Hebrews tells fantastic stones of what the ancients performed - and they did everything! Beginning with Enoch, all of the characters are named, as well as their achievements. Then it is said: *"They received the promises, but not the promise."*   
+The 11th chapter of the Book of Hebrews tells fantastic stones of what the ancients performed - and they did everything! Beginning with Enoch, all of the characters are named, as well as their achievements. Then it is said: *"They received the promises, but not [the promise](/glossary#the-promise)."*   
   
 Having been promised that if they could believe, it would come to pass, they believed and received the promises. But no one knew the fulfillment of the promise until it broke through in one. Then he knew that by the same act of faith, he could leave this sphere and enter the heavenly one.   
   
 God's promise has fulfilled itself in me. I have recorded it for posterity as vividly and as accurately as I can in my book, Resurrection. You can read of my experiences and believe them or disbelieve them. It's up to you. Perhaps at the present time you do not want to leave this sphere and enter the kingdom of heaven.   
   
-Now, *"By faith we understand that the world was created by the word of God,"* which is His [power and wisdom](/lectures/power-and-wisdom), called Christ. Any Christ other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
+Now, *"By faith we understand that the world was created by the word of God,"* which is His [power and wisdom](/lectures/power-and-wisdom), called [Christ](/glossary#christ). Any Christ other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
   
 Paul tells us: *"The mystery hidden from the ages, [Christ in you](/lectures/christ-in-you), is the hope of glory."* Any hope you have of entering a glory that transcends all earthly power and wisdom is already in you, but hidden. Christ is the way, the pattern to follow for entrance into that glory.   
   
@@ -108,7 +108,7 @@ Dwell upon this great mystery of creation in terms of faith. All ministers, rabb
   
 All of these things are on the outside. Faith in any power other than He who is within you is false, and anyone who teaches a power on the outside is a false teacher. Christ in you is your hope of glory, and there is no other power.   
   
-The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the Assumption of unseen reality and loyalty to its assemblage.   
+The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the [Assumption](/glossary#assumption) of unseen reality and loyalty to its assemblage.   
   
 In spite of denial by your senses and reason, if you will be faithful to your unseen Assumption, it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
   

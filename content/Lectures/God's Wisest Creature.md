@@ -1,6 +1,6 @@
 # God's Wisest Creature
 
-We are told that because of an act of disobedience man fell, thereby separating himself from God. But scripture tells us that God consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
+We are told that because of an act of disobedience man fell, thereby separating himself from [God](/glossary#god). But scripture tells us that God consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
   
 Scholars consider the 82nd Psalm as one of the most difficult of all the psalms to interpret, stating that although the idea may be perennial, its meaning has vanished.  
   
@@ -8,7 +8,7 @@ Here are a couple of verses from that psalm: The Lord speaks, saying: *"I say, '
   
 Evidently when these words were first spoken we were not men, otherwise the forecasting of our death like men would have no meaning. As a man, you know you will die; so what is being said here?  
   
-First called a son of God, you were told of the grand experiment in the statement, you shall die like men. Here is the plot for expansion and an ultimate birth. But what were we prior to the fall? I cannot describe that body, but I will use scripture in the hope that you will use your imagination, although I urge you not to come to any definite conclusions.  
+First called a son of God, you were told of the grand experiment in the statement, you shall die like men. Here is the plot for expansion and an ultimate birth. But what were we prior to the fall? I cannot describe that body, but I will use scripture in the hope that you will use your [imagination](/glossary#imagination), although I urge you not to come to any definite conclusions.  
   
 The fall, in symbolism, is associated with the serpent. As God's wisest creature, he said to generic man (in the form of woman): *"Did God say you would die?"* and she answered: *"Yes, if I ate the fruit from the tree of the knowledge of good and evil."* Then he made this statement: *"God knows you will not surely die, but your eyes will be opened and you will become like the gods, knowing good and evil."* ([Genesis 3](https://www.biblegateway.com/passage/?search=Genesis+3&version=KJV))  
   
@@ -22,7 +22,7 @@ You cannot describe the heavenly being you really are; yet you are gods, sons of
   
 The act of resurrection is God's mightiest act, for he must awaken his sons, who deliberately fell into this world of decay and death. Dwell upon your true being, for although you have forgotten it, you are a son of God. You had to forget this truth in order to assume the limitations of this cross called man.  
   
-But before this Assumption, our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
+But before this [Assumption](/glossary#assumption), our one grand hope was for expansion and ultimate birth. Having fallen into division, we will return to a unity far greater than we knew prior to the descent.  
   
 Without defining exactly what you look like, suppose you are now the being spoken of as the son of God. You certainly are not a man, because you must fall into man and die like men. Knowing that no man takes your life, you lay it down yourself. You have the power to lay it down and the power to lift it up again.  
   

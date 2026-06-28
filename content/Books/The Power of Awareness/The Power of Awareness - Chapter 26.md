@@ -6,7 +6,7 @@ Since life is infinite, the concept of an ultimate destiny is inconceivable. Whe
 
 The study of this book, with its detailed exposition of consciousness and the operation of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption), is the master key to the conscious attainment of your highest destiny.
 
-This very day start your new life. Approach every experience in a new frame of mind — with a new state of consciousness. Assume the noblest and the best for yourself in every respect and continue therein.
+This very day start your new life. Approach every experience in a new frame of mind — with a new [state](/glossary#state) of consciousness. Assume the noblest and the best for yourself in every respect and continue therein.
 
 Make believe — great wonders are possible.
 
@@ -38,7 +38,7 @@ Ultimately realize you consciously create destinies through desire.
 
 ### Master Key is This Book
 
-Detailed consciousness and Assumption law exposition.
+Detailed consciousness and [Assumption](/glossary#assumption) law exposition.
 For consciously attaining highest destiny.
 
 ### Start New Life Now

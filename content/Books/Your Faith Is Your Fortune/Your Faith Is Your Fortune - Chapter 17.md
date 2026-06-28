@@ -4,7 +4,7 @@
 
 *"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
 
-Prayer is the most wonderful experience man can have. Unlike the daily murmurings of the vast majority of mankind in all lands who by their vain repetitions hope to gain the ear of God, Prayer is the ecstasy of a spiritual wedding taking place in the deep, silent stillness of consciousness. In its true sense Prayer is God’s marriage ceremony. Just as a maid on her wedding day relinquishes the name of her family to assume the name of her husband, in like manner, one who prays must relinquish his present name or nature and assume the nature of that for which he prays.
+Prayer is the most wonderful experience man can have. Unlike the daily murmurings of the vast majority of mankind in all lands who by their vain repetitions hope to gain the ear of [God](/glossary#god), Prayer is the ecstasy of a spiritual wedding taking place in the deep, silent stillness of consciousness. In its true sense Prayer is God’s marriage ceremony. Just as a maid on her wedding day relinquishes the name of her family to assume the name of her husband, in like manner, one who prays must relinquish his present name or nature and assume the nature of that for which he prays.
 
 The gospels have clearly instructed man as to the performance of this ceremony in the following manner: *“When ye pray go within in secret and shut the door and your Father who sees in secret will reward you openly.”* The going within is the entering of the bridal chamber. Just as no one but the bride and groom are permitted to enter so holy a room as the bridal suite on the night of the marriage ceremony, likewise no one but the one who prays and that for which he prays are permitted to enter the holy hour of Prayer. As the bride and groom on entering the bridal suite securely shut the door against the outside world, so too must the one who enters the holy hour of Prayer close the door of the senses and entirely shut out the world round about him. This is accomplished by taking the attention completely away from all things other than that with which you are now in love ( the thing desired ) .
 
@@ -20,7 +20,7 @@ The mother of the world or bride of the Lord is purposely called Mary, or water,
 
 Millions of prayers are daily unanswered because man prays to a God who does not exist. Consciousness being God, one must seek in consciousness for the thing desired by assuming the consciousness of the quality desired. Only as one does this will his prayers be answered. To be conscious of being poor while praying for riches is to be rewarded with that which you are conscious of being, namely, poverty. Prayers to be successful must be claimed and appropriated. Assume the positive consciousness of the thing desired.
 
-With your desire defined, quietly go within and shut the door behind you. Lose yourself in your desire; feel yourself to be one with it; remain in this fixation until you have absorbed the life and name by claiming and feeling yourself to be and to have that which you desired. When you emerge from the hour of Prayer you must do so conscious of being and possessing that which you heretofore desired.
+With your desire defined, quietly go within and shut the door behind you. Lose yourself in your desire; feel yourself to be one with it; remain in this fixation until you have absorbed the life and name by claiming and [feeling](/glossary#feeling) yourself to be and to have that which you desired. When you emerge from the hour of Prayer you must do so conscious of being and possessing that which you heretofore desired.
 
 
 ## Summary
@@ -50,7 +50,7 @@ You and desire agreeing shall be established. Pray by being your desire now.
 
 ### Appropriate, Don't Beg
 
-Appropriate the state desired. Begging an external God fails. Be conscious of your wish.
+Appropriate the [state](/glossary#state) desired. Begging an external God fails. Be conscious of your wish.
 
 ### Practice Yields Proof
 

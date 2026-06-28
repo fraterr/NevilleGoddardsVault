@@ -6,7 +6,7 @@ This book has only one purpose – the removing of the veil of the senses – th
 
 To remove the veil of the senses we do not employ great effort; the objective world vanishes by turning our attention away from it.
 
-We have only to concentrate on the state desired in order to mentally see it, but to give it reality so that it will become an objective fact, we must focus attention upon the invisible state until it has the feeling of reality.
+We have only to concentrate on the [state](/glossary#state) desired in order to mentally see it, but to give it reality so that it will become an objective fact, we must focus attention upon the invisible state until it has the [feeling](/glossary#feeling) of reality.
 
 When, through concentrated attention, our desire appears to possess the distinctness and feeling of reality, we have given it the right to become a visible concrete fact.
 
@@ -20,7 +20,7 @@ The visible world which you had shut out returns to consciousness and by its ver
 
 But, if you know that consciousness is the one and only reality, you will remain faithful to your vision, and by this sustained mental attitude confirm your gift of reality, and prove that you have the power to give reality to your desires that they may become visible concrete facts.
 
-Define your ideal and concentrate your attention upon the idea of identifying yourself with your ideal. Assume the feeling of being it, the feeling that would be yours were you already the embodiment of your ideal. Then live and act upon this conviction. This Assumption, though denied by the senses, if persisted in, will become fact. You will know when you have succeeded in fixing the desired state in consciousness by simply looking mentally at the people you know.
+Define your ideal and concentrate your attention upon the idea of identifying yourself with your ideal. Assume the feeling of being it, the feeling that would be yours were you already the embodiment of your ideal. Then live and act upon this conviction. This [Assumption](/glossary#assumption), though denied by the senses, if persisted in, will become fact. You will know when you have succeeded in fixing the desired state in consciousness by simply looking mentally at the people you know.
 
 In dialogues with yourself you are less inhibited and more sincere than in actual conversations with others, therefore the opportunity for self-analysis arises when you are surprised by your mental conversations with others.
 
@@ -38,7 +38,7 @@ If you assume that you are what you want to be, then you will see others as they
 
 If, however, it is the good of others that you desire, then, in Meditation, you must represent them to yourself as already being that which you desire them to be.
 
-It is through desire that you rise above your present sphere and the road from longing to fulfillment is shortened as you experience in imagination what you would experience in the flesh were you already the embodiment of the ideal you desire to be.
+It is through desire that you rise above your present sphere and the road from longing to fulfillment is shortened as you experience in [imagination](/glossary#imagination) what you would experience in the flesh were you already the embodiment of the ideal you desire to be.
 
 I have stated that man has at every moment of time the choice before him which of several futures he will encounter; but the question arises; ―How is that possible when the experiences of man, awake in the three-dimensional world, are predetermined?” as his observation of an event before it occurs implies. This ability to change the future will be seen if we liken the experiences of life on earth to this printed page.
 

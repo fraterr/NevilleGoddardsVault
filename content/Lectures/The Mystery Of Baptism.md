@@ -1,6 +1,6 @@
 # The Mystery Of Baptism
 
-Baptism on this level is a symbolic representation of being raised to the realization of being God the Father. In his letter, Paul tells the Ephesians that there is only one baptism. This occurs prior to the realization of being God the Father. And in Paul's letter to the Romans he states: *"We are buried with Christ by a baptism into death, so that as Christ was raised from the dead by the glory of the Father, we also may walk in newness of life."* 
+Baptism on this level is a symbolic representation of being raised to the realization of being [God](/glossary#god) the Father. In his letter, Paul tells the Ephesians that there is only one baptism. This occurs prior to the realization of being God the Father. And in Paul's letter to the Romans he states: *"We are buried with [Christ](/glossary#christ) by a baptism into death, so that as Christ was raised from the dead by the glory of the Father, we also may walk in newness of life."* 
 
 Baptism implies complete immersion. It is said that when Jesus rose out of the water the heavens opened, and the Spirit, in the form of a dove, descended upon him. 
 
@@ -119,7 +119,7 @@ Now let us go into the silence.
 - The dove symbolizes the Holy Spirit, which is received by Noah and brings love from God.
 
 ### Personal Experience of Baptism and Love
-- The author shares a personal experience of being baptized and feeling loved by God.
+- The author shares a personal experience of being baptized and [feeling](/glossary#feeling) loved by God.
 - Buddha's statement about humans being disgusting is similar but not interpreted negatively.
 - Humans are here for a purpose and will rise from this world of death to a greater existence.
 

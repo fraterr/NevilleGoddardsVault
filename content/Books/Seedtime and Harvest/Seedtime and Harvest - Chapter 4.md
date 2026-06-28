@@ -1,6 +1,6 @@
 # Seedtime and Harvest - Chapter 4
 
-*"And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it. And, behold, the Lord stood above it. . ."* ([Genesis 28:12, 13](https://www.biblegateway.com/passage/?search=Genesis+28:12,+13&version=KJV))
+*"And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of [God](/glossary#god) ascending and descending on it. And, behold, the Lord stood above it. . ."* ([Genesis 28:12, 13](https://www.biblegateway.com/passage/?search=Genesis+28:12,+13&version=KJV))
 
 In a dream, in a vision of the night, when deep sleep fell upon Jacob, his inner eye was opened and he beheld the world as a series of ascending and descending levels of awareness. It was a revelation of the deepest insight into the mysteries of the world. Jacob saw a vertical scale of ascending and descending values, or states of consciousness. This gave meaning to everything in the outer world, for without such a scale of values there would be no meaning to life.
 
@@ -22,9 +22,9 @@ In the beginning was the intention - the meaning - and the intention was with th
 
 Our usual mode of procedure is to attempt to explain the higher levels of significance - why things happen - in terms of the lower - what and how things happen. For example, let us take an actual accident and try to explain it.
 
-Most of us live on the level of what happened - the accident was an event in space - one automobile struck another and practically demolished it. Some of us live on the higher level of *"how"* the accident happened - it was a rainy night, the roads were slippery and the second car skidded into the first. On rare occasions, a few of us reach the highest or causal level of *"why"* such an accident occurs. Then we become aware of the invisible, the state of consciousness which produced the visible event.
+Most of us live on the level of what happened - the accident was an event in space - one automobile struck another and practically demolished it. Some of us live on the higher level of *"how"* the accident happened - it was a rainy night, the roads were slippery and the second car skidded into the first. On rare occasions, a few of us reach the highest or causal level of *"why"* such an accident occurs. Then we become aware of the invisible, the [state](/glossary#state) of consciousness which produced the visible event.
 
-In this case, the ruined car was driven by a widow, who, though she felt she could not afford to, greatly desired to change her environment. Having heard that, by the proper use of her imagination, she could do and be all she wished to be, this widow had been imagining herself actually living in the city of her desire. At the same time, she was living in a consciousness of loss, both personal and financial. Therefore, she brought upon herself an event which was seemingly another loss, but the sum of money the insurance company paid her allowed her to make the desired change in her life.
+In this case, the ruined car was driven by a widow, who, though she felt she could not afford to, greatly desired to change her environment. Having heard that, by the proper use of her [imagination](/glossary#imagination), she could do and be all she wished to be, this widow had been imagining herself actually living in the city of her desire. At the same time, she was living in a consciousness of loss, both personal and financial. Therefore, she brought upon herself an event which was seemingly another loss, but the sum of money the insurance company paid her allowed her to make the desired change in her life.
 
 When we see the *"why"* behind the seeming accident, the state of consciousness that produced the accident, we are led to the conclusion that there is no accident. Everything in life has its in-visible meaning.
 

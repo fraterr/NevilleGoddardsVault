@@ -1,7 +1,7 @@
 # Freedom for All - Chapter 1
 
 [!info] Hear, O Israel 
-HEAR, O Israel: the Lord our God is one Lord.
+HEAR, O Israel: the Lord our [God](/glossary#god) is one Lord.
 Hear, O Israel:
 Hear, O man made of the very substance of God:
 You and God are one and undivided!
@@ -21,14 +21,14 @@ the cause and the effect,
 your Father and you are one.
 This one, in whom all conditioned states live and move
 and have their being,
-is your I AM,
+is your [I AM](/glossary#i-am),
 your unconditioned consciousness.
 
 Unconditioned consciousness is God, the one and only reality. By unconditioned consciousness is meant a sense of awareness; a sense of knowing that I AM apart from knowing who I AM; the consciousness of being, divorced from that which I am conscious of being.
 
 I AM aware of being man, but I need not be man to be aware of being. Before I became aware of being someone, I, unconditioned awareness, was aware of being, and this awareness does not depend upon being someone. I AM self-existent, unconditioned consciousness; I became aware of being someone; and I shall become aware of being someone other than this that I am now aware of being; but I AM eternally aware of being whether I am unconditioned formlessness or I am conditioned form.
 
-As the conditioned state, I (man), might forget who I am, or where I am, but I cannot forget that I AM.
+As the conditioned [state](/glossary#state), I (man), might forget who I am, or where I am, but I cannot forget that I AM.
 
 This knowing that I AM, this awareness of being, is the only reality.
 
@@ -44,7 +44,7 @@ That which I feel and believe to be true of myself is now projected in space as 
 
 The world – my mirrored self – ever bears witness of the state of consciousness in which I live.
 
-There is no chance or accident responsible for the things that happen to me or the environment in which I find myself. Nor is predestined fate the author of my fortunes or misfortunes. Innocence and guilt are mere words with no meaning to the law of consciousness, except as they reflect the state of consciousness itself.
+There is no chance or accident responsible for the things that happen to me or the environment in which I find myself. Nor is predestined fate the author of my fortunes or misfortunes. Innocence and guilt are mere words with no meaning to [the law](/glossary#the-law) of consciousness, except as they reflect the state of consciousness itself.
 
 The consciousness of guilt calls forth condemnation. The consciousness of lack produces poverty.
 

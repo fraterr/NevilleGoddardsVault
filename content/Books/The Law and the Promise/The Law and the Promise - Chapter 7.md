@@ -6,15 +6,15 @@ Men regard their moods far too much as effects and not sufficiently as causes.
 
 Moods are imaginal activities without which no creation is possible.
 
-We say that we are happy because we have achieved our goal; we do not realize that the process works equally well in the reverse direction — that we shall achieve our goal because we have assumed the happy feeling of the wish fulfilled.
+We say that we are happy because we have achieved our goal; we do not realize that the process works equally well in the reverse direction — that we shall achieve our goal because we have assumed the happy [feeling](/glossary#feeling) of the wish fulfilled.
 
 Moods are not only the result of the conditions of our life; they are also the causes of those conditions.
 
-In *"The Psychology of Emotions”, Professor Ribot writes, "* An idea which is only an idea produces nothing and does nothing; it only acts if it is felt, if it is accompanied by an effective state, if it awakens tendencies, that is to say, motor elements."
+In *"The Psychology of Emotions”, Professor Ribot writes, "* An idea which is only an idea produces nothing and does nothing; it only acts if it is felt, if it is accompanied by an effective [state](/glossary#state), if it awakens tendencies, that is to say, motor elements."
 
 The lady in the following story so successfully felt the feeling of her wish fulfilled, she made her mood the character of the night — frozen in a delightful dream.
 
-"Most of us read and love fairy stories, but we all know that stories of improbable riches and good fortune are for the delight of the very young. But are they? I want to tell you of something unbelievably wonderful that happened to me through the power of my imagination — and I am not 'young' in years.
+"Most of us read and love fairy stories, but we all know that stories of improbable riches and good fortune are for the delight of the very young. But are they? I want to tell you of something unbelievably wonderful that happened to me through the power of my [imagination](/glossary#imagination) — and I am not 'young' in years.
 
 We live in an age which believes in neither fable nor magic, and yet everything I could possibly want in my wildest day-Dreams was given to me by the simple use of what you teach — that '[imagining creates](/lectures/imagining-creates) reality' and that 'feeling' is the secret of imagining.
 
@@ -34,7 +34,7 @@ I would say over and over to myself as I fell asleep, 'Isn't it wonderful! Somet
 
 *"If the fool would persist in his folly He would become wise."* — William Blake
 
-Sir Winston calls on us to act on the Assumption that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
+Sir Winston calls on us to act on the [Assumption](/glossary#assumption) that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
 
 Is this not the secret of *"miracles"*?
 

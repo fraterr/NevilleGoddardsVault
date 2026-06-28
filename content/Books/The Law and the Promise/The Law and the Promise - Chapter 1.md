@@ -1,6 +1,6 @@
 # The Law and the Promise - Chapter 1
 
-*"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
+*"Man is all [Imagination](/glossary#imagination). [God](/glossary#god) is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
 
 The purpose of the first portion of this book is to show, through actual true stories, how [imagining creates](/lectures/imagining-creates) reality.
 
@@ -32,7 +32,7 @@ All men possess the power to create reality, but this power sleeps as though dea
 
 The future will not be fundamentally different from the imaginal activities of man; therefore, the individual who can summon at will whatever imaginal activity he pleases and to whom the visions of his imagination are as real as the forms of nature, is master of his fate. The future is the imaginal activity of man in its creative march. Imagining is the creative power not only of the poet, the artist, the actor and orator, but of the scientist, the inventor, the merchant and the artisan. Its abuse in unrestrained unlovely image-making is obvious; but its abuse in undue repression breeds a sterility which robs man of actual wealth of experience. Imagining novel solutions to ever more complex problems is far more noble than to run from problems. Life is the continual solution of a continuously synthetic problem.
 
-Imagining creates events. The world, created out of men's imagining, comprises un-numbered warring beliefs; therefore, there can never be a perfectly stable or static state. Today's events are bound to disturb yesterday's established order. Imaginative men and women invariably unsettle a pre-existing peace of mind.
+Imagining creates events. The world, created out of men's imagining, comprises un-numbered warring beliefs; therefore, there can never be a perfectly stable or static [state](/glossary#state). Today's events are bound to disturb yesterday's established order. Imaginative men and women invariably unsettle a pre-existing peace of mind.
 
 Do not bow before the dictate of facts and accept life on the basis of the world without.
 
@@ -48,7 +48,7 @@ How do you do it? Self-abandonment! That is the secret. You must abandon yoursel
 
 You can't commit yourself to what you do not love, so the secret of self-commission is faith — plus love.
 
-Faith is believing what is unbelievable. Commit yourself to the feeling of the wish fulfilled, in faith that this act of self-commission will become a reality. And it must become a reality because imagining creates reality.
+Faith is believing what is unbelievable. Commit yourself to the [feeling](/glossary#feeling) of the wish fulfilled, in faith that this act of self-commission will become a reality. And it must become a reality because imagining creates reality.
 
 Imagination is both conservative and transformative. It is conservative when it builds its world from images supplied by memory and the evidence of the senses. It is creatively transformative when it imagines things as they ought to be, building its world out of the generous Dreams of fancy.
 
@@ -76,7 +76,7 @@ Nothing stands between you and the fulfillment of your Dreams but facts — and 
 
 Man and his past are one continuous structure. This structure contains all of the facts which have been conserved and still operate below the threshold of his surface mind. For him it is merely history. For him it seems unalterable — a dead and firmly fixed past. But for itself, it is living — it is part of the living age.
 
-He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call Revision — and Revision results in repeal.
+He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [Revision](/glossary#revision) — and Revision results in repeal.
 
 Changing your life means changing the past.
 

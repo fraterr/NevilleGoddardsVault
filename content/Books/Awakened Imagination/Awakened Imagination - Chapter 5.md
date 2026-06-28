@@ -4,7 +4,7 @@
 
 PERSUASION IS an inner effort of intense attention.  
 To listen attentively as though you heard is to evoke, to activate.  
-By listening, you can hear what you want to hear and persuade those beyond the range of the outer ear. Speak it inwardly in your imagination only.  
+By listening, you can hear what you want to hear and persuade those beyond the range of the outer ear. Speak it inwardly in your [imagination](/glossary#imagination) only.  
 Make your inner conversation match your fulfilled desire. What you desire to hear without, you must hear within.  
 Embrace the without within and become one who hears only that which implies the fulfillment of his desire, and all the external happenings in the world will become a bridge leading to the objective realization of your desire.  
 Your inner speech is perpetually written all around you in happenings.  
@@ -12,9 +12,9 @@ Learn to relate these happenings to your inner speech and you will become self-t
 By inner speech is meant those mental conversations which you carry on with yourself.  
 They may be inaudible when you are awake because of the noise and distractions of the outer world of becoming, but they are quite audible in deep Meditation and dream.  
 But whether they be audible or inaudible, you are their author and fashion your world in their likeness.  
-*"There is a God in heaven (and heaven is within you) that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days. Thy dream, and the visions of thy head upon thy bed, are these."* ([Daniel 2:28](https://www.biblegateway.com/passage/?search=Daniel+2:28&version=KJV))
+*"There is a [God](/glossary#god) in heaven (and heaven is within you) that revealeth secrets, and maketh known to the king Nebuchadnezzar what shall be in the latter days. Thy dream, and the visions of thy head upon thy bed, are these."* ([Daniel 2:28](https://www.biblegateway.com/passage/?search=Daniel+2:28&version=KJV))
 Inner speech from premises of fulfilled desire is the way to create an intelligible world for yourself.  
-Observe your inner speech for it is the cause of future action. Inner speech reveals the state of consciousness from which you view the world.  
+Observe your inner speech for it is the cause of future action. Inner speech reveals the [state](/glossary#state) of consciousness from which you view the world.  
 Make your inner speech match your fulfilled desire, for your inner speech is manifested all around you in happenings.  
 *"If any man offend not in word, the same is a perfect man and able also to bridle the whole body. Behold, we put bits in the horses' mouths, that they may obey us; and we turn about their whole body. Behold also the ships, which though they be so great, and are driven by fierce winds, yet are they turned about with a very small helm, whithersoever the governor listeth. Even so the tongue is a little member, and boasteth great things. Behold, how great a matter a little fire kindleth!"* ([James 3:2-5](https://www.biblegateway.com/passage/?search=James+3:2-5&version=KJV))  
 The whole manifested world goes to show us what use we have made of the Word – Inner Speech.  
@@ -29,7 +29,7 @@ Construct a sentence which implies the fulfillment of your aim, such as *"I have
 *"That which ye sow ye reap. See yonder fields! The sesamum was sesamum, the corn was corn. The Silence and the Darkness knew! So is a man's fate born. The Light of Asia"* (Edwin Arnold)  
 Ends run true to origins.  
 *"Those that go searching for love only make manifest their own lovelessness. And the loveless never find love, only the loving find love, and they never have to seek for it."* (D. H. Lawrence)
-Man attracts what he is. The art of life is to sustain the feeling of the wish fulfilled and let things come to you, not to go after them or think they flee away.  
+Man attracts what he is. The art of life is to sustain the [feeling](/glossary#feeling) of the wish fulfilled and let things come to you, not to go after them or think they flee away.  
 Observe your inner talking and remember your aim.  
 Do they match?  
 Does your inner talking match what you would say audibly had you achieved your goal?  
@@ -95,7 +95,7 @@ Make your inner speech bless and give good reports.
 Man's ignorance of the future is the result of his ignorance of his inner talking. His inner talking mirrors his imagination, and his imagination is a government in which the opposition never comes into power.  
 If the reader ask, *"What if the inner speech remains subjective and is unable to find an object for its love?"*, the answer is: it will not remain subjective, for the very simple reason that inner speech is always objectifying itself.  
 What frustrates and festers and becomes the disease that afflicts humanity is man's ignorance of the art of matching inner words to fulfilled desire.  
-Inner speech mirrors imagination, and imagination is Christ.  
+Inner speech mirrors imagination, and imagination is [Christ](/glossary#christ).  
 Alter your inner speech, and your perceptual world changes. Whenever inner speech and desire are in conflict, inner speech invariably wins. Because inner speech objectifies itself, it is easy to see that if it matches desire, desire will be objectively realized. Were this not so, I would say with Blake,  
 Sooner murder an infant in its cradle than nurse unacted desires.  
 But I know from experience,  

@@ -2,9 +2,9 @@
 
 In the 64th chapter of the Book of Isaiah we read: *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the work of thy hand."* When you hear the words Lord, Father, and potter, do you think of another? I certainly hope not. 
 
-The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"I AM"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"imagination"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 
+The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"[I AM](/glossary#i-am)"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"[imagination](/glossary#imagination)"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 
 
-*"God is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is God Himself."* (William. Blake)
+*"[God](/glossary#god) is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is God Himself."* (William. Blake)
 
 Let me share a story I read in the October 26th magazine section of the New York Times. It was a letter written by one while in prison on an island in the Asian Sea. This gentleman was under house arrest, watched 24-hours a day, and only allowed to go for a short walk before dinner. Every morning at 9:00 and every evening at 6:00 he had to sign in at the police station before returning to his room. 
 
@@ -32,7 +32,7 @@ He simply imagined a scene which would imply the fulfillment of his desire. He b
 
 Start now to create the scene which, if true, would imply the fulfillment of your desire. If you will, there is no power that can stop its coming into being; because your Lord is your Father, who is your potter, and your desire is clay in His hand. So *"Rise and go down to the potter's house"* said the Lord to the prophet Jeremiah, *"and there I will let you hear my words."* So I went down to the potter's house and there he was working at his wheel. Although the clay in his hand was spoiled, he didn't discard it but reworked it into another vessel, as it seemed good to the potter to do. 
 
-When someone comes into your world, don't discard him by turning your back because he is ill, financially troubled, or not successful in his own eyes. Rather, see his desire as clay in your imaginal hands. Take that same vessel (person) and rework him into another state as it seems good to you to do. 
+When someone comes into your world, don't discard him by turning your back because he is ill, financially troubled, or not successful in his own eyes. Rather, see his desire as clay in your imaginal hands. Take that same vessel (person) and rework him into another [state](/glossary#state) as it seems good to you to do. 
 
 If he is unemployed, rework him into a man who is gainfully employed and happier than he has ever been in his life. That's all you do. What means will be applied toward his employment is not your concern. Your only desire is to be the perfect potter. 
 
@@ -66,15 +66,15 @@ But I tell you, there is no other cause; for there is no one outside of self. So
 
 Do not look to another as the cause of your misfortune. If you are perceiving a thing, it is penetrating your brain; therefore it exists in you. That which you are perceiving appears to exist in the surrounding world independent of your perception of it, but don't wait for it to change. If you desire a change in that which you are perceiving, you must produce the change in yourself. Ask no one to help you; simply persist in your new thoughts and let your changed thinking reproduce itself in your outside world, for it is only an outpicturing of the world of thought within you. Try it. You can change your world as this prisoner did. In his imagination he moved in time to the day after his escape. You can do the same. Would your friends know of your success the day after it was achieved? Would they get together to discuss it? Make their gathering the scene from which you start. What would they say? Would some of them be jealous? Some happy for you? Put them all together and eavesdrop on their conversation. Then believe in what you have heard. Persist and your success is assured. 
 
-Tonight I have felt impelled to talk about the law because people seem to forget, and since we are still in the world of Caesar, the law is important. The Book of Psalms begins: *"Blessed is the man who delights on thy law, meditating day and night. In all that he does, he prospers."* 
+Tonight I have felt impelled to talk about [the law](/glossary#the-law) because people seem to forget, and since we are still in the world of Caesar, the law is important. The Book of Psalms begins: *"Blessed is the man who delights on thy law, meditating day and night. In all that he does, he prospers."* 
 
-Although to me the promise is the one grand objective, for it is the true reality of all; while here in this world of Caesar, rent must be paid, clothes and food bought with Caesar's coin, so the law is important. It will not fail you, I promise, but it does not operate itself. When you know what you want, don't pray to any outside God, for the true God is within you. In fact, God is not even near, as nearness implies separation. God is your I am, and there is no place you can go and not be aware of being. 
+Although to me [the promise](/glossary#the-promise) is the one grand objective, for it is the true reality of all; while here in this world of Caesar, rent must be paid, clothes and food bought with Caesar's coin, so the law is important. It will not fail you, I promise, but it does not operate itself. When you know what you want, don't pray to any outside God, for the true God is within you. In fact, God is not even near, as nearness implies separation. God is your I am, and there is no place you can go and not be aware of being. 
 
 I know that I am not this garment I wear, for I have seen it on the bed when I am not in it; but I have never been anywhere where I am not aware that I am. That *"I am"* is the Lord - he who I could never be so far away from as even to be near; because nearness implies separation, and I can't be separated from the Lord. 
 
 *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the works of thy hand."* When I, all imagination, entered death's door, I found a male garment waiting there. Blake said it so beautifully: *"When weary man enters the grave he finds his Savior in the cave. Some find a female garment there and some a male, woven with care."* I found a male garment, others find a female garment; but I - the finder - am Man, not male or female. And I- Man -am one with God; for I and my Savior are one. I and my Lord are one. I and God are one. And I and the potter are one. 
 
-Entering the cave which is the human skull, we find a garment woven by the female with care. Immortality occupies the garment you wear and walks in it, believing He is the restriction he wears - from the cradle to the grave - until He awakes. And on that day you will know who you really are; for you will know yourself to be the Lord God Jehovah who is Jesus Christ. 
+Entering the cave which is the human skull, we find a garment woven by the female with care. Immortality occupies the garment you wear and walks in it, believing He is the restriction he wears - from the cradle to the grave - until He awakes. And on that day you will know who you really are; for you will know yourself to be the Lord God Jehovah who is Jesus [Christ](/glossary#christ). 
 
 Now let us go into the silence.
 

@@ -2,9 +2,9 @@
 
 *"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
-God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
+[God](/glossary#god) speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
 
-By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your I AM, speaks to you, the conditioned conscious state, through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
+By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your [I AM](/glossary#i-am), speaks to you, the conditioned conscious [state](/glossary#state), through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
 
 *"For I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto those things, God shall add unto him the plagues that are written in this book; and if any man shall take away from the words of the book of this prophecy, God shall take away his part out of the book of life."* (Revelation, 22:18-19)
 
@@ -24,7 +24,7 @@ The inevitable result is death and plagues or failure and frustration as promise
 
 [God speaks to man](/lectures/god-speaks-to-man) only through the medium of his basic desires.
 
-Your desires are determined by your conception of yourself. Of themselves they are neither good or evil. *"I know and am persuaded by the Lord Christ Jesus that there is nothing unclean of itself but to him that seeth anything to be unclean to him it is unclean"* ([Romans 14:14](https://www.biblegateway.com/passage/?search=Romans+14:14&version=KJV)).
+Your desires are determined by your conception of yourself. Of themselves they are neither good or evil. *"I know and am persuaded by the Lord [Christ](/glossary#christ) Jesus that there is nothing unclean of itself but to him that seeth anything to be unclean to him it is unclean"* ([Romans 14:14](https://www.biblegateway.com/passage/?search=Romans+14:14&version=KJV)).
 
 Your desires are the natural and automatic result of your present conception of yourself.
 
@@ -68,7 +68,7 @@ The nature of the gift is determined by your conception of yourself plus the una
 
 Make no mistake about this; law is no respecter of persons.
 
-Discover the law of self-expression and live by it; then you will be free. With this understanding of the law, define your desire; know exactly what you want; make certain that it is desirable and acceptable.
+Discover [the law](/glossary#the-law) of self-expression and live by it; then you will be free. With this understanding of the law, define your desire; know exactly what you want; make certain that it is desirable and acceptable.
 
 The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. *"Before they ask I have answered"* (approx., [Isaiah 65:24](https://www.biblegateway.com/passage/?search=Isaiah+65:24&version=KJV)), *"I have ways ye know not of"* (approx., [Isaiah 42:16](https://www.biblegateway.com/passage/?search=Isaiah+42:16&version=KJV)), *"My ways are past finding out"* ([Romans 11:33](https://www.biblegateway.com/passage/?search=Romans+11:33&version=KJV)).
 

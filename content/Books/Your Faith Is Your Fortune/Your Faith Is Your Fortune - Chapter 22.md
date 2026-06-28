@@ -6,13 +6,13 @@
 
 It is recorded that the disciples fished all night and caught nothing. Then Jesus appeared upon the scene and told them to cast their nets again but, this time, to cast diem on the right side. Peter obeyed the voice of Jesus and cast his nets once more into the waters. Where but a moment before the water was completely empty offish, the nets almost broke with the number of the resulting catch.
 
-Man, fishing all through the night of human ignorance, attempts to realize his desires through effort and struggle only to find in the end that his search is fruitless. When man discovers his awareness of being to be Christ Jesus, he will obey its voice and let it direct his fishing. He will cast his hook on the right side; he will apply the law in the right manner and will seek in consciousness for the thing desired. Finding it there, he will know that it will be multiplied in the world of form.
+Man, fishing all through the night of human ignorance, attempts to realize his desires through effort and struggle only to find in the end that his search is fruitless. When man discovers his awareness of being to be [Christ](/glossary#christ) Jesus, he will obey its voice and let it direct his fishing. He will cast his hook on the right side; he will apply [the law](/glossary#the-law) in the right manner and will seek in consciousness for the thing desired. Finding it there, he will know that it will be multiplied in the world of form.
 
 Those who have had the pleasure of fishing know what a thrill it is to feel the fish upon the hook. The bite of the fish is followed by the play of the fish; this play, in turn, is followed by the landing of the fish. Something similar takes place in the consciousness of man as he fishes for the manifestations of life.
 
 Fishermen know that if they wish to catch big fish, they must fish in deep waters; if you would catch a large measure of life, you must leave behind you the shallow waters with its many reefs and barriers and launch out into the deep blue waters where the big ones play. To catch the large manifestations of life you must enter into deeper and freer states of consciousness; only in these depths do the big expressions of life live.
 
-Here is a simple formula for successful fishing. First decide what it is you want to express or possess. This is essential. You must definitely know what you want of life before you can fish for it. After your decision is made, turn from the world of sense, remove your attention from the problem and place it on just being by repeating quietly but with feeling, *“I AM.”* As your attention is removed from the world round about you and placed upon the I AM so that you are lost in the feeling of simply being, you will find yourself slipping the anchor that tied you to the shallows of your problem; and effortlessly you will find yourself moving out into the deep.
+Here is a simple formula for successful fishing. First decide what it is you want to express or possess. This is essential. You must definitely know what you want of life before you can fish for it. After your decision is made, turn from the world of sense, remove your attention from the problem and place it on just being by repeating quietly but with [feeling](/glossary#feeling), *“[I AM](/glossary#i-am).”* As your attention is removed from the world round about you and placed upon the I AM so that you are lost in the feeling of simply being, you will find yourself slipping the anchor that tied you to the shallows of your problem; and effortlessly you will find yourself moving out into the deep.
 
 The sensation which accompanies this act is one of expansion. You will feel yourself rise and expand as though you were actually growing. Do not be afraid of this floating, growing experience for you are not going to die to anything but your limitations. However, your limitations are going to die as you move away from them for they live only in your consciousness.
 
@@ -51,7 +51,7 @@ Fish by claiming "I AM healthy, free, etc." until no doubts remain. You've hooke
 
 ### Sensations Signal Success
 
-Thrilling sensations signal your inner state is established. Now return to senses.
+Thrilling sensations signal your inner [state](/glossary#state) is established. Now return to senses.
 
 ### Patiently Await Manifestation
 

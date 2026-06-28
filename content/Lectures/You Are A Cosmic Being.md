@@ -1,6 +1,6 @@
 # You Are A Cosmic Being
 
-Tonight I want you to think of Christ as a cosmic being who contains everyone within him. Having died for all, this one being is in all, and will rise in all. Only one being can rise, for only one being fell. Having deliberately destroyed his temple in the fall, God, (this one being) is rebuilding his temple out of the redeemed, in order for it to become something far greater than it was prior to its destruction. One being, containing all within him, fell into this world of death to become individualized as you, as me. That same being will rise in us all, individually: and when he does the divine name *"Lord"* will be conferred upon the individual in whom he rose. 
+Tonight I want you to think of [Christ](/glossary#christ) as a cosmic being who contains everyone within him. Having died for all, this one being is in all, and will rise in all. Only one being can rise, for only one being fell. Having deliberately destroyed his temple in the fall, [God](/glossary#god), (this one being) is rebuilding his temple out of the redeemed, in order for it to become something far greater than it was prior to its destruction. One being, containing all within him, fell into this world of death to become individualized as you, as me. That same being will rise in us all, individually: and when he does the divine name *"Lord"* will be conferred upon the individual in whom he rose. 
 
 In Paul's wonderful letter to the Corinthians, he tells us: *"From now on I regard no one from the human point of view; even though I once regarded Christ from a human point of view, I regard him thus no longer."* Why? Because Paul was led from tradition to self-discovery. While determined to destroy those who believed in a savior other than the one he was taught to believe in, Paul discovered that the Christ of whom they spoke was a pattern of salvation contained within every child born of woman. It was Paul who said: *"When it pleased God to reveal himself in me, I conferred not with flesh and blood."* The pattern unfolds in only one way, and Paul tried to describe how it unfolded in him. I cannot find the true detail by his description of it, but Paul does tell us to imitate God as dear children. 
 
@@ -10,7 +10,7 @@ I tell you: one being fell to become all, and one being is going to rise in all,
 
 I cannot conceive of anything comparable to this, for unless we are born from above we remain in the world of death, turning the wheel of recurrence over and over again. I can assure you from what I know from my inner vision, that everyone will escape. God will not leave one section of himself in the world of death. He is one being who - containing all -fell into the world of death. That same being, rising in each, individually according to his purpose, rebuilds his temple out of the redeemed. 
 
-If you would imitate God as a dear child you must first have a pattern from which you may follow. This is true in all walks of life. There must be a mold into which molten metal is poured in order to form a casting. [Jesus Christ](/lectures/jesus-christ) is the mold which *"Must be perfect as your heavenly Father is perfect."* Perfection is a molten state into which you must be reduced. Your physical body, when it is burned, it is reduced to dust; so it cannot be this body that is reduced to a molten state. No. It is not your physical body, but your Spiritual body. 
+If you would imitate God as a dear child you must first have a pattern from which you may follow. This is true in all walks of life. There must be a mold into which molten metal is poured in order to form a casting. [Jesus Christ](/lectures/jesus-christ) is the mold which *"Must be perfect as your heavenly Father is perfect."* Perfection is a molten [state](/glossary#state) into which you must be reduced. Your physical body, when it is burned, it is reduced to dust; so it cannot be this body that is reduced to a molten state. No. It is not your physical body, but your Spiritual body. 
 
 Christianity is based upon the claim that a certain series of events happened in which God revealed himself in action for the salvation of man. It hasn't a thing to do with any individual man on the outside. Paul's story, which preceded the gospels by twenty or twenty-five years, is not concerned with what happens to the individual between the cradle and the grave. 
 
@@ -96,7 +96,7 @@ Now let us go into the silence.
 ### Imitating God
 - To imitate someone, you must see or hear them first.
 - Faith comes from hearing and preaching Christ's message.
-- You must set your hope fully on the promise of Christ's unfoldment in you.
+- You must set your hope fully on [the promise](/glossary#the-promise) of Christ's unfoldment in you.
 
 ### One Being Falling and Rising
 - One being fell into the world of death and will rise in all individuals.

@@ -2,9 +2,9 @@
 
 Man’s Perceptions are not bounded by organs of Perception: he perceives more than sense (though ever so acute) can discover.
 
-However much you seem to be living in a material world, you are actually living in a world of imagination. The outer, physical events of life are the fruit of forgotten blossom-times — results of previous and usually forgotten states of consciousness. They are the ends running true to ofttimes forgotten imaginative origins.
+However much you seem to be living in a material world, you are actually living in a world of [imagination](/glossary#imagination). The outer, physical events of life are the fruit of forgotten blossom-times — results of previous and usually forgotten states of consciousness. They are the ends running true to ofttimes forgotten imaginative origins.
 
-Whenever you become completely absorbed in an emotional state, you are at that moment assuming the feeling of the state fulfilled. If persisted in, whatsoever you are intensely emotional about you will experience in your world. These periods of absorption, of concentrated attention, are the beginnings of the things you harvest.
+Whenever you become completely absorbed in an emotional [state](/glossary#state), you are at that moment assuming the [feeling](/glossary#feeling) of the state fulfilled. If persisted in, whatsoever you are intensely emotional about you will experience in your world. These periods of absorption, of concentrated attention, are the beginnings of the things you harvest.
 
 It is in such moments that you are exercising your creative power — the only creative power there is. At the end of these periods, or moments of absorption, you speed from these imaginative states (where you have not been physically) to where you were physically an instant ago. In these periods the imagined state is so real that when you return to the objective world and find that it is not the same as the imagined state, it is an actual shock. You have seen something in imagination with such vividness that you now wonder whether the evidence of your senses can now be believed, and like Keats you ask,
 
@@ -21,7 +21,7 @@ There is continuity between the so-called real and unreal. To cross from one sta
 
 Not by might nor by power but by my spirit, saith the Lord of hosts.
 
-Assume the spirit, the feeling of the wish fulfilled, and you will have opened the windows to receive the blessing. To assume a state is to get into the spirit of it. Your triumphs will be a surprise only to those who did not know your hidden passage from the state of longing to the Assumption of the wish fulfilled.
+Assume the spirit, the feeling of the wish fulfilled, and you will have opened the windows to receive the blessing. To assume a state is to get into the spirit of it. Your triumphs will be a surprise only to those who did not know your hidden passage from the state of longing to the [Assumption](/glossary#assumption) of the wish fulfilled.
 
 The Lord of hosts will not respond to your wish until you have assumed the feeling of already being what you want to be, for acceptance is the channel of His action. Acceptance is the Lord of hosts in action.
 

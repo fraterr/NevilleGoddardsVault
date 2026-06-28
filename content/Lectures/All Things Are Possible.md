@@ -1,10 +1,10 @@
 # All Things Are Possible
 
-[Jesus Christ](/lectures/jesus-christ) is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus Christ, but not yourself? If you do it is because you do not know who you are!
+[Jesus Christ](/lectures/jesus-christ) is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus [Christ](/glossary#christ), but not yourself? If you do it is because you do not know who you are!
 
 In 1929, believing Jesus Christ to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
 
-Scripture tells us: *"No one has ever seen God except his only Son who is in the bosom of the Father, he has made him known."* This is true, for thirty years later God’s only Son made himself known to me. When I was incorporated into the body of God, I thought I was Neville. But thirty years later, when David of Biblical fame exploded from within and called me father, I knew I was God.
+Scripture tells us: *"No one has ever seen [God](/glossary#god) except his only Son who is in the bosom of the Father, he has made him known."* This is true, for thirty years later God’s only Son made himself known to me. When I was incorporated into the body of God, I thought I was Neville. But thirty years later, when David of Biblical fame exploded from within and called me father, I knew I was God.
 
 Although to me the David who said - *"I will tell of the decree of the Lord: He said to me, ‘Thou art my Son, today I have begotten thee,"*’ - lived 1000 B.C., and was not in any way related to me. Yet now I know the truth of the words: *"No one has ever seen God until he who is in the bosom of the Father makes him known."* Only when my whole being exploded and God’s Son David appeared in the spirit and called me father, did I know my true identity.
 
@@ -20,7 +20,7 @@ This is not a story of three wealthy women, but of those who saw the empty tomb.
 
 This is followed by a story that the Risen Lord walked with these women and - although they did not recognize him - he asked: *"What is it all about?"* and one replied: *"Do you not know they crucified the great prophet who was delivered into the hands of the elders and the authorities?"*
 
-Then he said: *"Is it not necessary that Christ should suffer these things and then come into his glory?"* And, beginning with Moses in the law and all the prophets, he interpreted to them in all the scriptures the things concerning himself. Since it was late they asked him to remain, and while seated at the table he took bread, blessed and broke it. As he handed it to them they recognized him and he vanished out of their sight.
+Then he said: *"Is it not necessary that Christ should suffer these things and then come into his glory?"* And, beginning with Moses in [the law](/glossary#the-law) and all the prophets, he interpreted to them in all the scriptures the things concerning himself. Since it was late they asked him to remain, and while seated at the table he took bread, blessed and broke it. As he handed it to them they recognized him and he vanished out of their sight.
 
 This is not a story of a man who while dining breaks a piece of bread. I am the bread of life. One day, like a seed bursting itself, the bread of life will erupt, and the plan of salvation contained within that seed will unfold from within.
 
@@ -50,9 +50,9 @@ We are told: *"I am from above. You are from below. You are of this world. I am 
 
 Everything you have ever done was done by Christ! He is your life and without Jesus [Christ in you](/lectures/christ-in-you), you could not breathe. Allowing everything to happen, he will experience it all, as you!
 
-Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that Assumption and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
+Believe every precept literally, for it will be fulfilled literally. Believe that all things are possible to you and that you are what you want to be. Persist in that [Assumption](/glossary#assumption) and it will harden into fact. Having assumed the life you now live, no one can take it from you but yourself! You have the power to lay it down by no longer being conscious of it, and the power to pick it up again through consciousness.
 
-You are the Cosmic Christ who nailed your power on humanity in six vortices as the six-pointed Star of David. At the moment of sheer ecstasy God began a good work in you, and He will bring it to completion as His predestined state unfolds from within!
+You are the Cosmic Christ who nailed your power on humanity in six vortices as the six-pointed Star of David. At the moment of sheer ecstasy God began a good work in you, and He will bring it to completion as His predestined [state](/glossary#state) unfolds from within!
 
 Now let us go into the silence. 
 
@@ -60,7 +60,7 @@ Now let us go into the silence.
 ## Summary
 ### Christ is Our True Identity
 
-- Jesus Christ is the I AM, our true identity we proclaim when we say "I am"
+- Jesus Christ is the [I AM](/glossary#i-am), our true identity we proclaim when we say "I am"
 - Yet we mistakenly believe Christ is external until we directly experience Him
 
 ### None Knows the Father

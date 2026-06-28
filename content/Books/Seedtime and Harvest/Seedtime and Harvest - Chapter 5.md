@@ -26,7 +26,7 @@ Most of us are totally unaware of the mental activity which goes on within us. B
 
 *"...every idle word that man shall speak, they shall give account thereof in the day of judgment. For by thy words thou shall be justified, and by thy words thou shalt be condemned."* ([Matthew 12:36](https://www.biblegateway.com/passage/?search=Matthew+12:36&version=KJV), 37)
 
-The law of the Word cannot be broken.  
+[The law](/glossary#the-law) of the Word cannot be broken.  
 *"...A bone of him shall not be broken."* ([John 19:36](https://www.biblegateway.com/passage/?search=John+19:36&version=KJV))
 
 The law of the Word never overlooks an inner word nor makes the smallest allowance for our ignorance of its power. It fashions life about us as we, by our Inner conversations, fashion life within ourselves. This is done to reveal to us our position on the playing field of life. There is no opponent in the game of life; there is only the goal.
@@ -45,7 +45,7 @@ In his ignorance of the power of the word, he is building barriers in the way of
 
 *"The fault, dear Brutus, is not in our stars, But in ourselves, that we are underlings."* (Julius Caesar: Act I, Scene II)
 
-As *"the worlds were framed by the Word of God"*, so we as *"imitators of God as dear children"* create the conditions and circumstances of our lives by our all-powerful human inner words.
+As *"the worlds were framed by the Word of [God](/glossary#god)"*, so we as *"imitators of God as dear children"* create the conditions and circumstances of our lives by our all-powerful human inner words.
 
 Without practice, the most profound knowledge of the game would produce no desired results.
 
@@ -59,7 +59,7 @@ This is what one woman did to turn the tracks to which she had been unhappily ti
 
 Upon hearing a lecture of mine one night - it was this very lecture on the game of life and how to play it - she suddenly realized she was the cause of the prolonged silence and that she, and she alone, must do something about it. Recognizing that her goal was to have the former loving relationship, she set herself the task of completely changing her inner talking.
 
-That very night, in her imagination, she constructed two loving, tender letters written to her, one from her daughter-in-law and the other from her grandson. In her imagination, she read them over and over again until she fell asleep in the joyful mood of having received the letters. She repeated this imaginary act each night for eight nights. On the morning of the ninth day, she received one envelope containing two letters, one from her daughter-in-law, one from her grandson. They were loving, tender letters inviting her to visit them, almost replicas of those she had constructed mentally. By using her imagination consciously and lovingly, she had turned the tracks to which she was tied, in the direction she wanted to go, towards a happy family reunion.
+That very night, in her [imagination](/glossary#imagination), she constructed two loving, tender letters written to her, one from her daughter-in-law and the other from her grandson. In her imagination, she read them over and over again until she fell asleep in the joyful mood of having received the letters. She repeated this imaginary act each night for eight nights. On the morning of the ninth day, she received one envelope containing two letters, one from her daughter-in-law, one from her grandson. They were loving, tender letters inviting her to visit them, almost replicas of those she had constructed mentally. By using her imagination consciously and lovingly, she had turned the tracks to which she was tied, in the direction she wanted to go, towards a happy family reunion.
 
 A change of attitude is a change of position on the playing field of life. The game of life is not being played out there in what is called space and time; the real moves in the game of life take place within, on the playing field of the mind.
 

@@ -2,7 +2,7 @@
 
 *"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
 
-DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.
+DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of [imagination](/glossary#imagination) to assert His supremacy over the elder or outer man of sense.
 
 *"The first shall be last and the last shall be first."* ([Matthew 19:30](https://www.biblegateway.com/passage/?search=Matthew+19:30&version=KJV))
 
@@ -16,13 +16,13 @@ In your limbs lie nations twain, rival races from their birth; one the mastery s
 
 There are two distinct centers of thought or outlooks on the world possessed by every man. The Bible speaks of these two outlooks as natural and spiritual.
 
-*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV))
+*"The natural man receiveth not the things of the Spirit of [God](/glossary#god): for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV))
 
 Man's inner body is as real in the world of subjective experience as his outer physical body is real in the world of external realities, but the inner body expresses a more fundamental part of reality.
 
 This existing inner body of man must be consciously exercised and directed.
 
-The inner world of thought and feeling to which the inner body is attuned has its real structure and exists in its own higher space.
+The inner world of thought and [feeling](/glossary#feeling) to which the inner body is attuned has its real structure and exists in its own higher space.
 
 There are two kinds of movement, one that is according to the inner body and another that is according to the outer body. The movement which is according to the inner body is causal, but the outer movement is under compulsion. The inner movement determines the outer which is joined to it, bringing into the outer a movement that is similar to the actions of the inner body. Inner movement is the force by which all events are brought to pass. Outer movement is subject to the compulsion applied to it by the movement of the inner body.
 
@@ -48,7 +48,7 @@ To which he replied, *"The pleasure is all mine."*
 
 Then she stepped from the car and heard the door snap shut as she closed it.
 
-She told me that she centered her imagination on being in a car and, although blind, viewed the city from her imaginary ride. She did not think of the ride. She thought from the ride and all that it implied. This controlled and subjectively directed purposive ride raised her imagination to its full potency. She kept her purpose ever before her, knowing there was cohesion in purposive inner movement. In these mental journeys an emotional continuity must be sustained – the emotion of fulfilled desire. Expectancy and desire were so intensely joined that they passed at once from a mental state into a physical act.
+She told me that she centered her imagination on being in a car and, although blind, viewed the city from her imaginary ride. She did not think of the ride. She thought from the ride and all that it implied. This controlled and subjectively directed purposive ride raised her imagination to its full potency. She kept her purpose ever before her, knowing there was cohesion in purposive inner movement. In these mental journeys an emotional continuity must be sustained – the emotion of fulfilled desire. Expectancy and desire were so intensely joined that they passed at once from a mental [state](/glossary#state) into a physical act.
 
 The inner self moves along the predetermined course best when the emotions collaborate. The inner self must be fired, and it is best fired by the thought of great deeds and personal gain. We must take pleasure in our actions.
 
@@ -60,7 +60,7 @@ Thus, the objects of her imagination were to her the realities of which the phys
 
 The determinative animating principle was the imaginative ride. Her triumph could be a surprise only to those who did not know of her inner ride. She mentally viewed the world from this imaginative ride with such a clearness of vision that every aspect of the city attained identity.
 
-These inner movements not only produce corresponding outer movements: this is the law which operates beneath all physical appearances.
+These inner movements not only produce corresponding outer movements: this is [the law](/glossary#the-law) which operates beneath all physical appearances.
 
 He who practices these exercises of bilocation will develop unusual powers of concentration and quiescence and will inevitably achieve waking consciousness on the inner and dimensionally larger world.
 

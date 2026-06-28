@@ -1,10 +1,10 @@
 # Your Faith Is Your Fortune - Chapter 4
 
-*"I have told you that I AM; if therefore ye seek me, let these go their way"* ([John 18:8](https://www.biblegateway.com/passage/?search=John+18:8&version=KJV))
+*"I have told you that [I AM](/glossary#i-am); if therefore ye seek me, let these go their way"* ([John 18:8](https://www.biblegateway.com/passage/?search=John+18:8&version=KJV))
 
 *"As soon then as he had said unto them, I AM they went backward and fell to the ground."* ([John 18:6](https://www.biblegateway.com/passage/?search=John+18:6&version=KJV))
 
-Today there is so much said about Masters, Elder Brothers, Adepts and initiates that numberless truth seekers are being constantly misled by seeking these false lights. For a price, most of these pseudo-teachers offer their students initiation into the mysteries, promising them guidance and direction, Man’s weakness for leaders, as well as his worship of idols, makes him an easy prey of these schools and teachers. Good will come to most of these enrolled students; they will discover after years of awaiting and sacrificing that they were following a mirage. They will then become disillusioned in their schools and teachers, and this disappointment will be worth the effort and price they have paid for their fruitless search. They will then turn from their worship of man and in so doing discover that which they are seeking is not to be found in another, for the Kingdom of Heaven is within. This realization will be their first real initiation. The lesson learned will be this: There is only one Master and this Master is God, the I AM within themselves.
+Today there is so much said about Masters, Elder Brothers, Adepts and initiates that numberless truth seekers are being constantly misled by seeking these false lights. For a price, most of these pseudo-teachers offer their students initiation into the mysteries, promising them guidance and direction, Man’s weakness for leaders, as well as his worship of idols, makes him an easy prey of these schools and teachers. Good will come to most of these enrolled students; they will discover after years of awaiting and sacrificing that they were following a mirage. They will then become disillusioned in their schools and teachers, and this disappointment will be worth the effort and price they have paid for their fruitless search. They will then turn from their worship of man and in so doing discover that which they are seeking is not to be found in another, for the Kingdom of Heaven is within. This realization will be their first real initiation. The lesson learned will be this: There is only one Master and this Master is [God](/glossary#god), the I AM within themselves.
 
 *“[I AM the Lord](/lectures/i-am-the-lord) thy God who led thee out of the land of darkness; out of the house of bondage.”* I AM, your awareness, is Lord and Master and besides your awareness there is neither Lord nor Master. You are Master of all that you will ever be aware of being.
 
@@ -42,15 +42,15 @@ Jesus established the identity of the Father as man’s awareness of being. *“
 
 Your awareness is the master magician who conjures all things by being that which he would conjure. This Lord and Master that you are can and does make all that you are conscious of being appear in your world.
 
-*“No man (manifestation) cometh unto me save my Father draw him and I and my Father are one.”* You are constantly drawing to yourself that which you are conscious of being. Change your conception of yourself from that of the slave to that of Christ. Don’t be embarrassed to make this claim; only as you claim, *“I AM Christ,”* will you do the works of Christ.
+*“No man (manifestation) cometh unto me save my Father draw him and I and my Father are one.”* You are constantly drawing to yourself that which you are conscious of being. Change your conception of yourself from that of the slave to that of [Christ](/glossary#christ). Don’t be embarrassed to make this claim; only as you claim, *“I AM Christ,”* will you do the works of Christ.
 
 *“The works I do ye shall do also, and greater works than these shall ye do, for I go unto my Father.”* *“He made himself equal with God and found it not robbery to do the works of God.”* Jesus knew that anyone who dared to claim himself to be Christ would automatically assume the capacities to express the works of his conception of Christ. Jesus also knew that the exclusive use of this principle of expression was not given to Him alone. He constantly referred to His Father in Heaven. He stated that His works would not only be equaled but that they would be surpassed by that man who dared to conceive himself to be greater than He (Jesus) had conceived Himself to be.
 
 Jesus, in stating that He and His Father were one but that His Father was greater than He, revealed His awareness (Father) to be one with that which He was aware of being. He found Himself as Father or awareness to be greater than that which He as Jesus was aware of being. You and your conception of yourself are one. You are and always will be greater than any conception you will ever have of yourself.
 
-Man fails to do the works of [Jesus Christ](/lectures/jesus-christ) because he attempts to accomplish them from his present level of consciousness. You will never transcend your present accomplishments through sacrifice and struggle. Your present level of consciousness will only be transcended as you drop the present state and rise to a higher level.
+Man fails to do the works of [Jesus Christ](/lectures/jesus-christ) because he attempts to accomplish them from his present level of consciousness. You will never transcend your present accomplishments through sacrifice and struggle. Your present level of consciousness will only be transcended as you drop the present [state](/glossary#state) and rise to a higher level.
 
-You rise to a higher level of consciousness by taking your attention away from your present limitations and placing it upon that which you desire to be. Do not attempt this in day-dreaming or wishful thinking but in a positive manner. Claim yourself to be the thing desired. I AM that; no sacrifice, no diet, no human tricks. All that is asked of you is to accept your desire. If you dare claim it, you will express it.
+You rise to a higher level of consciousness by taking your attention away from your present limitations and placing it upon that which you desire to be. Do not attempt this in day-dreaming or wishful thinking but in a positive manner. Claim yourself to be the thing desired. I AM that; no sacrifice, no [diet](/glossary#diet), no human tricks. All that is asked of you is to accept your desire. If you dare claim it, you will express it.
 
 Meditate on these. *“I rejoice not in the sacrifices of men. Not by might nor by power but by my spirit. Ask and you shall receive. Come eat and drink without price.”*
 
@@ -88,7 +88,7 @@ Imagine yourself to be the Christ. Conception always precedes expression. Change
 
 ### Follow Me
 
-Turn from problems, claim the desired state, and continue in its Assumption. Then you will know your true Master.
+Turn from problems, claim the desired state, and continue in its [Assumption](/glossary#assumption). Then you will know your true Master.
 
 
 

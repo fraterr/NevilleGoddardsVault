@@ -4,9 +4,9 @@ As Paul said to Timothy: *"Great indeed, we confess, is the mystery of our relig
 
 Speaking to his disciples, Jesus said: *"In that day you will know that I am in the Father, and you in me and I in you."* ([John 14](https://www.biblegateway.com/passage/?search=John+14&version=KJV)) The phrase *"in that day"* is an eschatological term meaning, *"at the end of the journey."* In other words, when this age of Caesar comes to its end, you will experience the truth of scripture, and - understanding - you will say: *"I am in the Father and you are in me and [I am in you](/lectures/i-am-in-you)."* 
 
-It is in you, as a person, that [the nature of God](/lectures/the-nature-of-god) reveals himself in a series of supernatural experiences. When these take place in a first person, singular, present tense experience, all arguments, doubts, and questions regarding your true identity are hushed. From that moment on, like Paul, you will say: "When it pleased God to reveal his son in me, I conferred not with flesh and blood. I did not receive my gospel from a man. I was not taught it. It came through a revelation of [Jesus Christ](/lectures/jesus-christ). 
+It is in you, as a person, that [the nature of God](/lectures/the-nature-of-god) reveals himself in a series of supernatural experiences. When these take place in a first person, singular, present tense experience, all arguments, doubts, and questions regarding your true identity are hushed. From that moment on, like Paul, you will say: "When it pleased [God](/glossary#god) to reveal his son in me, I conferred not with flesh and blood. I did not receive my gospel from a man. I was not taught it. It came through a revelation of [Jesus Christ](/lectures/jesus-christ). 
 
-While in Barbados this summer, my sister asked if my Christ was once a man. My answer to her undoubtedly was the same Paul gave when asked a similar question. I said: *"Was? He is the heavenly man!"* Then quoting Paul I said: *"Just as we have borne the image of the man of dust, we shall also bear the image of the man of heaven."* 
+While in Barbados this summer, my sister asked if my [Christ](/glossary#christ) was once a man. My answer to her undoubtedly was the same Paul gave when asked a similar question. I said: *"Was? He is the heavenly man!"* Then quoting Paul I said: *"Just as we have borne the image of the man of dust, we shall also bear the image of the man of heaven."* 
 
 Do not think of Christ as some little boy who was born in some strange manner two thousand years ago. We are dealing with a cosmic principle, where God actually became man that man may become God. 
 
@@ -14,7 +14,7 @@ The process has started. Resurrection has begun, but it is not over. Those who t
 
 I have stood in the presence of the Risen Lord. I leave seen the Ancient of Days, who is gathering us one by one into his body to become one body, one Spirit, one Lord, one God and Father of all. 
 
-You, as a person, will not be less than the Risen Lord, for there is only one Spirit. There is only one Lord and you will know yourself to be He! No one will be above you. I AM the same body, the same Lord, the same Spirit, the same God and Father of all. Without loss of identity, we will all know ourselves to be this one unity of being. We will know from experience that I AM in you and you are in me! 
+You, as a person, will not be less than the Risen Lord, for there is only one Spirit. There is only one Lord and you will know yourself to be He! No one will be above you. [I AM](/glossary#i-am) the same body, the same Lord, the same Spirit, the same God and Father of all. Without loss of identity, we will all know ourselves to be this one unity of being. We will know from experience that I AM in you and you are in me! 
 
 When I had finished explaining this to Daphne, I don't think she was any more impressed than that chair over there. It takes time, but it is so important for you to let go of all intermediaries between yourself and God! 
 
@@ -63,7 +63,7 @@ Either that man or no man, yet they have married another. What they really wante
 
 Know what you want in life and do not condition it. If your desire is to be happily married, claim you are. Wanting a certain home, claim you have it. Don't think you cannot afford it, simply play the wishing game. 
 
-Find your desire in God's wish book. Speaking to you through the medium of desire, make your desire real by feeling its truth. View the world from its fulfillment. Lose yourself in the feeling of possession and give it all the tones of reality. Fulfill every desire as you walk towards the fulfillment of your real purpose in life, which is to awaken God in you. 
+Find your desire in God's wish book. Speaking to you through the medium of desire, make your desire real by [feeling](/glossary#feeling) its truth. View the world from its fulfillment. Lose yourself in the feeling of possession and give it all the tones of reality. Fulfill every desire as you walk towards the fulfillment of your real purpose in life, which is to awaken God in you. 
 
 You are not going to become a little god to run around with other little gods, for there is only one God. Don't forget the great Sh'ma: *"Hear O Israel, the Lord our God, the Lord is one."* You are destined to awaken as that one God and Father of all. 
 
@@ -77,7 +77,7 @@ In the parable the actor takes a little child in his arms and says: *"This is th
 
 In the not distant future you will depart this world to discover that death will force you to modify, or radically change, any ideas which you have championed here. I received a notice today that my good friend, Randy, died. In 1952, while recuperating from a serious operation, Randy came to the hospital to visit me. He was my physician as well as my friend, but was not aware of what I teach. Seeing the Bible I had brought with me, Randy questioned my interest in it. 
 
-Taking the story of Esau and Jacob, I told him how Esau represented my outer world. That I could close my eyes to it and clothe Jacob (who represented what I wanted clothed in outer reality) with the skins of Esau. Believing in the reality of what I am doing, I deceive myself into believing that my subjective state is now an objective reality. 
+Taking the story of Esau and Jacob, I told him how Esau represented my outer world. That I could close my eyes to it and clothe Jacob (who represented what I wanted clothed in outer reality) with the skins of Esau. Believing in the reality of what I am doing, I deceive myself into believing that my subjective [state](/glossary#state) is now an objective reality. 
 
 Well, to Randy that was not religion. To him religion meant going to church every Sunday morning and spending an hour there. That was something to be done, like walking with a cane because you had one and felt undressed without it. His week was not complete unless he went to church on Sunday. Randy has been gone now a few weeks and, undoubtedly is now modifying his beliefs - but it will take time. 
 
@@ -119,7 +119,7 @@ Now let us go into the silence.
 
 ### God's Plan and Human Desires
 - God's plan unfolds in individuals, and their desires are important in achieving that plan.
-- Imagining creates reality, and desires can be fulfilled through the power of imagination.
+- Imagining creates reality, and desires can be fulfilled through the power of [imagination](/glossary#imagination).
 - Individuals are destined to awaken as the one God and Father of all.
 
 ### Understanding Scripture and Awakening as God

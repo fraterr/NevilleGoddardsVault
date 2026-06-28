@@ -1,12 +1,12 @@
 # What Are You Doing
 
-Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For God's name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human imagination and there is [no other God](/lectures/no-other-god). 
+Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For [God](/glossary#god)'s name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human [imagination](/glossary#imagination) and there is [no other God](/lectures/no-other-god). 
 
 When you imagine you may include others, but do not think in terms of influence. Rather, think only in terms of clarity of form. 
 
 Perhaps a friend would like a better job, more money, and greater responsibility. Before you imagine, take a moment and clarify the form your imaginal act will take. Are you giving the celebration party or is he? Who will be there? Fill the room with those who would want to share in the celebration. Raise your glass and say: *"Here's to your fabulous new job, your salary increase, and the challenge of your greater responsibility!"* Don't think in terms of trying to influence the friend's boss, for he could die or be discharged. Just go to the end. Toast the event, and do not think of influencing others. 
 
-The law, to be effective, needs feeling with form. Build a structure that would imply your desire is already fulfilled, and enter its form with feeling. You do not have to be concerned about influencing others, as they are not the cause - your imaginal act is! Those who have a billion dollars are not causing your world. You and you alone are doing it, as your imaginal acts influence people. Everyone is yourself pushed out, so when you imagine, you are influencing yourself! 
+[The law](/glossary#the-law), to be effective, needs [feeling](/glossary#feeling) with form. Build a structure that would imply your desire is already fulfilled, and enter its form with feeling. You do not have to be concerned about influencing others, as they are not the cause - your imaginal act is! Those who have a billion dollars are not causing your world. You and you alone are doing it, as your imaginal acts influence people. Everyone is yourself pushed out, so when you imagine, you are influencing yourself! 
 
 Knowing what you want, place your attention on its clarity of form, and then watch what you are imagining. Are you remembering when you imagined something greater than what you have? If so, you are confessing you are not now imagining your desire fulfilled. If imagining creates reality, you must change your memory and become aware of what you are imagining right now. 
 
@@ -48,15 +48,15 @@ The moment you think of influence, you reduce a miracle to magic. All the people
 
 Blake tells us to enter into - not just observe, but enter into - images in our imagination. To approach them on the fiery chariot of contemplative thought. To make a friend and companion of any one of these images of wonder, for if we will, we will rise from the grave and meet the Lord in the air and be happy. 
 
-Let us say you are in Los Angeles and want to be in New York City. You could enter the city on the fiery chariot of your contemplative thought by thinking from it, and no longer thinking from Los Angeles. You enter New York City by rising from your grave of flesh and blood in Los Angeles and meeting your Lord (your I AM) in the air. Do that and you will be happy in the doing, for that is how reality is created. 
+Let us say you are in Los Angeles and want to be in New York City. You could enter the city on the fiery chariot of your contemplative thought by thinking from it, and no longer thinking from Los Angeles. You enter New York City by rising from your grave of flesh and blood in Los Angeles and meeting your Lord (your [I AM](/glossary#i-am)) in the air. Do that and you will be happy in the doing, for that is how reality is created. 
 
-When you enter the state you desire to express and believe it is true, no earthly power can stop it from objectifying itself. And although you do not deliberately influence others, you influence everyone. As Sir James [Frazer?] said: *"A man on this planet cannot raise a hand without influencing the farthest star in the heavens in its unified form."*
+When you enter the [state](/glossary#state) you desire to express and believe it is true, no earthly power can stop it from objectifying itself. And although you do not deliberately influence others, you influence everyone. As Sir James [Frazer?] said: *"A man on this planet cannot raise a hand without influencing the farthest star in the heavens in its unified form."*
 
 Practice the art of imagining, and you will discover you can go anywhere and enter any time without the aid of anyone. Move in your imagination, and people will respond because of your action. Dare to assume you are wealthy, and watch everyone play their parts to provide you with the wealth you claim to have. They will, for they are only yourself pushed out. 
 
 The world goes on and on, as the actors - playing their numberless parts - desire more and more things that vanish. Man is forever fighting for something that passes away; yet he is told: *"Do not lay up treasures on earth where thieves can take and the moth corrupt, but lay up treasures in heaven where no man can take from you."*
 
-The treasures of earth can be withdrawn at any moment, but the treasures in the instructions I am giving you now are forever. Only one being was pierced, and that is [Jesus Christ](/lectures/jesus-christ), your true identity. The crucifixion is over. You have been crucified with Christ, and your resurrection will take place in you, in its own wonderful time. 
+The treasures of earth can be withdrawn at any moment, but the treasures in the instructions I am giving you now are forever. Only one being was pierced, and that is [Jesus Christ](/lectures/jesus-christ), your true identity. The crucifixion is over. You have been crucified with [Christ](/glossary#christ), and your resurrection will take place in you, in its own wonderful time. 
 
 I ask you to test your imagination! Go all out and believe in what you have imagined. Do not try to influence anyone. Instead, put all of your energies into clarity of form. 
 

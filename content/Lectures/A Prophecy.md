@@ -2,13 +2,13 @@
 
 In his poem called *"Europe,"* which is a prophecy about you, William Blake said: *"Then Enitharmon woke, nor knew that she had slept, and eighteen hundred years were fled as if they had not been."* 
 
-Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los Dreams it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
+Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all [imagination](/glossary#imagination). Entering into his image (his Enitharmon), Los Dreams it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
 
 In my case, 1,959 years had fled as though they had not been. And I had no idea I had entered into an image called Neville and made it real. But I, all imagination, so loved the shadow I had cast, I entered into it and made it alive. 
 
 To those in immortality I seemed to be as one sleeping on a couch of gold, but to myself I was a wanderer. Although lost in dreary night, I kept the divine vision in time of trouble. I kept on dreaming I was Neville until I awoke, not knowing I had slept; yet 1,959 years had fled as though they had not been. 
 
-Blake tells us that in the beginning we were all united with God in a death like his. Then we heard the story and entered into our shadows. Now, a shadow is a representation, either in painting or drama, in distinction from the reality portrayed. Paul recognized the shadow when he asked the Galatians: *"Who has bewitched you, before whose eyes [Jesus Christ](/lectures/jesus-christ) was publicly portrayed as crucified. Let me ask you only this: did you receive the spirit by works of the law or by hearing with faith? Are you so foolish, having begun with the spirit are you now ending with the flesh, by seeing Jesus Christ as someone on the outside?"*
+Blake tells us that in the beginning we were all united with [God](/glossary#god) in a death like his. Then we heard the story and entered into our shadows. Now, a shadow is a representation, either in painting or drama, in distinction from the reality portrayed. Paul recognized the shadow when he asked the Galatians: *"Who has bewitched you, before whose eyes [Jesus Christ](/lectures/jesus-christ) was publicly portrayed as crucified. Let me ask you only this: did you receive the spirit by works of [the law](/glossary#the-law) or by hearing with faith? Are you so foolish, having begun with the spirit are you now ending with the flesh, by seeing Jesus [Christ](/glossary#christ) as someone on the outside?"*
 
 Having heard the story of Jesus Christ, you are called upon to enter into it as the central character and remain there until the story externalizes itself. 
 
@@ -25,7 +25,7 @@ In this world of Caesar it could take an hour, a day, a week, or a month, to awa
 
 In his book of Milton, Blake tells us that when he entered into his shadow, he appeared to those in immortality as one asleep on a couch of gold. But to himself he was a wanderer, lost in dreary night. Is that not the story of everyone? Lost and confused, imagination is faithful to the image he has assumed, saying: I am John, I am Ray, or I am Natalie. 
 
-Now in the image of the being I fell in love with, Neville is my emanation, my shadow, and the image I have been faithful to. Many a time I have thought myself a wanderer in dreary night, confused and not knowing where to turn for a dollar. But those who contemplate on death saw me as one asleep on a couch of gold. They knew the purpose behind my entering into the state of sleep, but they did not know what I was experiencing. 
+Now in the image of the being I fell in love with, Neville is my emanation, my shadow, and the image I have been faithful to. Many a time I have thought myself a wanderer in dreary night, confused and not knowing where to turn for a dollar. But those who contemplate on death saw me as one asleep on a couch of gold. They knew the purpose behind my entering into the [state](/glossary#state) of sleep, but they did not know what I was experiencing. 
 
 You are in this world because you are in love with the being you believe yourself to be. You may say that is not true, but I say it is impossible for thought greater than itself to know. Do not believe anyone who claims to know. Do not believe anyone who claims to love someone else more than they do themselves, for they do not. It is impossible for thought to be greater than the image it believes itself to be. Yes, you want companionship, security, and health, for these are all part of the image you fell in love with and entered.
 
@@ -35,7 +35,7 @@ Now, in this world a man who wants to be a success in business can sit down and 
 
 God enters into the image of every child born of woman to give it life. At that moment God's real and immortal self is - to those who dwell in immortality - as one sleeping on a couch of gold; but to himself he seems a wanderer, lost in dreary night. The day will come when he will awake and - unknown to him, 1800 or 2000 years will have fled as if they had not been. 
 
-Use the same technique God used to become you. As one whose name forever is I AM, God fell in love with you, his image, and entered it. Now knowing you are, you say I am; so God is occupying his image and now answers to the name you were given at birth.
+Use the same technique God used to become you. As one whose name forever is [I AM](/glossary#i-am), God fell in love with you, his image, and entered it. Now knowing you are, you say I am; so God is occupying his image and now answers to the name you were given at birth.
 
 Intrigued by the idea of expressing himself in a body of flesh and blood, God entered this body by dreaming he is Neville. God laid himself down within me to sleep, and as he slept he dreamed he was I; for 1,959 years later, when God awoke, I knew not that I had slept. And, upon reflection, it was as though it had not been; for when God achieved his objective (which was to awake) and was conscious of the fact that he was the one he loved, all time vanished. 
 
@@ -81,7 +81,7 @@ Having fallen in love with your image, God entered that shadow and made it alive
 
 At one time, that which you have so identified yourself with was only a shadow, an image God entered. It was dead, and by God's entry, He made it a living being. And when God awakes, that living being becomes a life-giving spirit. 
 
-If it is a true awakening, and not just a fore-shadowing, the drama called Jesus Christ will unfold in 1,260 days, as foretold in scripture. Do not be discouraged if your visions are fore-shadowings; the promise will be fulfilled, for you are keeping the vision in time of trouble. At times, like Peter you may have denied that you are God, but you are still keeping the divine vision. 
+If it is a true awakening, and not just a fore-shadowing, the drama called Jesus Christ will unfold in 1,260 days, as foretold in scripture. Do not be discouraged if your visions are fore-shadowings; [the promise](/glossary#the-promise) will be fulfilled, for you are keeping the vision in time of trouble. At times, like Peter you may have denied that you are God, but you are still keeping the divine vision. 
 
 I fell in love with being Neville, as you fell in love with the being you are now. You have dreamed poverty into being, health, being loved, being ignored, but you have never lost your vision of individuality You will never lose it, for that is the one you fell in love with. And in the end you will awaken as God, individualized. You will know yourself to be a life-giving spirit as you move towards ever greater and greater individualization. That is the purpose of the entire drama, and that is what Christmas means. 
 
@@ -108,7 +108,7 @@ Now let us go into the silence.
 
 ### Assume Your Desired State
 
-- As God did, assume the feeling of your wish fulfilled and enter that state
+- As God did, assume the [feeling](/glossary#feeling) of your wish fulfilled and enter that state
 - Persist until you become one with it, forgetting all else
 
 ### God Becomes You

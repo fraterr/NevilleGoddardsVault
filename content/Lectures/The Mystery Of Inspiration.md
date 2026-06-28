@@ -2,11 +2,11 @@
 
 Inspiration is a divine action which qualifies the individual to receive and communicate sacred revelation. The prophets, apostles, and incurrent eyewitnesses are those who receive such inspiration. 
 
-The prophets' visions are foreshortened. They see as present what is really future. Prophesying of the grace that is to be yours, they searched and inquired what person or what time was indicated by the spirit of Christ in them, when they predicted the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving not themselves, but you! 
+The prophets' visions are foreshortened. They see as present what is really future. Prophesying of the grace that is to be yours, they searched and inquired what person or what time was indicated by the spirit of [Christ](/glossary#christ) in them, when they predicted the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving not themselves, but you! 
 
 The apostles are sent by the Risen Lord to fulfill the prophecies of the Old Testament and to share their experiences with all. 
 
-Individual man, having been conditioned to believe that God is somewhere in space as someone on the outside, cannot believe that everything he beholds is within his own human imagination. But it is. 
+Individual man, having been conditioned to believe that [God](/glossary#god) is somewhere in space as someone on the outside, cannot believe that everything he beholds is within his own human [imagination](/glossary#imagination). But it is. 
 
 We are told: *"He who receives you, receives me, and he who receives me, receives him who sent me. If Christ is in you, although your body is dead, he who raised Christ Jesus from the dead will raise you also through his Spirit within you."* ([Matthew 10](https://www.biblegateway.com/passage/?search=Matthew+10&version=KJV) & [Romans 8](https://www.biblegateway.com/passage/?search=Romans+8&version=KJV)) The first quote, from Matthew, tells you that God is in you, for the writers of the New Testament identify the Christ who governs your life with Jehovah, who inspired the prophets. 
 
@@ -16,11 +16,11 @@ But how do I convince you that the Lord God Jehovah is actually in you? That Jeh
 
 The prophets equate the Rock with the Lord God Jehovah. This I know to be true. One day I sat in the silence, when quartz appeared before my vision. As I watched, the rock fragmented into numberless pieces and instantly molded itself into the human form, seated in the lotus posture in profound Meditation. As I realized I was looking at myself, the form began to glow. It increased in intensity until it reached the limit of translucency. Then it exploded and my vision came to its end. Now I know I am the Rock that begot me. 
 
-Out of that solid state of death comes life, for you put this limit of contraction and opacity called Man upon yourself. At the present time three and a half billion of us walk the earth, individualized, because the being which gives us life is asleep. 
+Out of that solid [state](/glossary#state) of death comes life, for you put this limit of contraction and opacity called Man upon yourself. At the present time three and a half billion of us walk the earth, individualized, because the being which gives us life is asleep. 
 
 Believing the world is taking place independent of our perception, we do not realize that our Dreams are projecting themselves on this screen of space, and that we are in conflict with our Dreams. But one day God will awaken within your dead body; and when he does, all of the imagery of scripture will surround you, identifying you as the central figure of the Bible -- the Lord God [Jesus Christ](/lectures/jesus-christ). 
 
-Scripture is all about God, as there is no one else. God and his name are one! That name is I AM! Falling asleep, God breathed upon your body and it became animated, as He Dreams your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest Dreams, for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
+Scripture is all about God, as there is no one else. God and his name are one! That name is [I AM](/glossary#i-am)! Falling asleep, God breathed upon your body and it became animated, as He Dreams your world into being. One day God will awaken and all of your confusion will end. Then you will take off your garment of death to return to the being you were before that the world was. You will be enhanced beyond your wildest Dreams, for there is no limit to your expansion and translucency. A limit was set to contraction and opacity, which is the body of death called Man; but your expansion and translucency is limitless. 
 
 Who would have thought that the imagery recorded in the 32nd chapter of Deuteronomy was true: *"Of the Rock that begot you, you are unmindful and have forgotten the God who gave you life."* In this verse God is equated with the Rock that fragmented itself and is defused in all. 
 
@@ -60,7 +60,7 @@ When you tell your experiences to all who will listen, few will believe you, for
 
 It is the Christ within man who is his hope of glory. That is the Christ who fulfills scripture. Having had scripture fulfill itself in me, I have interpreted to you in all the scriptures the things concerning - not a man called Neville, but God's power, in me, called Christ. 
 
-Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your Assumption. 
+Do not be embarrassed when I tell you that you are God. Instead, walk believing you are that important. You don't have to become arrogant, but you must assume you are God. Think about it! Stop believing in God and start believing as God. Do this and the visions will come to confirm your [Assumption](/glossary#assumption). 
 
 Scripture is all about Christ, the Jehovah you are. The spirit and the flesh are one; therefore, when David appears, in vision, you are revealing your true identity to yourself. This I know, for I have found David. He called me Lord. I know I am the Rock that begot him, for I have played all of the fragmented parts and put them together to form David. 
 
@@ -68,7 +68,7 @@ When David calls you father, the Rock of his salvation, you will remember you ar
 
 Today, as in the past, people believe scripture will be fulfilled in a secular manner. But while occupying their garment of death, everyone will individually fulfill [God's word](/lectures/god-s-word). 
 
-You are destined to know the power of stopping and starting time. Possessed by the Spirit, you will be taken into a room. Knowing intuitively who you are and the power you are feeling, you will arrest that activity within you and everything will stand still. As you examine that which was so alive and seemingly independent of your perception only a moment ago, you will discover it is all dead. Then, releasing their activity in your imagination, everything will once more become animated and continue its purpose. If a bird was in flight when you arrested it, it will continue to fly when released. If someone is carrying food to a table when arrested - although you can keep them in that position for as long as you like - when you release the power you know yourself to be, they will continue to serve the meal as if nothing had happened. 
+You are destined to know the power of stopping and starting time. Possessed by the Spirit, you will be taken into a room. Knowing intuitively who you are and the power you are [feeling](/glossary#feeling), you will arrest that activity within you and everything will stand still. As you examine that which was so alive and seemingly independent of your perception only a moment ago, you will discover it is all dead. Then, releasing their activity in your imagination, everything will once more become animated and continue its purpose. If a bird was in flight when you arrested it, it will continue to fly when released. If someone is carrying food to a table when arrested - although you can keep them in that position for as long as you like - when you release the power you know yourself to be, they will continue to serve the meal as if nothing had happened. 
 
 Can you imagine doing that? I tell you it is true, but as long as you identify yourself with a body of death and believe it is you, you will not realize you are your own hope of glory. 
 

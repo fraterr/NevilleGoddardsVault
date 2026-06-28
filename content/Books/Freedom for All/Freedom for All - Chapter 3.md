@@ -8,7 +8,7 @@ The Bible tells us that Noah had three sons, Shem, Ham and Japheth ([Genesis 6:1
 
 The first son is called Shem, which means name. Ham, the second son, means warm, alive. The third son is called Japheth, which means extension. You will observe that Noah and his three sons Shem, Ham and Japheth contain the same formula of creation as does the divine name of JOD HE VAU HE.
 
-Noah, the Father, the conceiver, the builder of a new world is equivalent to the JOD, or unconditioned consciousness, I AM. Shem is your desire; that which you are conscious of; that which you name and define as your objective, and is equivalent to the second letter in the divine name (HE). Ham is the warm, live state of feeling, which joins or binds together consciousness desiring and the thing desired, and is therefore equivalent to the third letter in the divine name, the VAU. The last son, Japheth, means extension, and is the extended or objectified state bearing witness of the subjective state and is equivalent to the last letter in the divine name, HE.
+Noah, the Father, the conceiver, the builder of a new world is equivalent to the JOD, or unconditioned consciousness, [I AM](/glossary#i-am). Shem is your desire; that which you are conscious of; that which you name and define as your objective, and is equivalent to the second letter in the divine name (HE). Ham is the warm, live [state](/glossary#state) of [feeling](/glossary#feeling), which joins or binds together consciousness desiring and the thing desired, and is therefore equivalent to the third letter in the divine name, the VAU. The last son, Japheth, means extension, and is the extended or objectified state bearing witness of the subjective state and is equivalent to the last letter in the divine name, HE.
 
 You are Noah, the knower, the creator.
 
@@ -32,11 +32,11 @@ To feel the presence of the thing desired, to subjectively actualize a state by 
 
 Your present objectified world is Japheth which was made visible by Ham. Therefore Ham serves his brothers Shem and Japheth, for without feeling which is symbolized as Ham, the idea or thing desired (Shem) could not be made visible as Japheth.
 
-The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh (John 1:14). *"And God calleth things that be not as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
+The ability to feel the unseen, the ability to actualize and make real a definite subjective state through the sense of [feeling is the secret](/books/feeling-is-the-secret/feeling-is-the-secret) of creation, the secret by which the word or unseen desire is made visible – is made flesh (John 1:14). *"And [God](/glossary#god) calleth things that be not as though they were"* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV)).
 
 Consciousness calls things that are not seen as though they were, and it does this by first defining itself as that which it desires to express, and second by remaining within the defined state until the invisible becomes visible.
 
-Here is the perfect working of the law according to the story of Noah. This very moment you are aware of being. This awareness of being, this knowing that you are, is Noah, the creator.
+Here is the perfect working of [the law](/glossary#the-law) according to the story of Noah. This very moment you are aware of being. This awareness of being, this knowing that you are, is Noah, the creator.
 
 Now with Noah’s identity established as your own consciousness of being, name something that you would like to possess or express; define some objective (Shem), and with your desire clearly defined, close your eyes and feel that you have it or are expressing it.
 

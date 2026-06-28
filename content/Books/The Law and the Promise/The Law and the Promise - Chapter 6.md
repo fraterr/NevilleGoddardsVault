@@ -1,6 +1,6 @@
 # The Law and the Promise - Chapter 6
 
-*"The Nature of Visionary Fancy, or Imagination, is very little known, & the External nature & permanence of its ever Existent Images is consider'd as less permanent than the things of Vegetative & Generative Nature; yet the Oak dies as well as the Lettuce, but Its Eternal image & Individuality never dies, but renews by its seed; just so the Imaginative Image returns by the seed of Contemplative Thought."* (William Blake)
+*"The Nature of Visionary Fancy, or [Imagination](/glossary#imagination), is very little known, & the External nature & permanence of its ever Existent Images is consider'd as less permanent than the things of Vegetative & Generative Nature; yet the Oak dies as well as the Lettuce, but Its Eternal image & Individuality never dies, but renews by its seed; just so the Imaginative Image returns by the seed of Contemplative Thought."* (William Blake)
 
 The images of our imagination are the realities of which any physical manifestation is only the shadow.
 
@@ -10,7 +10,7 @@ We speak of the *"reality"* of a thing when we mean its material substance. That
 
 Imagining is [spiritual sensation](/lectures/spiritual-sensation).
 
-Enter into the feeling of your wish fulfilled. Through spiritual sensation — through your use of imaginal sight, sound, scent, taste and touch — you will give to your image the sensory vividness necessary to produce that image in your outer or shadow world.
+Enter into the [feeling](/glossary#feeling) of your wish fulfilled. Through spiritual sensation — through your use of imaginal sight, sound, scent, taste and touch — you will give to your image the sensory vividness necessary to produce that image in your outer or shadow world.
 
 Here is the story of one who was faithful to his vision. F.B. being a true imaginist, remembered what he had heard in his imagination. Thus he writes:
 
@@ -26,7 +26,7 @@ Approaching the salesman I had seen in imagination that morning, I said, 'Do you
 
 *"As I turned to leave the shop, I noticed on a top shelf what I thought to be an advertisement of this set of records and remarked to the salesman, 'If you don't have the merchandise, you shouldn't advertise it.' 'That's right', he replied, and as he reached up to take it down, discovered it to be a complete album, with all five records! The scene wasn't played exactly as I had constructed it, but the result confirmed what my imagined scene implied. How can I thank you?"* ...F.B.
 
-After reading F.B.'s letter, we must agree with Anthony Eden that *"An Assumption, though false, if persisted in, will harden into fact."* F.B.'s fancy, fusing with the sense-field of the record shop, enriched aspects of it and made them 'his' — what he perceived.
+After reading F.B.'s letter, we must agree with Anthony Eden that *"An [Assumption](/glossary#assumption), though false, if persisted in, will harden into fact."* F.B.'s fancy, fusing with the sense-field of the record shop, enriched aspects of it and made them 'his' — what he perceived.
 
 Our future is our imagining in its creative march. F.B. used his imagination for a conscious purpose representing life as he desired it to be and thereby affecting life instead of merely reflecting it. So sure was he that his imaginal drama was the reality — and the physical act but a shadow — that when the salesman said *"No, we haven't"*, F.B. mentally said, *"That's not what I heard you say!"* He not only remembered what he had heard, but he was still remembering it. Imagining the wish fulfilled is the seeking that finds, the asking that receives, the knocking to which is opened. He saw and heard what he desired to see and hear; and would not take *"No, we haven't"* for an answer.
 
@@ -42,7 +42,7 @@ Mrs. G.R., too, had imaginatively heard what she wanted to physically hear and k
 
 "The broker asked us to sign a paper which he said was not binding in any way but would give him first chance at the sale if our other deal went through. We signed the paper and later learned that in California Real Estate law nothing could have been more binding. A few days later our deal for the new property fell through so we notified this broker and his verbal response was, 'Well, just forget it'. Two weeks later he filed suit against us for fifteen hundred dollars commission. Trial date was set and we asked for a jury trial.
 
-"Our attorney assured us he would do all he could, but that the law on this particular point was so stringent that he could not see any possibility of our winning the case.
+"Our attorney assured us he would do all he could, but that [the law](/glossary#the-law) on this particular point was so stringent that he could not see any possibility of our winning the case.
 
 "When time for the trial arrived, my husband was in the hospital and could not appear with me in our defense. I had no witnesses; but the broker brought three attorneys and a number of witnesses into court against us. Our attorney now told me we had not the slightest chance to win.
 

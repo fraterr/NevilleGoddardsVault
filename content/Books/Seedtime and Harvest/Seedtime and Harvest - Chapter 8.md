@@ -1,6 +1,6 @@
 # Seedtime and Harvest - Chapter 8
 
-*“…Except a man be born again he cannot see the kingdom of God.”*
+*“…Except a man be born again he cannot see the kingdom of [God](/glossary#god).”*
 ([John 3:3](https://www.biblegateway.com/passage/?search=John+3:3&version=KJV))
 
 *“But one of the soldiers with a spear pierced his side, and forthwith came there out blood and water.”*
@@ -30,7 +30,7 @@ He may, for example not literally steal the property of another, and yet see the
 
 “And if children, then heirs;
 heirs of God, and joint-heirs
-with Christ…”
+with [Christ](/glossary#christ)…”
 …[Romans 8:17](https://www.biblegateway.com/passage/?search=Romans+8:17&version=KJV)
 
 To know what to do about a seeming misfortune is to have the *“cup of water”* – the psychological Truth – that could save the situation. But such knowledge is not enough. Man must not only *“fill the water pots of stone with water”* – that is, discover the psychological truth – into wine.
@@ -48,7 +48,7 @@ To know what to do to save yourself or another is not enough; you must do it.
 
 Knowledge of what to do is water; doing it is blood.
 
-This is he that came not by water only, but by water and blood.” The whole of this mystery is in the conscious, active use of imagination to appropriate that particular state of consciousness that would save you or another from the present limitation. Outward ceremonies cannot accomplish this.
+This is he that came not by water only, but by water and blood.” The whole of this mystery is in the conscious, active use of [imagination](/glossary#imagination) to appropriate that particular [state](/glossary#state) of consciousness that would save you or another from the present limitation. Outward ceremonies cannot accomplish this.
 
 *“… there shall meet you a man bearing a pitcher of water; follow him. And wheresoever he shall go in, say ye to the goodman of the house, The Master saith, Where is the guest-chamber, where I shall eat the Passover with my disciples? And he will show you a large upper room furnished and prepared: there make ready for us.”*
 
@@ -56,7 +56,7 @@ Whatever you desire is already *“furnished and prepared”*.
 
 Your imagination can put you in touch inwardly with that state of consciousness. If you imagine that you are already the one you want to be, you are following the *“man bearing a pitcher of water”*. If you remain in that state, you have entered the guest-chamber – Passover – and committed your spirit into the hands of God – your consciousness.
 
-A man’s state of consciousness is his demand on the Infinite Store House of God, and, like the law of commerce, a demand creates a supply.
+A man’s state of consciousness is his demand on the Infinite Store House of God, and, like [the law](/glossary#the-law) of commerce, a demand creates a supply.
 
 To change the supply, you change the demand – your state of consciousness.
 
@@ -66,7 +66,7 @@ But your savior – the solution of your problem – cannot be manifested by suc
 
 It can be realized only as such knowledge is applied.
 
-Only as you assume the feeling of your wish fulfilled, and continue therein, is your side pierced; from whence cometh blood and water”. In this manner only is Jesus – the solution of your problem – realized.
+Only as you assume the [feeling](/glossary#feeling) of your wish fulfilled, and continue therein, is your side pierced; from whence cometh blood and water”. In this manner only is Jesus – the solution of your problem – realized.
 
 *“for thou must know that in the government of the mind thou art thine own lord and master, that there will rise up no fire in the circle or whole circumference of thy body and spirit, unless thou awakes it thyself.”*
 

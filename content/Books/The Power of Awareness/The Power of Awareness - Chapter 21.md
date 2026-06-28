@@ -1,12 +1,12 @@
 # The Power of Awareness - Chapter 21
 
-The question is often asked, *“What should be done between the Assumption of the wish fulfilled and its realization?”* Nothing. It is a delusion that, other than assuming the feeling of the wish fulfilled, you can do anything to aid the realization of your desire. You think that you can do something, you want to do something; but actually you can do nothing. The illusion of the free will to do is but ignorance of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) upon which all action is based. Everything happens automatically. All that befalls you, all that is done by you happens. Your assumptions, conscious or unconscious, direct all thought and action to their fulfillment. To understand the law of Assumption, to be convinced of its truth, means getting rid of all the illusions about free will to act. Free will actually means freedom to select any idea you desire. By assuming the idea already to be a fact, it is converted into reality. Beyond that, free will ends and everything happens in harmony with the concept assumed.
+The question is often asked, *“What should be done between the [Assumption](/glossary#assumption) of the wish fulfilled and its realization?”* Nothing. It is a delusion that, other than assuming the [feeling](/glossary#feeling) of the wish fulfilled, you can do anything to aid the realization of your desire. You think that you can do something, you want to do something; but actually you can do nothing. The illusion of the free will to do is but ignorance of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) upon which all action is based. Everything happens automatically. All that befalls you, all that is done by you happens. Your assumptions, conscious or unconscious, direct all thought and action to their fulfillment. To understand [the law](/glossary#the-law) of Assumption, to be convinced of its truth, means getting rid of all the illusions about free will to act. Free will actually means freedom to select any idea you desire. By assuming the idea already to be a fact, it is converted into reality. Beyond that, free will ends and everything happens in harmony with the concept assumed.
 
 I can of mine own self do nothing... because I seek not mine own will, but the will of the Father which hath sent me.
 
-In this quotation the Father obviously refers to God.
+In this quotation the Father obviously refers to [God](/glossary#god).
 
-In an earlier chapter, God is defined as I AM. Since creation is finished, the Father is never in a position of saying *“I will be.”* In other words, everything exists, and the infinite I AM consciousness can speak only in the present tense.
+In an earlier chapter, God is defined as [I AM](/glossary#i-am). Since creation is finished, the Father is never in a position of saying *“I will be.”* In other words, everything exists, and the infinite I AM consciousness can speak only in the present tense.
 
 Not my will but thine be done.
 

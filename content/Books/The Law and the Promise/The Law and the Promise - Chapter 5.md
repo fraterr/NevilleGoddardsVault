@@ -1,6 +1,6 @@
 # The Law and the Promise - Chapter 5
 
-*"...all you behold; tho' it appears Without, it is Within; In your Imagination, of which this World of Mortality is but a Shadow."* — Blake
+*"...all you behold; tho' it appears Without, it is Within; In your [Imagination](/glossary#imagination), of which this World of Mortality is but a Shadow."* — Blake
 
 Nothing appears or continues in being by a power of its own. Events happen because comparatively stable imaginal activities created them, and they continue in being by virtue of the support they receive from such imaginal activities. The part which imagining the wish fulfilled plays in consciously creating circumstances is obvious in this series of stories.
 
@@ -10,11 +10,11 @@ One night a gentleman rose in my audience. He said that he had no question to as
 
 When he came out of the Armed Forces after World War II he got a job that gave him take-home pay of $25.00 a week. After ten years he was making $600.00 a month. At that time he bought my book *"Awakened Imagination)"* and read the chapter *"[The Pruning Shears of Revision](/lectures/the-pruning-shears-of-revision)."*
 
-Through the daily practice of "Revision”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
+Through the daily practice of "[Revision](/glossary#revision)”, as set forth there, he was able to tell my audience two years later that his income was equal to that of the President of the United States.
 
 In my audience sat a man who, by his confession, was broke. He had read the same book, but he suddenly realized he had done nothing with the use of his imagination to solve his financial problem.
 
-He decided he would try to imagine himself as the winner of the 5-10 pool at Caliente Race Track. In his words: "In this pool, one attempts to pick winners in the fifth through the tenth races. So this is what I did: In my imagination I stood, sorting my tickets and feeling as I did so, that I had each of the six winners. I enacted this scene over and over in my imagination, until I actually felt 'goose pimples'. Then I 'saw' the cashier giving me a large sum of money which I placed beneath my imaginary shirt.
+He decided he would try to imagine himself as the winner of the 5-10 pool at Caliente Race Track. In his words: "In this pool, one attempts to pick winners in the fifth through the tenth races. So this is what I did: In my imagination I stood, sorting my tickets and [feeling](/glossary#feeling) as I did so, that I had each of the six winners. I enacted this scene over and over in my imagination, until I actually felt 'goose pimples'. Then I 'saw' the cashier giving me a large sum of money which I placed beneath my imaginary shirt.
 
 This was my entire imaginal drama; and for three weeks, night after night, I enacted this scene and fell asleep in the action.
 

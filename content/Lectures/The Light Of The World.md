@@ -2,7 +2,7 @@
 
 In all the revelations which await you, there is none so fundamental as the revelation of [Jesus Christ](/lectures/jesus-christ). He cannot be known outwardly, but must unveil himself from within. This experience will be yours when your immortal eyes are opened inward, into eternity, the world of thought. 
 
-He who awakens in you is the Lord Jesus Christ, but he is unseen by the mortal eye. As an individual the world knows you by your records. They know your date of birth, your parents, your brothers and sisters. Your friends know your weaknesses and limitations, but no one can know the being who awakens within you until the revelation is theirs.
+He who awakens in you is the Lord Jesus [Christ](/glossary#christ), but he is unseen by the mortal eye. As an individual the world knows you by your records. They know your date of birth, your parents, your brothers and sisters. Your friends know your weaknesses and limitations, but no one can know the being who awakens within you until the revelation is theirs.
 
 Tonight I will try to show you the Lord Jesus Christ, for he is your true identity. His most fantastic claim: *"I am the light of the world"* was not claimed by one little individual, but by the universal being who is the life of every child born of woman. 
 
@@ -20,7 +20,7 @@ When the story of Christ awakens within you, you are no better than one who will
 
 Listen to the words carefully: *"Jesus Christ, the faithful witness, the first born of the dead."* There are two events which take place here simultaneously. *"We are born anew through the resurrection of Jesus Christ from the dead."* Christ must first awaken in you, then resurrect himself from the dream in which he died before he (as you) can be born from above. Christ is in you. 
 
-He is not some being who lived 2,000 years ago, was crucified on a wooden cross, and rose from the dead for your salvation. The Christ is buried in you individually. This is the age of the awakening and everyone is going to awaken. No matter what a man (or woman) has done here he is forgiven, because God played the part and all things are moving toward the fulfillment of a predetermined end.
+He is not some being who lived 2,000 years ago, was crucified on a wooden cross, and rose from the dead for your salvation. The Christ is buried in you individually. This is the age of the awakening and everyone is going to awaken. No matter what a man (or woman) has done here he is forgiven, because [God](/glossary#god) played the part and all things are moving toward the fulfillment of a predetermined end.
 
 We are told in the 15th chapter of 1 Corinthians, the 51st verse: *"We shall all be changed, in a moment, in the twinkle of an eye, for the trumpet will sound and we shall rise from the dead."* At the end of your long, long journey you will be changed, individually. This I know to be true from experience. 
 
@@ -80,7 +80,7 @@ Jesus cannot be proved as having ever existed or known by any outward means. No 
 
 When John told his story he said: *"I am a witness to what I have heard and seen with my own eyes; which I have handled with my own hands concerning the word of life."* Now, John is not some professor who is trying to give society a convincing set of arguments. Rather he is simply telling what he heard and saw in a region beyond that which can be explained with the rational mind. He invites everyone who hears his story of redemption to believe him, but he allows the individual to decide whether he will accept or reject it, just as I do. 
 
-Now, the Christ that you accept on faith comes to you as one unknown, yet one who in some mysterious manner lets you experience who he is. In his letter to the Galatians, Paul asks this question: *"Did you receive the spirit by works of the law or by hearing with faith? Are you so foolish, having received the spirit by faith, are you now ending with the flesh?"* 
+Now, the Christ that you accept on faith comes to you as one unknown, yet one who in some mysterious manner lets you experience who he is. In his letter to the Galatians, Paul asks this question: *"Did you receive the spirit by works of [the law](/glossary#the-law) or by hearing with faith? Are you so foolish, having received the spirit by faith, are you now ending with the flesh?"* 
 
 Now I ask you: are you thinking of Jesus as a being of flesh and blood when you know that flesh and blood cannot inherit the kingdom of heaven? Are you thinking of a physical savior? Didn't you receive the spirit by hearing the story and accepting it with faith, for your acceptance was the spirit. If after hearing this incredible story you believe it, go your way and it will unfold within you. But if you reject it, your rejection will simply delay its experience, for you are destined to know the truth which will set you free from this bondage to decay.
 

@@ -1,20 +1,20 @@
 # The Law and the Promise - Chapter 9
 
-*"If the Spectator would Enter into these Images in his Imagination, approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
+*"If the Spectator would Enter into these Images in his [Imagination](/glossary#imagination), approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
 (William Blake)
 
 Imagination it seems will do nothing that we wish until we enter into the image of the wish fulfilled.
 
 Does not this entering into the image of the wish fulfilled resemble Blake's *"Void outside of Existence which if enter'd into Englobes itself & becomes a Womb?"* Is this not the true interpretation of the mythical story of Adam and Eve? Man and his emanation? Are not man's Dreams of fancy his Emanation, his Eve in whom *"He plants himself in all her Nerves, just as a Husbandman his mould; And she becomes his dwelling place and garden fruitful seventy fold?"* (William Blake, *"The Mental Traveller"*)
 
-The secret of creation is the secret of imagining — first, desiring and then assuming the feeling of the wish fulfilled until the dream of fancy, 'the Void outside existence', is enter'd and 'englobes itself and becomes a womb, a dwelling place and garden fruitful seventy fold'. Note well that Blake urges us to enter into these images. This entering into the image makes it 'englobe itself and become a womb'.
+The secret of creation is the secret of imagining — first, desiring and then assuming the [feeling](/glossary#feeling) of the wish fulfilled until the dream of fancy, 'the Void outside existence', is enter'd and 'englobes itself and becomes a womb, a dwelling place and garden fruitful seventy fold'. Note well that Blake urges us to enter into these images. This entering into the image makes it 'englobe itself and become a womb'.
 
-Man, by entering a state, impregnates it and causes it to create what the union implies.
+Man, by entering a [state](/glossary#state), impregnates it and causes it to create what the union implies.
 
 Blake tells us that these images are 'Shadowy to those who dwell not in them, mere possibilities; but to those who enter into them they seem the only substances...'
 
 On my way to the West Coast, I stopped in C
-hicago to spend the day with friends. My host was recovering from a severe illness and his doctor advised him to move to a one-story house. Acting upon the doctor's advice, he had purchased a one-story house suited to his needs; but he now was confronted with the fact that there seemed to be no buyer for his large three-story home. When I arrived, he was very discouraged. In trying to explain the law of constructive imagining to my host and his wife, I told them the story of a very prominent New York woman who had come to see me concerning the rental of her apartment. She maintained a lovely city apartment and a country home, but it was absolutely essential that she rent her apartment if she and her family were to spend the summer at their country home. (Neville Goddard, *“[The Power of Awareness](/books/the-power-of-awareness/the-power-of-awareness)”*, Ch. 23, *“Case Histories – 5”*)
+hicago to spend the day with friends. My host was recovering from a severe illness and his doctor advised him to move to a one-story house. Acting upon the doctor's advice, he had purchased a one-story house suited to his needs; but he now was confronted with the fact that there seemed to be no buyer for his large three-story home. When I arrived, he was very discouraged. In trying to explain [the law](/glossary#the-law) of constructive imagining to my host and his wife, I told them the story of a very prominent New York woman who had come to see me concerning the rental of her apartment. She maintained a lovely city apartment and a country home, but it was absolutely essential that she rent her apartment if she and her family were to spend the summer at their country home. (Neville Goddard, *“[The Power of Awareness](/books/the-power-of-awareness/the-power-of-awareness)”*, Ch. 23, *“Case Histories – 5”*)
 
 In previous years, the apartment had been rented without any difficulty early in the spring,but at the time she came to see me, the season for summer sublets was seemingly over. Although the apartment had been in the hands of good real estate agents, no one had seemed interested in renting it. I told her what to do in her imagination. She did it and, in less than twenty-four hours, her apartment was rented.
 
@@ -48,7 +48,7 @@ That stone is Imagining. I acquaint you with this secret and leave you to Act or
 
 This is the famous stone
 That turneth all to gold:
-For that which God doth touch and own
+For that which [God](/glossary#god) doth touch and own
 Cannot for less be told. — George Herbert (The Elixir)
 
 "My home is old but it is mine. I wanted the exterior painted and the interior redecorated, yet I had no money to accomplish either objective. You told us to 'live' as though our desire is already a reality, and this I began to do — imagining my old house with a brand-new coat of paint, new furnishings, new decoration and all the trimmings. I walked, in my imagination, through the newly decorated rooms. I walked around the outside admiring the fresh paint; and, at the end of my imaginal act, I handed the contractor a check for payment in full. I entered this imaginal scene faithfully as often as I could during the day and each night before I fell asleep.

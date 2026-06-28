@@ -2,7 +2,7 @@
 
 *"General knowledge is remote knowledge; It is in particulars that wisdom consists. And happiness too."* (William Blake)
 
-We must use our imagination to achieve particular ends, even if the ends are all trivia. Because men do not clearly define and imagine particular ends the results are uncertain, while they might be perfectly certain. To imagine particular ends is to discriminate clearly. *"How do we distinguish the oak from the beech, the horse from the ox, but by the bounding outline?"* (William Blake, Human Form Divine)
+We must use our [imagination](/glossary#imagination) to achieve particular ends, even if the ends are all trivia. Because men do not clearly define and imagine particular ends the results are uncertain, while they might be perfectly certain. To imagine particular ends is to discriminate clearly. *"How do we distinguish the oak from the beech, the horse from the ox, but by the bounding outline?"* (William Blake, Human Form Divine)
 
 Definition asserts the reality of the particular thing against the formless generalizations which flood the mind.
 
@@ -29,7 +29,7 @@ We must live wholly on the level of Imagination. And it must be consciously and 
 
 And do you know... I actually believe the sparrows understand; they no longer seem to be afraid when I walk among them." ...R.K.
 
-This lady proves that unless our heart is in the task, unless we imagine ourselves right into the feeling of our wish fulfilled, we are not there — for we are all imagination, and must be where, and what we are in imagination.
+This lady proves that unless our heart is in the task, unless we imagine ourselves right into the [feeling](/glossary#feeling) of our wish fulfilled, we are not there — for we are all imagination, and must be where, and what we are in imagination.
 
 "In early February, my husband and I had been in our new house one month — a home lovely beyond telling, perched on a rugged cliff with the ocean for our front yard, wind and sky for neighbors and seagulls for guests — we were ecstatic. If you have experienced the joy and woe of building your own home, you know how completely filled with happiness you are and how completely empty your purse is: A hundred lovely things clamored to be bought for that house, but the one thing we wanted most of all was the most useless — a picture. Not just any picture, but a wild wonderful scene of the sea dominated by a great white clipper ship. This picture had been in our thoughts all the months of building and we left one living room wall free of paneling to hold it. My husband mounted decorative red and green ship lanterns on the wall to frame our picture, but the picture — itself — would have to wait. Draperies, carpeting — all the practical items must come first. Perhaps so, but that didn't stop either one of us from 'seeing' that picture, in our imagination, on that wall.
 

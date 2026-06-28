@@ -1,6 +1,6 @@
 # Christmas-Man's Birth As God
 
-*"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+*"In the beginning was the Word and the Word was with [God](/glossary#god) and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the [Assumption](/glossary#assumption) by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   
@@ -17,7 +17,7 @@ Who is the father who is one with his son, yet greater than he? Can he be the so
   
 In the last chapter of the Book of Revelation, God says: *"I am the root and the offspring of David, the bright morning star."* God is the root, the source, the cause of all life. He is the father of David, yet his offspring!   
   
-As the source God is David's father, called Jesse or I AM. As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: *"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."* ([II Samuel 7](https://www.biblegateway.com/passage/?search=2+Samuel+7&version=KJV))   
+As the source God is David's father, called Jesse or [I AM](/glossary#i-am). As the offspring David is called the son of God. The prophet Samuel spoke to David, saying: *"God declared that when your days are fulfilled, and you lie down with your fathers, I will raise up your son after you who will come forth from your body. I will be his father and he shall be my son."* ([II Samuel 7](https://www.biblegateway.com/passage/?search=2+Samuel+7&version=KJV))   
   
 Here we see that the root and the offspring are one. I (the root of David) am the cause of all life. In spite of that I come out of David, recognize him and say: *"Thou art my son, today I have begotten thee."*   
   
@@ -33,7 +33,7 @@ Now, a gentleman wrote, saying: *"I fell asleep and dreamed I was reading the ne
   
 Everything contains within itself the capacity for symbolic significance. This gentleman is in advertising so naturally, in the dream he is looking at an ad. In this modern world we have planes which take man from earth to the skies and bring him back again. But this is a plan of transportation.   
   
-In the Book of Ephesians, we read: *"He has made known unto us the mystery of his will in all wisdom and insight according to his purpose which he set forth as a plan in Christ for the fullness of time to unite all things in him, things in heaven and things on earth."*   
+In the Book of Ephesians, we read: *"He has made known unto us the mystery of his will in all wisdom and insight according to his purpose which he set forth as a plan in [Christ](/glossary#christ) for the fullness of time to unite all things in him, things in heaven and things on earth."*   
   
 My friend called it the departure. This does not necessarily mean that he goes tonight or in the next forty years. To me as the interpreter of the dream it means that he has finished the journey. Like Paul, the time for his departure has come. He has fought the good fight. He has finished the race and kept the faith. Henceforth, there is laid up for him the crown of righteousness.   
   
@@ -43,7 +43,7 @@ Christmas is not the incarnation of God, but the departure of Man as God; for [G
   
 There is no way of knowing who you really are until God's Son reveals it, for *"No one knows who the Son is except the Father, and no one knows who the Father is except the son and anyone to whom the Son chooses to reveal him."* The Son must choose to reveal you, for only then do you know you are God the Father.   
   
-I am the way. I am the truth. I am the light. No one comes to the awareness of being the Father except by God's plan. Diet will not do it. Wearing certain clothes, hibernating in some so-called holy place, or being a priest and going up the ranks will not do it. There is only one way to the Father, and I - all imagination - am the way!   
+I am the way. I am the truth. I am the light. No one comes to the awareness of being the Father except by God's plan. [Diet](/glossary#diet) will not do it. Wearing certain clothes, hibernating in some so-called holy place, or being a priest and going up the ranks will not do it. There is only one way to the Father, and I - all [imagination](/glossary#imagination) - am the way!   
   
 My friend is a happily married man with three children, yet he is so hungry for the truth; so I say: Father, let the truth of my words be known, that he and all those who believe my words know that the love with which thou has loved me may be in them, and I in them.   
   
@@ -77,7 +77,7 @@ I have seen this great flood of illusion as crystal clear atmosphere and now kno
   
 Recently a great doctor was asked about the flu which is spreading all over our country. Questioning where the bug goes when the flu subsides, he answered: *"It doesn't go anywhere. It remains in man to be activated again."* I say moods activate it.   
   
-Leprosy doesn't come from without. Cancer doesn't either. Everything is within man. Read the paper and react. That reaction sets a feeling in motion, be it anger, frustration, or irritation. When the feeling leaves, where does it go? Back to sleep within you, for you contain the world and all that is in it.   
+Leprosy doesn't come from without. Cancer doesn't either. Everything is within man. Read the paper and react. That reaction sets a [feeling](/glossary#feeling) in motion, be it anger, frustration, or irritation. When the feeling leaves, where does it go? Back to sleep within you, for you contain the world and all that is in it.   
   
 God became you and, containing all, God is absolute. The world teaches that God is all good and never evil. But if there is evil, and God is not evil, then God is not absolute.   
   
@@ -93,7 +93,7 @@ Then, because no one has ever seen God but his only begotten son who is in the b
   
 There is no other way back to the realization of being God the Father, for He literally became you that you may become God. We are told that [Jesus Christ](/lectures/jesus-christ) is God's son, yet it is he who claims: I and my Father are one. He who sent me has seen the Father. Claiming to be the son who is the Father is a paradox; yet it is resolved when you realize that the son - coming out from the Father - remains the Father, but is restricted by incarnation.   
   
-God the Father takes upon himself the form of a slave, and - becoming the son - he is obedient until death, even death upon the cross of Man. This God wears, as He moves from one state to another, to another in what the world calls death, until God experiences the one definite plan to return to himself - the Father. So Christmas marks, not the incarnation of God, but the birth of man, as God.   
+God the Father takes upon himself the form of a slave, and - becoming the son - he is obedient until death, even death upon the cross of Man. This God wears, as He moves from one [state](/glossary#state) to another, to another in what the world calls death, until God experiences the one definite plan to return to himself - the Father. So Christmas marks, not the incarnation of God, but the birth of man, as God.   
   
 Now let us go into the silence.
 

@@ -17,17 +17,17 @@ It is determined by his attitudes rather than by his acts.
 
 The cornerstone on which all things are based is man's concept of himself. He acts as he does and has the experiences that he does, because his concept of himself is what it is, and for no other reason. Had he a different concept of self, he would act differently. A change of concept of self automatically alters his future: and a change in any term of his future series of experiences reciprocally alters his concept of self.
 
-Man's assumptions which he regards as insignificant produce effects that are considerable; therefore man should revise his estimate of an Assumption, and recognize its creative power.
+Man's assumptions which he regards as insignificant produce effects that are considerable; therefore man should revise his estimate of an [Assumption](/glossary#assumption), and recognize its creative power.
 
 All changes take place in consciousness. The future, although prepared in every detail in advance, has several outcomes.
 
 At every moment of our lives we have before us the choice of which of several futures we will choose.
 
-There are two actual outlooks on the world possessed by every-one – a natural focus and a spiritual focus. The ancient teachers called the one *"the carnal mind,"* the other *"the mind of Christ."*
+There are two actual outlooks on the world possessed by every-one – a natural focus and a spiritual focus. The ancient teachers called the one *"the carnal mind,"* the other *"the mind of [Christ](/glossary#christ)."*
 
-We may differentiate them as ordinary waking consciousness – governed by our senses, and a controlled imagination – governed by desire.
+We may differentiate them as ordinary waking consciousness – governed by our senses, and a controlled [imagination](/glossary#imagination) – governed by desire.
 
-We recognize these two distinct centers of thought in the statement: *"The natural man receiveth not the things of the spirit of God for they are foolishness unto him; neither can he know them for they are spiritually discerned"* ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV)).
+We recognize these two distinct centers of thought in the statement: *"The natural man receiveth not the things of the spirit of [God](/glossary#god) for they are foolishness unto him; neither can he know them for they are spiritually discerned"* ([1Corinthians 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV)).
 
 The natural view confines reality to the moment called now. To the natural view, the past and future are purely imaginary.
 
@@ -35,7 +35,7 @@ The spiritual view, on the other hand, sees the contents of time. It sees events
 
 The habit of seeing only that which our senses permit, renders us totally blind to what we otherwise could see.
 
-To cultivate the faculty of seeing the invisible, we should often deliberately disentangle our minds from the evidence of the senses and focus our attention on an invisible state, mentally feeling it and sensing it until it has all the distinctness of reality.
+To cultivate the faculty of seeing the invisible, we should often deliberately disentangle our minds from the evidence of the senses and focus our attention on an invisible [state](/glossary#state), mentally [feeling](/glossary#feeling) it and sensing it until it has all the distinctness of reality.
 
 Earnest, concentrated thought focused in a particular direction shuts out other sensations and causes them to disappear.
 

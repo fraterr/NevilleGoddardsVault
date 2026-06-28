@@ -2,19 +2,19 @@
 
 *"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."* ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
 
-*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, I AM hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*I AM" is the self-definition of the Lord.
+*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, [I AM](/glossary#i-am) hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*I AM" is the self-definition of the Lord.
 
-Cain and Abel, as the grandchildren of the Lord, can be only personifications of two distinct functions of your own consciousness. The author is really concerned to show the *"Two Contrary States of the Human Soul,"* and he has used two brothers to show these states. The two brothers represent two distinct outlooks on the world possessed by everyone. One is the limited perception of the senses, and the other is an imaginative view of the world. Cain - the first view - is a passive surrender to appearances and an acceptance of life on the basis of the world without: a view which inevitably leads to unsatisfied longing or a contentment with disillusion. Abel - the second view - is a vision of fulfilled desire, lifting man above the evidence of the senses to that state of relief where he no longer pines with desire. Ignorance of the second view is a soul on fire. Knowledge of the second view is the wing whereby it flies to the Heaven of fulfilled desire.
+Cain and Abel, as the grandchildren of the Lord, can be only personifications of two distinct functions of your own consciousness. The author is really concerned to show the *"Two Contrary States of the Human Soul,"* and he has used two brothers to show these states. The two brothers represent two distinct outlooks on the world possessed by everyone. One is the limited perception of the senses, and the other is an imaginative view of the world. Cain - the first view - is a passive surrender to appearances and an acceptance of life on the basis of the world without: a view which inevitably leads to unsatisfied longing or a contentment with disillusion. Abel - the second view - is a vision of fulfilled desire, lifting man above the evidence of the senses to that [state](/glossary#state) of relief where he no longer pines with desire. Ignorance of the second view is a soul on fire. Knowledge of the second view is the wing whereby it flies to the Heaven of fulfilled desire.
 
 *"Come, eat my bread and drink  of the wind that I have mingled, forsake the foolish and live."* ([Proverbs 9:56](https://www.biblegateway.com/passage/?search=Proverbs+9:56&version=KJV))
 
 In the epistle to the Hebrews, the  writer tells us that Abel's offering was faith and, states the author, "Without faith it is impossible to please Him.”  ([Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews+11:6&version=KJV))
 
-*"Now faith is the substance of things hoped for, the evidence of things not seen... Through faith we understand that the worlds were framed by the word of God, so that things which are seen were not made of things which do appear."* ([Hebrews 11:1, 3](https://www.biblegateway.com/passage/?search=Hebrews+11:1,+3&version=KJV))
+*"Now faith is the substance of things hoped for, the evidence of things not seen... Through faith we understand that the worlds were framed by the word of [God](/glossary#god), so that things which are seen were not made of things which do appear."* ([Hebrews 11:1, 3](https://www.biblegateway.com/passage/?search=Hebrews+11:1,+3&version=KJV))
 
 Cain offers the evidence of the senses which consciousness, the Lord, rejects, because acceptance of this gift as a mold of the future would mean the fixation and perpetuation of the present state forever. The sick would be sick, the poor would be poor, the thief would be a thief, the murderer a murderer, and so on, without hope of redemption.
 
-The Lord, or consciousness, has no respect for such passive use of imagination - which is the gift of Cain. He delights in the gift of Abel, the active, voluntary, loving exercise of the imagination on behalf of man for himself and others.
+The Lord, or consciousness, has no respect for such passive use of [imagination](/glossary#imagination) - which is the gift of Cain. He delights in the gift of Abel, the active, voluntary, loving exercise of the imagination on behalf of man for himself and others.
 
 *"Let the weak man say, I am strong"* ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
 
@@ -24,7 +24,7 @@ The ideal is always waiting to be incarnated, but unless we ourselves offer the 
 
 *"By faith Abel offered unto God a more excellent sacrifice than Cain."* ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
 
-Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an Assumption, invisible states become visible facts.
+Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an [Assumption](/glossary#assumption), invisible states become visible facts.
 
 *"For what is faith unless it is to believe what you do not see?"*  
 (St. Augustine)
@@ -41,7 +41,7 @@ Every time she thought of the baby, which was often, she saw, in her imagination
 
 When reason and the facts of life oppose the idea you desire to realize and you accept the evidence of your senses and the dictates of reason as the truth, you have brought the Lord – your consciousness - the gift of Cain. It is obvious that such offerings do not please Him.
 
-Life on earth is a training ground for image making. If you use only the molds which your senses dictate, there will be no change in your life. You are here to live the more abundant life, so you must use the invisible molds of imagination and make results and accomplishments the crucial test of your power to create. Only as you assume the feeling of the wish fulfilled and continue therein are you offering the gift that pleases.
+Life on earth is a training ground for image making. If you use only the molds which your senses dictate, there will be no change in your life. You are here to live the more abundant life, so you must use the invisible molds of imagination and make results and accomplishments the crucial test of your power to create. Only as you assume the [feeling](/glossary#feeling) of the wish fulfilled and continue therein are you offering the gift that pleases.
 
 *"When Abel's gift is my attire. Then I'll realize my desire."*
 

@@ -5,11 +5,11 @@ Welcome to the Neville Goddard Vault! This website contains the published works 
 
 [Neville Goddard](https://en.wikipedia.org/wiki/Neville_Lancelot_Goddard) (1905-1972) was an influential metaphysical teacher central to the [New Thought](https://en.wikipedia.org/wiki/New_Thought) movement.
 
-Born in Barbados and based in New York City, Neville dedicated his life to understanding and teaching the power of imagination, faith, and manifestation according to his [mystical interpretation of Christianity](https://en.wikipedia.org/wiki/Christian_mysticism).
+Born in Barbados and based in New York City, Neville dedicated his life to understanding and teaching the power of [imagination](/glossary#imagination), faith, and manifestation according to his [mystical interpretation of Christianity](https://en.wikipedia.org/wiki/Christian_mysticism).
 
-Through his accessible lectures and over 10 books, Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and assumption to manifest desires.
+Through his accessible lectures and over 10 books, Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and [assumption](/glossary#assumption) to manifest desires.
 
-Neville focused on the promise within Biblical stories and verses, communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
+Neville focused on [the promise](/glossary#the-promise) within Biblical stories and verses, communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
 
 Please note this site is a work in progress and is constantly being updated with new material and improvements.
 
@@ -69,4 +69,4 @@ My goal for this website is to make Neville's profound ideas readily available f
 This is a work of love, and it is ongoing and always evolving. 
 Check back often as more content is added. 
 
-Now, claim your desire by assuming the feeling of the <u>wish fulfilled</u>!
+Now, claim your desire by assuming the [feeling](/glossary#feeling) of the <u>wish fulfilled</u>!

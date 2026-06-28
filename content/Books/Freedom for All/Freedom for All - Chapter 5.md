@@ -1,10 +1,10 @@
 # Freedom for All - Chapter 5
 
-*"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
+*"Six days shall work be done, but on the seventh day their shall be to you an holy day, a [Sabbath](/glossary#sabbath) of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
 
 These six days are not twenty-four-hour periods of time.
 
-They symbolize the psychological moment a definite subjective state is fixed.
+They symbolize the psychological moment a definite subjective [state](/glossary#state) is fixed.
 
 These six days of work are subjective experiences, and consequently cannot be measured by sidereal time, for the real work of fixing a definite psychological state is done in consciousness.
 
@@ -16,7 +16,7 @@ The true meaning of six days of work (creation) is revealed in the mystery of th
 
 As previously explained in the mystery of the name of Jehovah, VAU means to nail or join.
 
-The creator is joined to his creation through feeling; and the time that it takes you to fix a definite feeling is the true measure of these six days of creation.
+The creator is joined to his creation through [feeling](/glossary#feeling); and the time that it takes you to fix a definite feeling is the true measure of these six days of creation.
 
 Mentally separating yourself from the objective world and attaching yourself through the secret of feeling to the subjective state is the function of the sixth letter of the Hebrew alphabet, VAU, or the six days of work.
 
@@ -34,7 +34,7 @@ Automatically you keep the Sabbath a day of rest – a period of mental rest –
 
 There can be no Sabbath, no seventh day, no period of mental rest, until the six days are over – until the psychological adjustment is accomplished and the mental impression is fully made.
 
-Man is warned that if he fails to keep the Sabbath, if he fails to enter into the rest of God he will also fail to receive the promise – he will fail to realize his desires.
+Man is warned that if he fails to keep the Sabbath, if he fails to enter into the rest of [God](/glossary#god) he will also fail to receive [the promise](/glossary#the-promise) – he will fail to realize his desires.
 
 The reason for this is simple and obvious. There can be no mental rest until a conscious impression is made.
 

@@ -4,13 +4,13 @@
 
 The majority of people are familiar with the story of Joshua capturing the city of Jericho. What they do not know is that this story is the perfect formula for Victory, under any circumstances and against all odds.
 
-It is recorded that Joshua was armed only with the knowledge that every place that the sole of his foot should tread upon would be given to him; that he desired to capture or tread upon the city of Jericho but found the walls separating him from the city impassable. It seemed physically impossible for Joshua to get beyond these massive walls and stand upon the city of Jericho. Yet, he was driven by the knowledge of the promise that, regardless of the barriers and obstacles separating him from his desires, if he could but stand upon the city it would be given to him.
+It is recorded that Joshua was armed only with the knowledge that every place that the sole of his foot should tread upon would be given to him; that he desired to capture or tread upon the city of Jericho but found the walls separating him from the city impassable. It seemed physically impossible for Joshua to get beyond these massive walls and stand upon the city of Jericho. Yet, he was driven by the knowledge of [the promise](/glossary#the-promise) that, regardless of the barriers and obstacles separating him from his desires, if he could but stand upon the city it would be given to him.
 
 The Book of Joshua further records that instead of fighting this giant problem of the wall, Joshua employed the services of the harlot, Rahab, and sent her as a spy into the city. As Rahab entered her house, which stood in the midst of the city, Joshua — who was securely barred by the impassable walls of Jericho— blew on his trumpet seven times. At the seventh blast the walls crumbled and Joshua entered the city victoriously.
 
 To the uninitiated, this story is senseless. To the one who sees it as a psychological drama, rather than as a historical record, it is most revealing.
 
-If we would follow the example of Joshua our victory would be similarly simple. Joshua symbolizes to you, the reader, your present state; the city of Jericho symbolizes your desire, or defined objective. The walls of Jericho symbolize the obstacles between you and the realization of your objectives. The foot symbolizes the understanding; placing the sole of the foot upon a definite place indicates fixing a definite psychological state. Rahab, the spy, is your ability to travel secretly or psychologically to any place in space. Consciousness knows no frontier. No one can stop you from dwelling psychologically at any point, or in any state in time or space.
+If we would follow the example of Joshua our victory would be similarly simple. Joshua symbolizes to you, the reader, your present [state](/glossary#state); the city of Jericho symbolizes your desire, or defined objective. The walls of Jericho symbolize the obstacles between you and the realization of your objectives. The foot symbolizes the understanding; placing the sole of the foot upon a definite place indicates fixing a definite psychological state. Rahab, the spy, is your ability to travel secretly or psychologically to any place in space. Consciousness knows no frontier. No one can stop you from dwelling psychologically at any point, or in any state in time or space.
 
 Regardless of the physical barriers separating you from your objective, you can without effort or help of anyone annihilate time, space and barriers. Thus you can dwell, psychologically, in the desired state. So, although you may not be able to tread physically upon a state or city, you can always tread psychologically upon any desired state. By treading psychologically I mean that you can now, this moment, close your eyes and after visualizing or imagining a place or state other than your present one, actually FEEL that you are now in such a place or state. You can feel this condition to be so real that upon opening your eyes you are amazed to find that you are not physically there.
 
@@ -30,7 +30,7 @@ You will not be afraid of the enemy because the outcome has been determined by t
 
 Stand still in the psychological state defined as your objective until you feel the thrill of Victory, Then, with confidence born of the knowledge of this law, watch the physical realization of your objective.
 
-...Set your self, stand still and watch the salvation of the Law with you...
+...Set your self, stand still and watch the salvation of [the Law](/glossary#the-law) with you...
 
 
 

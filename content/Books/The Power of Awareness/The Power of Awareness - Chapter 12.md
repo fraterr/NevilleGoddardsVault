@@ -1,6 +1,6 @@
 # The Power of Awareness - Chapter 12
 
-Your imagination is able to do all that you ask in proportion to the degree of your attention. All progress, all fulfillment of desire, depend upon the control and concentration of your attention. Attention may be either attracted from without or directed from within. Attention is attracted from without when you are consciously occupied with the external impressions of the immediate present. The very lines of this page are attracting your attention from without. Your attention is directed from within when you deliberately choose what you will be preoccupied with mentally. It is obvious that in the objective world your attention is not only attracted by but is constantly directed to external impressions. But, your control in the subjective state is almost non-existent, for in this state attention is usually the servant and not the master — the passenger and not the navigator — of your world.
+Your [imagination](/glossary#imagination) is able to do all that you ask in proportion to the degree of your attention. All progress, all fulfillment of desire, depend upon the control and concentration of your attention. Attention may be either attracted from without or directed from within. Attention is attracted from without when you are consciously occupied with the external impressions of the immediate present. The very lines of this page are attracting your attention from without. Your attention is directed from within when you deliberately choose what you will be preoccupied with mentally. It is obvious that in the objective world your attention is not only attracted by but is constantly directed to external impressions. But, your control in the subjective [state](/glossary#state) is almost non-existent, for in this state attention is usually the servant and not the master — the passenger and not the navigator — of your world.
 
 There is an enormous difference between attention directed objectively and attention directed subjectively, and the capacity to change your future depends on the latter. When you are able to control the movements of your attention in the subjective world, you can modify or alter your life as you please. But this control cannot be achieved if you allow your attention to be attracted constantly from without. Each day, set yourself the task of deliberately withdrawing your attention from
 
@@ -30,7 +30,7 @@ Withdraw attention from external to focus within on chosen thoughts/moods.
 ### Achieve Fate Mastery
 
 Mastering subjective attention makes you master of your fate.
-No longer accept outer dominance having found Christ in you as imagination.
+No longer accept outer dominance having found [Christ](/glossary#christ) in you as imagination.
 Assert imagination's supremacy and subject all to it.
 
 

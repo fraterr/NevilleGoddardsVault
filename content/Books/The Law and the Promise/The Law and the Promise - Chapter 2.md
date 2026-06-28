@@ -1,16 +1,16 @@
 # The Law and the Promise - Chapter 2
 
-*"My God, I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
+*"My [God](/glossary#god), I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
 
 I wish it were true of man's noble Dreams, but unfortunately — perpetual construction, deferred occupancy — is the common fault of man. Why *"build a stately habitation"*, unless you intend to *"dwell therein"*? Why build a dream house and not *"dwell therein"*?
 
 This is the secret of those who lie in bed awake while they dream things true. They know how to live in their dream until, in fact, they do just that.
 
-Man, through the medium of a controlled, waking dream, can predetermine his future. That imaginal activity, of living in the feeling of the wish fulfilled, leads man across a bridge of incident to the fulfillment of the dream.
+Man, through the medium of a controlled, waking dream, can predetermine his future. That imaginal activity, of living in the [feeling](/glossary#feeling) of the wish fulfilled, leads man across a bridge of incident to the fulfillment of the dream.
 
 If we live in the dream — thinking from it, and not of it — then the creative power of imagining will answer our adventurous fancy, and the wish fulfilled will break in upon us and take us unawares.
 
-Man is all imagination; therefore, man must be where he is in imagination, for his imagination is himself.
+Man is all [imagination](/glossary#imagination); therefore, man must be where he is in imagination, for his imagination is himself.
 
 To realize that imagination is not something tied to the senses or enclosed within the spatial boundary of the body is most important.
 

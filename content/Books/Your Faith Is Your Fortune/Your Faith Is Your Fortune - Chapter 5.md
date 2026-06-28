@@ -1,8 +1,8 @@
 # Your Faith Is Your Fortune - Chapter 5
 
-*"But whom say ye that I AM?"* ([Matt. 16:15](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
+*"But whom say ye that [I AM](/glossary#i-am)?"* ([Matt. 16:15](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
-*“[I AM the Lord](/lectures/i-am-the-lord); that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*
+*“[I AM the Lord](/lectures/i-am-the-lord); that is my name; and my glory will I not give to another.”* *“I AM the Lord, the [God](/glossary#god) of all Flesh.”*
 
 This I AM within you, the reader, this awareness, this consciousness of being, is the Lord, the God of all Flesh. I AM is He that should come; stop looking for another. As long as you believe in a God apart from yourself you will continue to transfer the power of your expression to your conceptions, forgetting that you are the conceiver.
 
@@ -18,7 +18,7 @@ Begin to understand why you were told, *“Go thou and do likewise.”* Begin no
 
 *“Whom do you say that I AM?”* This is not a question asked two thousand years ago. It is the eternal question addressed to the manifestation by die conceiver. It is your true self, your awareness of being, asking you, its present conception of itself, *“Who do you believe your awareness to be?”* This answer can be defined only within yourself regardless of the influence of another.
 
-I AM (your true self) is not interested in man’s opinion. All its interest lies in your conviction of yourself. What do you say of the I AM within you? Can you answer and say, *“I AM Christ”*? Your answer or degree of understanding will determine the place you will occupy in life. Do you say or believe yourself to be a man of a certain family, race, nation, etc.? Do you honestly believe this of yourself? Then life, your true self, will cause these conceptions to appear in your world and you will live with them as though they are real.
+I AM (your true self) is not interested in man’s opinion. All its interest lies in your conviction of yourself. What do you say of the I AM within you? Can you answer and say, *“I AM [Christ](/glossary#christ)”*? Your answer or degree of understanding will determine the place you will occupy in life. Do you say or believe yourself to be a man of a certain family, race, nation, etc.? Do you honestly believe this of yourself? Then life, your true self, will cause these conceptions to appear in your world and you will live with them as though they are real.
 
 *“I AM the door.”* *“I AM the way.”* *“I AM the resurrection and the life.”* *“No man or manifestation cometh unto my Father save by me.”*
 
@@ -38,7 +38,7 @@ All men have had proof of the power of faith. The faith that moves mountains is 
 
 And God said, *“Let there be a firmament in the midst of the waters.”* In the midst of all the doubts and changing opinions of others, let there be a conviction, a firmness of belief, and you shall see the dry land; your belief will appear. The reward is to him that endureth unto the end. A conviction is not a conviction if it can be shaken. Your desire will be as clouds without rain unless you believe.
 
-Your unconditioned awareness or I AM is the Virgin Mary who knew not a man and yet, unaided by man, conceived and bore a son, Mary, the unconditioned consciousness, desired and then became conscious of being the conditioned state which she desired to express, and in a way unknown to others became it. Go and do likewise; assume the consciousness of that which you desire to be and you, too, will give birth to your savior. When the annunciation is made, when the urge or desire is upon you, believe it to be God’s spoken word seeking embodiment through you. Go, tell no man of this holy thing that you have conceived. Lock your secret within you and magnify the Lord, magnify or believe your desire to be your savior coming to be with you.
+Your unconditioned awareness or I AM is the Virgin Mary who knew not a man and yet, unaided by man, conceived and bore a son, Mary, the unconditioned consciousness, desired and then became conscious of being the conditioned [state](/glossary#state) which she desired to express, and in a way unknown to others became it. Go and do likewise; assume the consciousness of that which you desire to be and you, too, will give birth to your savior. When the annunciation is made, when the urge or desire is upon you, believe it to be God’s spoken word seeking embodiment through you. Go, tell no man of this holy thing that you have conceived. Lock your secret within you and magnify the Lord, magnify or believe your desire to be your savior coming to be with you.
 
 When this belief is so firmly established that you feel confident of results, your desire will embody itself. How it will be done, no man knows. I, your desire, have ways ye know not of; my ways are past finding out. Your desire can be likened to a seed, and seeds contain within themselves both the power and the plan of self-expression. Your consciousness is the soil. These seeds are successfully planted only if, after you have claimed yourself to be and to have that which you desire, you confidently await results without an anxious thought.
 
@@ -50,7 +50,7 @@ To do this you must deny your present identity. *“Let him deny himself.”* Yo
 
 Be still and know that I AM is God. Believe, feel that I AM; know that this knowing one within you, your awareness of being, is God. Close your eyes and feel yourself to be faceless, formless and without figure. Approach this stillness as though it were the easiest thing in the world to accomplish. This attitude will assure your success.
 
-When all thought of problem or self is dropped from consciousness because you are now absorbed or lost in the feeling of just being I AM, then begin in this formless state to feel yourself to be that which you desire to be, *“I AM that I AM.”*
+When all thought of problem or self is dropped from consciousness because you are now absorbed or lost in the [feeling](/glossary#feeling) of just being I AM, then begin in this formless state to feel yourself to be that which you desire to be, *“I AM that I AM.”*
 
 The moment you reach a certain degree of intensity so that you actually feel yourself to be a new conception, this new feeling or consciousness is established and in due time will personify itself in the world of form. This new perception will express itself as naturally as you now express your present identity. To express the qualities of a consciousness naturally you must dwell or live within that consciousness. Appropriate it by becoming one with it. To feel a thing intensely, and then rest confidently that it is, makes the thing felt appear within your world. *“I shall stand upon my watch and see the salvation of the Lord.”* I shall stand firmly upon my feeling, convinced that it is so, and see my desire appear.
 

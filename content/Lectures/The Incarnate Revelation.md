@@ -2,7 +2,7 @@
 
 Recently I read a book called, Vanished Parts of Yesterday, by Lord Frederick Hamilton. In it he tells the story of Catherine the Great - who, when she found the first violet of spring, ordered a sentry to be placed over it to protect it from being plucked. Forgetting to rescind the order, day and night, summer and winter, a sentry stood where 150 years ago, a violet bloomed. The new generation did not know why the sentry was there and he didn't either. It was simply a tradition! 
 
-Make sure no sentry is now standing on your lawn, keeping you from the word of God; for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
+Make sure no sentry is now standing on your lawn, keeping you from the word of [God](/glossary#god); for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
 
 Now, the spirit of truth) comes to all who will accept it. And the incomplete form of the incarnate revelation will continue until [the spirit of truth](/lectures/the-spirit-of-truth) comes! It has come to this lady whose vision I would like to share with you now. 
 
@@ -16,21 +16,21 @@ You may think God could not create wars and conflicts between countries, but I t
 
 I know very able imaginists who suggest we look upon the history of man as material for the artistry of God. That's beautifully said, but I rather think it takes the horrors of experience to transform man into the beautiful being he was in the beginning. 
 
-In the Book of Genesis we are told: *"He meant it for evil but God meant it for good."* In order to play the part of man, awareness had to fall asleep, and in so doing became the dreamer called Joseph and was sold into slavery. In spite of the horrors of the world, Joseph awoke and was able to save civilization from death. So I believe that regardless of what we do, it is being transformed into the beauty of the promise. 
+In the Book of Genesis we are told: *"He meant it for evil but God meant it for good."* In order to play the part of man, awareness had to fall asleep, and in so doing became the dreamer called Joseph and was sold into slavery. In spite of the horrors of the world, Joseph awoke and was able to save civilization from death. So I believe that regardless of what we do, it is being transformed into the beauty of [the promise](/glossary#the-promise). 
 
 Dwell upon this lady's revelation, for it came to her through the spirit of truth). Remember: the dreamer in her is also the being in the director's chair. John Wayne always plays the leading role, never a secondary one, and God is the key actor, always the star. Recognizing John (the word means *"Jehovah's favored one"*) he calls her name. 
 
 Scripture tells us that God numbered the stars and called each by name. Do you know that you are far more precious than the stars or the sands of the sea? Though we seem to be unnumbered, each and every one of us is known in the mind of the Father and each name is recorded in the Book of Life. 
 
-Although my friend could not hear the words spoken in her vision, upon awakening she remembered: It is not before Abraham was, I am, but before Abraham, was I am! You will find this statement in the 8th chapter of the Gospel of John. This is a chapter which concerns itself with the identity of the Father. Here he claims: *"My Father is he who you call God, but I know my Father and you know not your God."* In this statement he is trying to get you to go beyond a physical state and think of God (your imagination) as the source of all life! 
+Although my friend could not hear the words spoken in her vision, upon awakening she remembered: It is not before Abraham was, I am, but before Abraham, was I am! You will find this statement in the 8th chapter of the Gospel of John. This is a chapter which concerns itself with the identity of the Father. Here he claims: *"My Father is he who you call God, but I know my Father and you know not your God."* In this statement he is trying to get you to go beyond a physical [state](/glossary#state) and think of God (your [imagination](/glossary#imagination)) as the source of all life! 
 
-You can test God through the act of Assumption. By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
+You can test God through the act of [Assumption](/glossary#assumption). By assuming you are now what you desire to be, and wearing that belief as you would a suit of clothes, you will become it. 
 
 I can remember buying a new hat and walking down the streets of New York City thinking everyone knew my hat was new. I was very conscious of my hat and a little embarrassed because of its newness. But when I had worn it long enough to throw it in the closet and unconsciously pick it up again, it was an old hat and I could wear it normally. You may deny this, but if you are honest with yourself you will admit that you are very conscious of a new suit or dress, even though those who meet you may not know or care whether your clothes are old or new. Only you are aware of the clothes you are wearing. 
 
 The same thing is true of an Assumption. At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your Assumption long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
 
-Remember: the source of all life is I AM! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"I AM"*! And there is no other when you say, I am! 
+Remember: the source of all life is [I AM](/glossary#i-am)! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"I AM"*! And there is no other when you say, I am! 
 
 The spirit of truth) made himself known to this lady in a vision and will lead her into all things. Trained in the belief of an external God, she has overcome a great deal to receive him. 
 
@@ -38,7 +38,7 @@ Man must overcome the belief in a being outside of self before the spirit of tru
 
 The world rejects this revelation because they do not know the Father. They call him *"Lord"* and worship him as someone external to themselves, not knowing He is within. 
 
-Although you may believe that [Jesus Christ](/lectures/jesus-christ) is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, Christ. Then you will tell those who have been conditioned to believe that Jesus Christ is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
+Although you may believe that [Jesus Christ](/lectures/jesus-christ) is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, [Christ](/glossary#christ). Then you will tell those who have been conditioned to believe that Jesus Christ is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
 
 If David calls me father and he calls you father, are we not one father? If there is only one son, only one God and father of all, and everyone individually has the identical son who calls him father - have we not proved the truth of that wonderful 4th chapter of Ephesians: *"There is only one body, one Spirit, one hope, one Lord, one faith, one baptism, one God and Father of all?"* 
 
@@ -86,7 +86,7 @@ It is said that God spoke to Moses, making it appear as though God spoke from wi
 
 Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your Assumption. Don't make them see you; let them see the change! 
 
-Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that feeling as you now wear your present body of belief. Continue to wear that new state and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
+Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that [feeling](/glossary#feeling) as you now wear your present body of belief. Continue to wear that new state and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
 
 There is only one source. The world calls it God. That is a lovely name, but don't forget that God is your awareness! No one can see I am! They see what I tell them that I am. I walk the earth and they see that I am a man wearing a gray suit. I tell them where I live, and they know the names of my father and mother, sister and brothers; but these are only covers for the being that I am, as no one can see my true identity on this level. They only see my metamorphosis. 
 

@@ -1,6 +1,6 @@
 # Salvation History
 
-It is God's purpose to give himself to you as though there were no other! And when He does, it will not be you and God, but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
+It is [God](/glossary#god)'s purpose to give himself to you as though there were no other! And when He does, it will not be you and God, but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
 
 Ask a devoted Christian who knows his Bible if he believes in [Jesus Christ](/lectures/jesus-christ) and thinks of him as the Lord; he will answer, Yes. Ask him if he believes that Jesus was referring to the creator of the universe, when he said: *"I and my Father are one, and when you see me you have seen the Father,"* and again he will agree.
 
@@ -8,7 +8,7 @@ Do you believe that scripture is the word of God which is true and its truth can
 
 Did he not say that he encountered David in the Spirit, at which time David called him *"Lord"*? And did not David say: *"I will tell the decree of the Lord, he said to me, 'Thou art my son, today I have begotten thee.' If David called him "*Lord*" in the New Testament, and the Lord called David "*son" in the Old Testament, are they not father and son?
 
-Although year after year man has sacrificed the blood of an ox or lamb without changing his consciousness, Christ's supreme sacrifice (as told us in the 10th chapter of Hebrews) is by splitting the curtain of his own body from top to bottom, and taking his own blood into the Holy of holies. And did not the Holy Spirit, who he knew to be himself, descend upon him in the form of a dove and remain there?
+Although year after year man has sacrificed the blood of an ox or lamb without changing his consciousness, [Christ](/glossary#christ)'s supreme sacrifice (as told us in the 10th chapter of Hebrews) is by splitting the curtain of his own body from top to bottom, and taking his own blood into the Holy of holies. And did not the Holy Spirit, who he knew to be himself, descend upon him in the form of a dove and remain there?
 
 Do you agree that a man's history is made up of all of the events he has experienced? And if Jesus Christ has experienced everything I have mentioned, do they not constitute his history? And you agree he is the Lord? Then I say: only when salvation history invades time, will man really know the meaning of life, in time!
 
@@ -53,7 +53,7 @@ This glorious, spiritual story doesn't make sense to man, so he believes it in a
 
 You see, God has already put eternity into the heart of every man. And when the time is fulfilled, He adds a thirst that only eternity can satisfy. So when you tell [God's word](/lectures/god-s-word), and there is no interest, it is because the hunger has not come upon them. But the day will come when God will send a hunger - not for bread or a thirst for water, but for experiencing the word of God; and not a thing can satisfy that hunger but an experience of God.
 
-In order for such an experience to happen, God must invade time and possess you. Then you fulfill salvation's story, as everything said in scripture is experienced by you. Having come into the world - and fulfilling scripture - you will interpret Moses, the law, the prophets, and the Psalms, as things concerning yourself; for you will discover that the events recorded as happening to Jesus Christ, have happened in you.
+In order for such an experience to happen, God must invade time and possess you. Then you fulfill salvation's story, as everything said in scripture is experienced by you. Having come into the world - and fulfilling scripture - you will interpret Moses, [the law](/glossary#the-law), the prophets, and the Psalms, as things concerning yourself; for you will discover that the events recorded as happening to Jesus Christ, have happened in you.
 
 Remember, not every word of scripture is significant. Like a letter you write, not every word has significance; but there is meaning, a purpose to your written word. When salvation history invades you, the meaning of scripture will be known from experience. Using the law of Moses and the prophets and the psalms, you will interpret in all the scriptures the things concerning yourself, knowing you are the Jesus Christ of which scripture refers.
 
@@ -65,13 +65,13 @@ Take my message to heart and dwell upon this - the only salvation! Every day, te
 
 When Jesus was asked: *"Did not Moses say that if a man married and had no offspring and died, his brother should take her to wife and raise up a family for his brother? If he did this, whose wife would she be in the resurrection?"* And Jesus answered: *"You do not know the scripture. In this age man marries and is given in marriage. But those who are accounted worthy to attain to the age of the resurrection neither marry or are given in marriage; for - being one with God - they can die no more."* In the resurrection, the son of God is one with God; for the Father and the son are one!
 
-After your resurrection from this state of death, you no longer marry, or die, but until then you will continue to fall in love, marry, get old, and depart. They have cemeteries there too, making money or people who own them by burying things that do not die.
+After your resurrection from this [state](/glossary#state) of death, you no longer marry, or die, but until then you will continue to fall in love, marry, get old, and depart. They have cemeteries there too, making money or people who own them by burying things that do not die.
 
 If you and I had gotten in on the ground floor of Forest Lawn, we would be millionaires by now. All those people do, is play upon the gullibility of people; because no one who dies ever goes there. You might just as well take off the clothes you are now wearing, take them to Forest Lawn and bury them in a box. It's the same thing, because you wear your garment of flesh and blood just as you do a suit of clothes. But in this age a box must be purchased to put the garment in so that people can make a quick dollar.
 
 Yet the being who wore the garment is the creator of the world, and instantly created a new one to continue life as before. Now, wouldn't it be horrible if life like that went on forever? Well, God in his infinite mercy invades time and redeems man in the one body of the Lord Jesus Christ!
 
-Claim you are as free as the wind! Live nobly in your imagination. Dwell upon all the lovely things in life for yourself and others, as there is no other. Without loss of identity, you are going to know you are the one God who created and sustains the world. 
+Claim you are as free as the wind! Live nobly in your [imagination](/glossary#imagination). Dwell upon all the lovely things in life for yourself and others, as there is no other. Without loss of identity, you are going to know you are the one God who created and sustains the world. 
 
 You will know you did not begin when you came here, but have been traveling for unnumbered centuries. You have done violent, horrible things; yet God in his infinite mercy has re-moved their memory so that you could live with yourself. And in the end, when God invades you with the eternal history of salvation, all of your past will be forgiven. It will be wiped out as though it never was. And you will be redeemed with no memory of the horrors you knew in this world of time.
 

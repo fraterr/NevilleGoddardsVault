@@ -4,13 +4,13 @@ The book of Genesis is made up of three records, called the J, P, and E manuscri
 
 *"Abraham believed and it was accounted unto him for righteousness."* 
 
-Here we discover that it is not what man is, but what he trusts God to do, that saves him. Believing that God the Father has prepared the way for his banished sons to return, in the state of faith you accepted the verdict that you would be enslaved for four hundred years.
+Here we discover that it is not what man is, but what he trusts [God](/glossary#god) to do, that saves him. Believing that God the Father has prepared the way for his banished sons to return, in the [state](/glossary#state) of faith you accepted the verdict that you would be enslaved for four hundred years.
 
 Now when you read this statement you may think in terms of time as we know it, but that is not part of the mystery. In the Hebrew alphabet each letter has a numerical - as well as a symbolic - value. The last letter of the Hebrew alphabet is "taf. Its numerical value is four hundred, and its symbolic value is that of a cross. That cross is the body you wear. It doesn't mean that it will take four hundred years for you to reach the end of the journey, but that a way has been prepared to bring you out of this journey into death.
 
 Everything begins, waxes, wanes, and dies here; but God has prepared a way for us - his banished sons - to return to him, and when we do we will have great possessions. These possessions will not be of an earthly nature, for everything dissolves here. 
 
-In this world your possessions enslave you. Buy a home, and the minute you have the feeling of possession you must insure your property against all the elements. Buy a large diamond of which you are so proud, and you must insure it and pay for that insurance the rest of your days. 
+In this world your possessions enslave you. Buy a home, and the minute you have the [feeling](/glossary#feeling) of possession you must insure your property against all the elements. Buy a large diamond of which you are so proud, and you must insure it and pay for that insurance the rest of your days. 
 
 People who own a fortune in diamonds often place them in a vault and never see them, yet pay insurance on them year after year - but they have the feeling of possession. So you see: regardless of how great you determine your earthly possessions to be, you cannot take them with you. So what is the great possession that you will return with? Life in yourself!
 
@@ -31,7 +31,7 @@ I arrested this activity, the music froze, and the sustained note began to incre
 
 It took three and one half years for that pattern to unfold in me; but when it was complete I knew beyond all doubt that I was the one scripture called [Jesus Christ](/lectures/jesus-christ). Everyone is God incarnate. You may be unknown, unwanted, and shunned by the world; but you really are God, wearing your cross as you swore to yourself that you would.
 
-Now listen to these words: *"Marvel not at this; for those who are in the tomb will hear his voice and come forth."* You may think the tomb spoken of here is a cemetery or graveyard; but I tell you: the tomb in which you are buried is your skull. Your own wonderful human imagination is the God of the earth and sea who is buried in your skull. That is the holy sepulcher. So don't go to Egypt or the Near East, to what is called the Holy Land, to find the place where God is buried, for he is not there. God is buried in your skull and it is from that skull that he will rise.
+Now listen to these words: *"Marvel not at this; for those who are in the tomb will hear his voice and come forth."* You may think the tomb spoken of here is a cemetery or graveyard; but I tell you: the tomb in which you are buried is your skull. Your own wonderful human [imagination](/glossary#imagination) is the God of the earth and sea who is buried in your skull. That is the holy sepulcher. So don't go to Egypt or the Near East, to what is called the Holy Land, to find the place where God is buried, for he is not there. God is buried in your skull and it is from that skull that he will rise.
 
 No one knows when the power that you really are will awaken and rise from sleep; but I do know that when it does you will have the power to stop the world, to examine it, and start it again at will. And no matter how long you arrest it, when released there will be no knowledge of the arrest, for there will be no change. Space is a facility for experience; but time is a facility for changes in experience, and when you arrest time you arrest change. If you stopped this moment in time and kept it so for a thousand years, nothing would age because nothing could change. Time is within you and you can arrest it just as I did the night I sustained the tone.
 
@@ -65,7 +65,7 @@ In my dream I played the part of David as I brought my brother Fred and his son 
 
 These are mysteries, not of things to be kept secret, but mysterious in nature. They confuse the rational mind, as it wants to think on the level of this secular world where a man fathers a child and that's all there is to it. The rational mind cannot solve the mystery of scripture, for the Bible is not a record of secular history, but divine history - which is something entirely different. 
 
-All the names recorded there are significant and tell a story that unfolds in the soul. You are the God whose name is I AM, but you are in this world and will bear the form of flesh and blood for an allotted time. Then [the tree of life](/lectures/the-tree-of-life) that you are will be split from top to bottom, and you - the Spirit trapped inside - will be set free.
+All the names recorded there are significant and tell a story that unfolds in the soul. You are the God whose name is [I AM](/glossary#i-am), but you are in this world and will bear the form of flesh and blood for an allotted time. Then [the tree of life](/lectures/the-tree-of-life) that you are will be split from top to bottom, and you - the Spirit trapped inside - will be set free.
 
 In the meanwhile, dwell upon your great possession. If tonight you owned the earth and it vanished at your death, what would it matter? Stalin thought he controlled the world. He killed twenty million people then vanished. But Stalin did not die; he was restored to life in an environment best suited for the work yet to be done in him. Stalin is a name God adopted in order to play that part, just as God adopted the name Hitler and thought he would rule Germany. 
 
@@ -75,7 +75,7 @@ Now, forget the individual and return to scripture, for you are only here to ful
 
 Everything contains within itself the capacity for symbolic significance. There isn't a dream that is insignificant, but we are past masters of their misinterpretation. We cannot see the story behind the story. But I tell you: you are here for one grand purpose and that is to awaken from the dream, and when you do you will have power in yourself. *"As the Father has power in himself, so he has granted the son also to have power in himself. Do not marvel at this, for the hour is coming when those who are in the tomb will hear his voice and come forth,"* and as you come forth your power is exercised.
 
-There is a note, a tone that will awaken you when the boys and girls play in the streets of the Jerusalem within you. Zion is within you and the Lord is within you, for the entire drama unfolds in the imagination. One day you will be so completely carried away with the beauty of something produced by a note that you will arrest it. That sustained note will cause you to awaken to the truth that you are the Christ of scripture, the Jehovah of the Old Testament. Then you will know that you have returned with your great possession, for you will have transformed an animated body into a life-giving Spirit.
+There is a note, a tone that will awaken you when the boys and girls play in the streets of the Jerusalem within you. Zion is within you and the Lord is within you, for the entire drama unfolds in the imagination. One day you will be so completely carried away with the beauty of something produced by a note that you will arrest it. That sustained note will cause you to awaken to the truth that you are the [Christ](/glossary#christ) of scripture, the Jehovah of the Old Testament. Then you will know that you have returned with your great possession, for you will have transformed an animated body into a life-giving Spirit.
 
 Now let us go into the silence.
 

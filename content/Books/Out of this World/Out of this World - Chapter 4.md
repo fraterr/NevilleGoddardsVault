@@ -4,9 +4,9 @@
 
 The ideal we serve and strive to attain could never be evolved from us were it not potentially involved in our nature.
 
-It is now my purpose to retell and to emphasize an experience of mine printed by me two years ago. I believe these quotations from *"[THE SEARCH](/books/the-search)"* will help us to understand the operation of the law of consciousness, and show us that we have no one to change but self.
+It is now my purpose to retell and to emphasize an experience of mine printed by me two years ago. I believe these quotations from *"[THE SEARCH](/books/the-search)"* will help us to understand the operation of [the law](/glossary#the-law) of consciousness, and show us that we have no one to change but self.
 
-―Once in an idle interval at sea I meditated on, ―the perfect state,‖ and wondered what I would be, were I of too pure eyes to behold inequity, if to me all things were pure and were I without condemnation. As I became lost in this fiery brooding, I found myself lifted above the dark environment of the senses. So intense was feeling I felt myself a being of fire dwelling in a body of air. Voices as from a heavenly chorus, with the exaltation of those who had been conquerors in a conflict with death were singing, ―He is risen – He is risen, and intuitively I knew they meant me.
+―Once in an idle interval at sea I meditated on, ―the perfect [state](/glossary#state),‖ and wondered what I would be, were I of too pure eyes to behold inequity, if to me all things were pure and were I without condemnation. As I became lost in this fiery brooding, I found myself lifted above the dark environment of the senses. So intense was [feeling](/glossary#feeling) I felt myself a being of fire dwelling in a body of air. Voices as from a heavenly chorus, with the exaltation of those who had been conquerors in a conflict with death were singing, ―He is risen – He is risen, and intuitively I knew they meant me.
 
 Then I seemed to be walking in the night. I soon came upon a scene that might have been the ancient Pool of Bethesda for in this place lay a great multitude of impotent folk –blind, halt, withered – waiting not for the moving of the water as of tradition, but waiting for me. As I came near, without thought or effort on my part they were, one after the other, molded as by the Magician of the Beautiful. Eyes, hands, feet – all missing members – were drawn from some invisible reservoir and molded in harmony with that perfection which I felt springing within me. When all were made perfect, the chorus exulted, “It is finished. Then the scene dissolved and I awoke.
 
@@ -14,7 +14,7 @@ I know the vision was the result of my intense Meditation upon the idea of perfe
 
 My mystical experiences have convinced me that there is no way to bring about the outer perfection we seek other than by the transformation of ourselves.
 
-In the divine economy nothing is lost. We cannot lose anything save by descent from the sphere where the thing has its natural life. There is no transforming power in death and, whether we are here or there, we fashion the world that surrounds us by the intensity of our imagination and feeling, and we illuminate or darken our lives by the concepts we hold of ourselves. Nothing is more important to us than our conception of ourselves, and especially is this true of our concept of the dimensionally great One within us.
+In the divine economy nothing is lost. We cannot lose anything save by descent from the sphere where the thing has its natural life. There is no transforming power in death and, whether we are here or there, we fashion the world that surrounds us by the intensity of our [imagination](/glossary#imagination) and feeling, and we illuminate or darken our lives by the concepts we hold of ourselves. Nothing is more important to us than our conception of ourselves, and especially is this true of our concept of the dimensionally great One within us.
 
 Those who help or hinder us, whether they know it or not, are the servants of that law which shapes outward circumstances in harmony with our inner nature.
 

@@ -48,7 +48,7 @@ Most men believe that fame, great wealth or political power would secure them ag
 
 IV
 
-Here behind these walls of mental darkness man remains in what appears to be a living death. After years of disappointment man turns from these false friends, and he discovers within himself the ancient one (his awareness of being) who has been buried since the day he first believed himself to be man and forgot that he was God.
+Here behind these walls of mental darkness man remains in what appears to be a living death. After years of disappointment man turns from these false friends, and he discovers within himself the ancient one (his awareness of being) who has been buried since the day he first believed himself to be man and forgot that he was [God](/glossary#god).
 
 Synopsis
 
@@ -76,7 +76,7 @@ VI
 
 As man drops these cherished human values he absorbs more and more of the light (the old priest) until finally he becomes the light and knows himself to be the ancient one.
 
-I AM [the light of the world](/lectures/the-light-of-the-world)
+[I AM](/glossary#i-am) [the light of the world](/lectures/the-light-of-the-world)
 
 VII
 
@@ -94,7 +94,7 @@ VIII
 
 Man discovers his awareness of being to be the inexhaustible treasure of the universe. In that day when man makes this discovery he dies as man and awakes as God.
 
-Yes, Edmond Dantés becomes the Count of Monte Cristo. Man becomes Christ.
+Yes, Edmond Dantés becomes the Count of Monte Cristo. Man becomes [Christ](/glossary#christ).
 
 Twenty-Third Psalm
 

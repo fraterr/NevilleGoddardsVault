@@ -1,8 +1,8 @@
 # Trust In God
 
-Ask any religious person if he believes in God, and he will say yes. But if you ask him who God is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
+Ask any religious person if he believes in [God](/glossary#god), and he will say yes. But if you ask him who God is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
 
-Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, I AM has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be I AM, the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
+Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, [I AM](/glossary#i-am) has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be I AM, the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
 
 The word translated 'Lord' in the statement: *"[I am the Lord](/lectures/i-am-the-lord)' is YOD HE VAU HE, [pron. YOD HEY VAV HEY] which means 'I AM'. So this statement could read, "*I am the I AM.*" It is impossible to say I am and speak of another; and your awareness - your I am - is he who declares: "*I am the Lord, and my glory I will not give to another." 
 
@@ -10,7 +10,7 @@ During your lifetime, I am sure there have been those you thought greater than y
 
 There is [no other God](/lectures/no-other-god), other than he who is housed within you. When you say, *"I am"* you are speaking God's name, the God I ask you to trust - for there is no other. We are told to *"Make no graven image unto me."* If you make an image out of marble or metal in the shape of another and worship it, you have created a false God. 
 
-A friend recently shared a wonderful experience with me. It seems a neighbor was forever dropping in on her, constantly telling horrible stories about her friends. She tried to tell the woman how to change things by using her imagination, but she would not listen. And although she imagined her as a fine, positive, happy person, she remained in her negative state. 
+A friend recently shared a wonderful experience with me. It seems a neighbor was forever dropping in on her, constantly telling horrible stories about her friends. She tried to tell the woman how to change things by using her [imagination](/glossary#imagination), but she would not listen. And although she imagined her as a fine, positive, happy person, she remained in her negative [state](/glossary#state). 
 
 Realizing the lady was a character my friend had to overcome, she began to change her thoughts. In her imagination she told the neighbor that she loved her. This she persisted in doing, until one day she realized she really did. That night she had this dream. 
 
@@ -22,7 +22,7 @@ Scripture tells us to love God because he first loved us, and that we should imi
 
 God uses man to express love and hate, for man is the agent to express the qualities of I AM. There is no other God! You will find other characteristics of God, but those who know his name put their trust in I AM! 
 
-Put your trust in God's name. Knowing what you want, believe that your Assumption will make it a fact. Believe that you need no one on the outside to aid you, for [all things are possible](/lectures/all-things-are-possible) to God. Assume things are as you want them to be, for an Assumption, persisted in will harden into fact! 
+Put your trust in God's name. Knowing what you want, believe that your [Assumption](/glossary#assumption) will make it a fact. Believe that you need no one on the outside to aid you, for [all things are possible](/lectures/all-things-are-possible) to God. Assume things are as you want them to be, for an Assumption, persisted in will harden into fact! 
 
 Another lady found herself, in dream, with her sister, mother, brother-in-law, and a man she knew to be her first husband. Having agreed to cross the desert on foot and return, they began their journey as the sun blistered her body and the sand burned her feet. At one point she fell, struck her head on a rock, and knew excruciating pain. But at the journey's end she found her Father. Then she returned to the group and they began their journey home. 
 

@@ -2,11 +2,11 @@
 
 *"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* ([Jeremiah 18:2-4](https://www.biblegateway.com/passage/?search=Jeremiah+18:2-4&version=KJV))
 
-The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
+The word translated 'Potter' means [imagination](/glossary#imagination). Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
 This conception of creation as a work of imagination, and the Lord our Father as our imagination, will take us further into the mystery of creation than any other guide.
 
-The only reason people do not believe in this identity of God and human imagination is that they are unwilling to assume the responsibility for their frightful misuse of imagination. Divine Imagination has descended to the level of human imagination, that human imagination may ascend to Divine Imagination.
+The only reason people do not believe in this identity of [God](/glossary#god) and human imagination is that they are unwilling to assume the responsibility for their frightful misuse of imagination. Divine Imagination has descended to the level of human imagination, that human imagination may ascend to Divine Imagination.
 
 The 8th Psalm says that man was made a little lower than God — not a little lower than the angels — as the King James Version mistakenly translates it. Angels are the emotional dispositions of man and are therefore his servant — and not his superior — as the author of Hebrews tells us. ([Heb. 1:14](https://www.biblegateway.com/passage/?search=Hebrews+1:14&version=KJV).)
 
@@ -38,7 +38,7 @@ Paul states, *"the spirit of God dwells in you” ([1Cor. 3:16](https://www.bibl
 
 If *"all things were made through Him, and without Him was not anything made that was made” ([John 1:3](https://www.biblegateway.com/passage/?search=John+1:3&version=KJV)), it should not be difficult for man to test himself to find out who this creator in himself is. The test will prove to man that his imagination is the One, "*who gives life to the dead and calls into existence the things that do not exist." ([Rom. 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
-The Potter's presence in us is inferred from what He does there. We cannot see Him there as One, not ourselves. The nature of the Potter — Jesus Christ — is to create and there is no creation without Him.
+The Potter's presence in us is inferred from what He does there. We cannot see Him there as One, not ourselves. The nature of the Potter — Jesus [Christ](/glossary#christ) — is to create and there is no creation without Him.
 
 Every recorded story in this book is just such a test as Paul asked the Corinthians to make.
 
@@ -60,7 +60,7 @@ This lady imaginatively played *"Queen"* by being where she wanted to be in her 
 
 "My desire was to attend a matinee performance of a famous pantomimist currently playing in one of the largest theatres of our city. Because of the intimate nature of this art, I wanted to sit in the orchestra; but I didn't have even the price of a balcony ticket. The night I determined to have this pleasure for myself, in my imagination, I fell asleep watching the wondrous performer. In my imaginal act I sat in an orchestra-center seat, heard the applause as the curtain rose and the artist came on stage, and I actually felt the intense excitement of this experience.
 
-"The next day — the day of the matinee performance — my financial condition had not changed. I had exactly one dollar and thirty-seven cents in my purse. I knew I must use the dollar to buy gas for my car which would leave me with thirty-seven cents, but I also knew I had faithfully slept in the feeling of being at that performance, so I dressed myself for the theatre. While changing articles from one purse to another, I found a dollar bill and forty-five cents in change hidden in the pocket of my seldom-used opera purse. I grinned to myself, realizing that gasoline money had been given to me; so would the balance of my theatre ticket be given to me. Gaily I finished dressing and left for the theatre.
+"The next day — the day of the matinee performance — my financial condition had not changed. I had exactly one dollar and thirty-seven cents in my purse. I knew I must use the dollar to buy gas for my car which would leave me with thirty-seven cents, but I also knew I had faithfully slept in the [feeling](/glossary#feeling) of being at that performance, so I dressed myself for the theatre. While changing articles from one purse to another, I found a dollar bill and forty-five cents in change hidden in the pocket of my seldom-used opera purse. I grinned to myself, realizing that gasoline money had been given to me; so would the balance of my theatre ticket be given to me. Gaily I finished dressing and left for the theatre.
 
 "Standing before the ticket window, my confidence dwindled as I gazed at the prices and saw three-seventy-five for orchestra seats.
 

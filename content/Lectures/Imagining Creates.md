@@ -2,12 +2,12 @@
 
 The creator of the world works in the depth of your soul, underlying all of your faculties, including perception and streams into your surface mind least disguised in the form of creative fancy. Watch your thoughts, and you will catch Him in the act of creating, for He is your very Self. Every moment of time you are imagining what you are conscious of, and if you do not forget what you are imagining and it comes to pass, you have found the creative cause of your world. 
 
-Because God is pure imagination and the only creator, if you imagine a state and bring it to pass, you have found Him. Remember: God is your consciousness, your
-I AM; so when you are imagining, God is doing it. If you imagine and forget what you imagine, you may not recognize your harvest when it appears. It may be good, bad, or indifferent, but if you forget how it came into being, you have not found God. 
+Because [God](/glossary#god) is pure [imagination](/glossary#imagination) and the only creator, if you imagine a [state](/glossary#state) and bring it to pass, you have found Him. Remember: God is your consciousness, your
+[I AM](/glossary#i-am); so when you are imagining, God is doing it. If you imagine and forget what you imagine, you may not recognize your harvest when it appears. It may be good, bad, or indifferent, but if you forget how it came into being, you have not found God. 
 
 You do not have to be rich to be happy but you must be imaginative. You could have great wealth and be afraid of tomorrow's needs, or have nothing and travel the world over, for [all things exist](/lectures/all-things-exist) in your own wonderful human imagination. 
 
-Let me tell you a story of a lady I know who traveled in her imagination. When this lady was about sixteen she lived in Northern California. She was devoted to her father, who lived high, wide and handsome. He supplied all of the family's needs very well until the day he was killed. Then, overnight, the family discovered they had nothing! Her mother, feeling she could not stand being ridiculed, moved the family to San Francisco, where the girl - although possessing outstanding artistic talent - found employment as a waitress in order to help the family. 
+Let me tell you a story of a lady I know who traveled in her imagination. When this lady was about sixteen she lived in Northern California. She was devoted to her father, who lived high, wide and handsome. He supplied all of the family's needs very well until the day he was killed. Then, overnight, the family discovered they had nothing! Her mother, [feeling](/glossary#feeling) she could not stand being ridiculed, moved the family to San Francisco, where the girl - although possessing outstanding artistic talent - found employment as a waitress in order to help the family. 
 
 Taking the streetcar home from work that first Christmas Eve, she found the car filled with young boys and girls, singing and happy, and she could not restrain the tears. Lucky for her it was raining, so she extended her face to the heavens and let the rain mingle with her tears. As she tasted the salt of her tears she said to herself: *"This is not a streetcar, but a ship and I am not tasting my tears, but the salt of the sea in the wind."* 
 
@@ -28,11 +28,11 @@ The word translated *"potter,"* means imagination, and we are told that the Lord
 
 Remember the day your boss criticized you, and you are molding an image of yourself based upon what he said. Being undesirable, that image is misshapen. Unable to discard yourself, go down to the potter's house by taking the same scene and reshaping yourself by remembering the day your boss congratulated you on your accomplishments. Will this act change your world? Yes! I tell you: the God of the universe is shaping you morning, noon, and night, as you accept words, actions, and events from seeming others. 
 
-I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the Assumption they are true and - because no power can thwart God - what He is imagining, you will experience. 
+I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the [Assumption](/glossary#assumption) they are true and - because no power can thwart God - what He is imagining, you will experience. 
 
 You are not someone apart from God, for I AM cannot be divided. The Lord, our God, is one I AM, not two! If God's I AM and your I AM is the same I AM, define what you would like to be. Then believe you are the Lord! Be like the lady who transformed a streetcar into a cruise. Lose yourself in your new state, while your world on the outside remains, momentarily, the same. 
 
-Now, your reasoning mind may say she did have an aunt who had the presence of mind to die and leave her $3,000 at that particular time. And being young she did not consider the future; but I tell you: this is how the law works. It never fails if you will go all out and believe that your human imagination is God. 
+Now, your reasoning mind may say she did have an aunt who had the presence of mind to die and leave her $3,000 at that particular time. And being young she did not consider the future; but I tell you: this is how [the law](/glossary#the-law) works. It never fails if you will go all out and believe that your human imagination is God. 
 
 Because God cannot die, he is a God of the living! So when the garment you now wear comes to its end, you - the being living in it - will continue to live. You will still be in a world just like this one until you awaken from the dream of life. Then you will move into an entirely different age, to realize the oneness of the being that you really are. Until then, believe what I am telling you, for it is true. 
 
@@ -44,7 +44,7 @@ The world is yourself pushed out. Ask yourself what you want and then give it to
 
 Last year, while I was in Barbados, a friend received a call from his mother telling him that his brother had killed a man. As he replaced the phone, a vision appeared in which a woman said: *"Find Neville and he will give you the rainbow in the sky."* My friend called me in Barbados, and when I heard his story I said: *"It is done. God is infinite mercy, and there is nothing but forgiveness of sin."* 
 
-When the spirit of Christ is formed in you, you will forgive a person, no matter what he has done. Pharaoh would not let his people go because God had hardened his heart, so how can you condemn Pharaoh for something God did? Tonight my friend told me his mother had called to tell him his brother had been set free. 
+When the spirit of [Christ](/glossary#christ) is formed in you, you will forgive a person, no matter what he has done. Pharaoh would not let his people go because God had hardened his heart, so how can you condemn Pharaoh for something God did? Tonight my friend told me his mother had called to tell him his brother had been set free. 
 
 I will tell you now, that no one can reach the end of the journey without having killed someone. Everyone must play every part, so that when memory returns he may forgive all. The part of the thief, the murderer, the rapist and the one raped - every state will be experienced. Anything man can do is recorded in scripture, and to fulfill scripture man must do every thing. 
 

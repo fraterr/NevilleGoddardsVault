@@ -5,11 +5,11 @@ So it is with sleep that we are now concerned. The conscious two-thirds of our l
 
 *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumbering upon the bed; then he openeth the ears of men and sealeth their instruction"*, ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))
 
-It is in sleep and in Prayer, a State akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
+It is in sleep and in Prayer, a [State](/glossary#state) akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
 The subconscious – unlike the woman of the world who marries her husband to change him – has no desire to change the conscious, waking state, but loves it as it is and faithfully reproduces its likeness in the outer world of form.
 
-The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost feeling that they may reveal you to yourself.
+The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost [feeling](/glossary#feeling) that they may reveal you to yourself.
 
 *"As in heaven, so on earth"* ([Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew+6:10&version=KJV); [Luke 11:2](https://www.biblegateway.com/passage/?search=Luke+11:2&version=KJV)). As in the subconscious, so on earth.
 

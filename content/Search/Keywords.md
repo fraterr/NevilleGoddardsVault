@@ -2,7 +2,7 @@
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Assumption")
+WHERE contains(keywords,"[Assumption](/glossary#assumption)")
 SORT type DESC
 ```
 
@@ -10,7 +10,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Abdullah")
+WHERE contains(keywords,"[Abdullah](/glossary#abdullah)")
 SORT type DESC
 ```
 
@@ -90,7 +90,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Mental diet")
+WHERE contains(keywords,"Mental [diet](/glossary#diet)")
 SORT type DESC
 ```
 
@@ -106,7 +106,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Revision")
+WHERE contains(keywords,"[Revision](/glossary#revision)")
 SORT type DESC
 ```
 
@@ -114,7 +114,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"Sabbath")
+WHERE contains(keywords,"[Sabbath](/glossary#sabbath)")
 SORT type DESC
 ```
 
@@ -122,7 +122,7 @@ SORT type DESC
 
 ```dataview
 TABLE chapter AS "Chapter", tags AS "Type", keywords AS "Keywords"
-WHERE contains(keywords,"State akin to sleep")
+WHERE contains(keywords,"[State](/glossary#state) akin to sleep")
 SORT type DESC
 ```
 

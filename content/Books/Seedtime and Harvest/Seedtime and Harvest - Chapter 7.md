@@ -4,14 +4,14 @@
 
 The serpent's ability to form its skin by ossifying a portion of itself, and its skill in shedding each skin as it outgrew it, caused man to regard this reptile as a symbol of the power of endless growth and self-reproduction. Man is told, therefore, to be *"wise as the serpent"* and learn how to shed his skin - his environment - which is his solidified self; man must learn how to *"loose him, and let him go"* . . . how to *"put off the old man"* . . .how to die to the old and yet know, like the serpent, that he *"shall not surely die"*.
 
-Man has not learned as yet that all that is outside his physical body is also a part of himself, that his world and all the conditions of his life are but the outpicturing of his state of consciousness.
+Man has not learned as yet that all that is outside his physical body is also a part of himself, that his world and all the conditions of his life are but the outpicturing of his [state](/glossary#state) of consciousness.
 
 When he knows this truth, he will stop the futile struggle of self-contention and, like the serpent, let the old go and grow a new environment.
 
 *"Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms."*
 (Tagore)
 
-In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his imagination - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord God had made"* - [Genesis 3:1](https://www.biblegateway.com/passage/?search=Genesis+3:1&version=KJV) - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
+In ancient times, serpents were also associated with the guardianship of treasure or wealth. The injunction to be *"wise as serpents"* is the advice to man to awaken the power of his subtilized body - his [imagination](/glossary#imagination) - that he, like the serpent, may grow and outgrow, die and yet not die, for from such deaths and resurrections alone, shedding the old and putting on the new, shall come fulfillment of his Dreams and the finding of his treaures. As *"the serpent was more subtile than any beast of the field which the Lord [God](/glossary#god) had made"* - [Genesis 3:1](https://www.biblegateway.com/passage/?search=Genesis+3:1&version=KJV) - even so, imagination is more subtile than any creature of the heavens which the Lord God had created. Imagination is the creature that:
 
 *"...was made subject to vanity, not willingly, but by reason of him who hath subjected the same in hope... For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for it? But if we hope for that we see not, then do we have patience wait for it."* ([Romans 8:20, 24, 25](https://www.biblegateway.com/passage/?search=Romans+8:20,+24,+25&version=KJV))
 
@@ -30,7 +30,7 @@ You must first construct as life-like a representation as possible of what you w
 
 How this imagined state is realized physically is not the concern of you, the natural or outer man.
 
-The spiritual body, on its return from the imagined state to its former physical state, created an invisible bridge of incident to link the two states. Although the curious feeling that you were actually there and that the state was real is gone, as soon as you open your eyes upon the old familiar environment, nevertheless, you are haunted with the sense of a double identity - with the knowledge that *"there is a natural body, and there is a spiritual body."* When you, the natural man, have had this experience you will go automatically across the bridge of events which leads to the physical realization of your invisibly prepared place.
+The spiritual body, on its return from the imagined state to its former physical state, created an invisible bridge of incident to link the two states. Although the curious [feeling](/glossary#feeling) that you were actually there and that the state was real is gone, as soon as you open your eyes upon the old familiar environment, nevertheless, you are haunted with the sense of a double identity - with the knowledge that *"there is a natural body, and there is a spiritual body."* When you, the natural man, have had this experience you will go automatically across the bridge of events which leads to the physical realization of your invisibly prepared place.
 
 This concept - that man is dual and that the inner man of imagination can dwell in future states and return to the present moment with a bridge of events to link the two - clashes violently with the widely accepted view about the human personality and the cause and nature of phenomena. Such a concept demands a revolution in current ideas about the human personality, and about space, time and matter. The concept that man, consciously or unconsciously, determines the conditions of life by imagining himself into these mental states, leads to the conclusion that this supposedly solid world is a construction of Mind - a concept which, at first, common sense rejects. However, we should remember that most of the concepts which common sense at first rejected, man was afterward forced to accept. These never-ending reversals of judgment which experience has forced upon man led Professor Whitehead to write: *"Heaven knows what seeming nonsense may not tomorrow be demonstrated truth."*
 
@@ -85,7 +85,7 @@ What natural joy and spontaneous delight lie in seeing the world - not with, but
 
 All things are made by imagination's power. Nothing begins except in the imagination of man.
 
-*"From within out"* is the law of the universe.
+*"From within out"* is [the law](/glossary#the-law) of the universe.
 
 *"As within, so without."* Man turns outward in his search for truth, but the essential thing is to look within.
 

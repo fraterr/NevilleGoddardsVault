@@ -8,7 +8,7 @@ What we are conscious of is constructed out of what we are not conscious of. Not
 
 The whole of creation is asleep within the deep of man and is awakened to objective existence by his subconscious assumptions. Within that blankness we call sleep there is a consciousness in unsleeping vigilance, and while the body sleeps this unsleeping being releases from the treasure house of eternity the subconscious assumptions of man.
 
-Prayer is the key which unlocks the infinite storehouse. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* Prayer modifies or completely changes our subconscious assumptions, and a change of Assumption is a change of expression.
+Prayer is the key which unlocks the infinite storehouse. *"Prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* Prayer modifies or completely changes our subconscious assumptions, and a change of [Assumption](/glossary#assumption) is a change of expression.
 
 The conscious mind reasons inductively from observation, experience and education. It therefore finds it difficult to believe what the five senses and inductive reason deny.
 
@@ -20,15 +20,15 @@ Prayer—the art of believing what is denied by the senses — deals almost enti
 
 Through Prayer, the subconscious is suggested into acceptance of the wish fulfilled, and, reasoning deductively, logically unfolds it to its legitimate end. *"Far greater is He that is in you than he that is in the world."*
 
-The subjective mind is the diffused consciousness that animates the world; it is the spirit that giveth life. In all substance is a single soul — subjective mind. Through all creation runs this one unbroken subjective mind. Thought and feeling fused into beliefs impress modifications upon it, charge it with a mission, which mission it faithfully executes.
+The subjective mind is the diffused consciousness that animates the world; it is the spirit that giveth life. In all substance is a single soul — subjective mind. Through all creation runs this one unbroken subjective mind. Thought and [feeling](/glossary#feeling) fused into beliefs impress modifications upon it, charge it with a mission, which mission it faithfully executes.
 
 The conscious mind originates premises. The subjective mind unfolds them to their logical ends. Were the subjective mind not so limited in its initiative power of reasoning, objective man could not be held responsible for his actions in the world. Man transmits ideas to the subconscious through his feelings. The subconscious transmits ideas from mind to mind through telepathy. Your unexpressed convictions of others are transmitted to them without their conscious knowledge or consent, and if subconsciously accepted by them will influence their behavior.
 
-The only ideas they subconsciously reject are your ideas of them which they could not wish to be true of anyone. Whatever they could wish for others can be believed of them, and by the law of belief which governs subjective reasoning they are compelled to subjectively accept, and therefore objectively express, accordingly.
+The only ideas they subconsciously reject are your ideas of them which they could not wish to be true of anyone. Whatever they could wish for others can be believed of them, and by [the law](/glossary#the-law) of belief which governs subjective reasoning they are compelled to subjectively accept, and therefore objectively express, accordingly.
 
 The subjective mind is completely controlled by suggestion.
 
-Ideas are best suggested when the objective mind is partly subjective, that is, when the objective senses are diminished or held in abeyance. This partly subjective state can best be described as controlled reverie, wherein the mind is passive but capable of functioning with absorption. It is a concentration of attention. There must be no conflict in your mind when you are praying. Turn from what is to what ought to be. Assume the mood of fulfilled desire, and by the universal law of reversibility you will realize your desire.
+Ideas are best suggested when the objective mind is partly subjective, that is, when the objective senses are diminished or held in abeyance. This partly subjective [state](/glossary#state) can best be described as controlled reverie, wherein the mind is passive but capable of functioning with absorption. It is a concentration of attention. There must be no conflict in your mind when you are praying. Turn from what is to what ought to be. Assume the mood of fulfilled desire, and by the universal law of reversibility you will realize your desire.
 
 
 

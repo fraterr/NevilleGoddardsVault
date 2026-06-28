@@ -1,10 +1,10 @@
 # The Law and the Promise - Chapter 3
 
-*"Oh, let your strong imagination turn the great wheel backward, until Troy unburn."* Sir John Collings Squire, *"The Birds"*
+*"Oh, let your strong [imagination](/glossary#imagination) turn the great wheel backward, until Troy unburn."* Sir John Collings Squire, *"The Birds"*
 
 *"All life is, throughout the ages, nothing but the continuing solution of a continuous synthetic problem."* — H. G. Wells
 
-The perfectly stable or static state is always unattainable. The end attained objectively always realizes more than the end the individual originally had in view. This, in turn, creates a new situation of inner conflict, needing novel solutions to force man along the path of creative evolution. *"His touch is infinite and lends a yonder to all ends."* (George Meredith, *"Hymn to Colour"*)
+The perfectly stable or static [state](/glossary#state) is always unattainable. The end attained objectively always realizes more than the end the individual originally had in view. This, in turn, creates a new situation of inner conflict, needing novel solutions to force man along the path of creative evolution. *"His touch is infinite and lends a yonder to all ends."* (George Meredith, *"Hymn to Colour"*)
 
 Today's events are bound to disturb yesterday's established order. The creatively active imagination invariably unsettles a pre-existing peace of mind.
 
@@ -12,7 +12,7 @@ The question may arise as to how, by representing others to ourselves as better 
 
 What it makes, it can unmake. It is not only conservative, building a life from images supplied by memory — it is also creatively transformative, altering a theme already in being.
 
-The parable of the unjust steward ([Luke 16:1-8](https://www.biblegateway.com/passage/?search=Luke+16:1-8&version=KJV)) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this Revision proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
+The parable of the unjust steward ([Luke 16:1-8](https://www.biblegateway.com/passage/?search=Luke+16:1-8&version=KJV)) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this [Revision](/glossary#revision) proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
 
 Because imagining creates reality, we can carry Revision to the extreme and revise a scene that would be otherwise unforgivable.
 
@@ -20,7 +20,7 @@ We learn to distinguish between man — who is all imagination — and those sta
 
 An unjust steward, looking at another's distress, will represent the other to himself as he ought to be seen. Were he, himself, in need — he would enter his dream in his imagination and imagine what he would see and how things would seem and how people would act — 'after these things should be'.
 
-Then, in this state he would fall asleep, feeling the way he would expect to feel, under such circumstances.
+Then, in this state he would fall asleep, [feeling](/glossary#feeling) the way he would expect to feel, under such circumstances.
 
 Would that all the Lord's people were unjust stewards — mentally falsifying the facts of life to deliver individuals forevermore. For the imaginal change goes forward, until at length the altered pattern is realized on the heights of attainment.
 

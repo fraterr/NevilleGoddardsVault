@@ -4,7 +4,7 @@ THE world, and all within it, is man's conditioned consciousness objectified. Co
 
 So it is to consciousness that we must turn if we would discover the secret of creation.
 
-Knowledge of the law of consciousness and the method of operating this law will enable you to accomplish all you desire in life.
+Knowledge of [the law](/glossary#the-law) of consciousness and the method of operating this law will enable you to accomplish all you desire in life.
 
 Armed with a working knowledge of this law, you can build and maintain an ideal world.
 
@@ -24,7 +24,7 @@ Therefore, through his power to imagine and feel and his freedom to choose the i
 
 The mechanism of creation is hidden in the very depth of the subconscious, the female aspect or womb of creation.
 
-The subconscious transcends reason and is independent of induction. It contemplates a feeling as a fact existing within itself and on this Assumption proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a feeling and ends in a volition to act.
+The subconscious transcends reason and is independent of induction. It contemplates a [feeling](/glossary#feeling) as a fact existing within itself and on this [Assumption](/glossary#assumption) proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a feeling and ends in a volition to act.
 
 Ideas are impressed on the subconscious through the medium of feeling.
 
@@ -42,7 +42,7 @@ Every feeling makes a subconscious impression and, unless it is counteracted by 
 
 The dominant of two feelings is the one expressed. I am healthy is a stronger feeling than I will be healthy. To feel I will be is to confess I am not; I am is stronger than I am not.
 
-What you feel you are always dominates what you feel you would like to be; therefore, to be realized, the wish must be felt as a state that is rather than a state that is not
+What you feel you are always dominates what you feel you would like to be; therefore, to be realized, the wish must be felt as a [state](/glossary#state) that is rather than a state that is not
 
 Sensation precedes manifestation and is the foundation upon which all manifestation rests. Be careful of your moods and feelings, for there is an unbroken connection between your feelings and your visible world. Your body is an emotional filter and bears the unmistakable marks of your prevalent emotions. Emotional disturbances, especially suppressed emotions, are the causes of all disease. To feel intensely about a wrong without voicing or expressing that feeling is the beginning of disease – dis-ease – in both body and environment. Do not entertain the feeling of regret or failure for frustration or detachment from your objective results in disease.
 
@@ -99,7 +99,7 @@ These are the two gateways into the subconscious.
 ### The Law of Consciousness
 
 - Everything in the world is a manifestation of consciousness.
-- By controlling consciousness through imagination and feeling, we can shape our reality.
+- By controlling consciousness through [imagination](/glossary#imagination) and feeling, we can shape our reality.
 - Consciousness has two aspects - the conscious mind and the subconscious mind.
 
 ### The Conscious vs. Subconscious

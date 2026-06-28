@@ -10,7 +10,7 @@ Objects, to be perceived, must first penetrate in some manner our brain; but we 
 
 Although normal consciousness is focused on the senses and is usually restricted to them, it is possible for man to pass through his sense fixation into any imaginal structure which he conceives and so fully occupies it that it is more alive and more responsive than that on which his senses *"stay his eye"*.
 
-If this were not true, man would be an automaton reflecting life, never affecting it. Man, who is all Imagination, is not tenant to the brain, but landlord; he need not rest content with the appearance of things; he can go beyond perceptual to conceptual awareness.
+If this were not true, man would be an automaton reflecting life, never affecting it. Man, who is all [Imagination](/glossary#imagination), is not tenant to the brain, but landlord; he need not rest content with the appearance of things; he can go beyond perceptual to conceptual awareness.
 
 This ability, to pass through the mechanical reflective structure of the senses, is the most important discovery man can make.
 
@@ -54,7 +54,7 @@ The specious surface of fact reflects rather than discloses, deflecting the *"Ey
 
 It is this *"Eye of Imagination"* and only this that can free us from the sense fixation of outer things which completely dominates our ordinary existence and keeps us looking on the reflective glass of facts.
 
-It is possible to pass from thinking of to thinking from; but the crucial matter is thinking from, i.e., experiencing the state, for that experience means unification; whereas in thinking of there is always subject and object — the thinking individual and the thing thought of.
+It is possible to pass from thinking of to thinking from; but the crucial matter is thinking from, i.e., experiencing the [state](/glossary#state), for that experience means unification; whereas in thinking of there is always subject and object — the thinking individual and the thing thought of.
 
 Self-abandonment. That is the secret.
 
@@ -64,7 +64,7 @@ Faith plus Love is self-commission. We can't commit ourselves to what we do not 
 
 And to make the state alive, one must become it.
 
-*"I live, yet not I, God lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with Christ: nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+*"I live, yet not I, [God](/glossary#god) lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with [Christ](/glossary#christ): nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 

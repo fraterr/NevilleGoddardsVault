@@ -1,6 +1,6 @@
 # The Law and the Promise - Chapter 14
 
-*"The natural man does not receive the gifts of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."* ([1Cor. 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV).)
+*"The natural man does not receive the gifts of the Spirit of [God](/glossary#god), for they are folly to him, and he is not able to understand them because they are spiritually discerned."* ([1Cor. 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV).)
 
 *"There is a Moment in each Day that Satan cannot find, Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."* (William Blake)
 
@@ -8,7 +8,7 @@ Whenever we imagine things as they ought to be, rather than as they seem to be, 
 
 Satan, Blake writes, is a *"Reactor"*. He never acts; he only reacts. And if our attitude to the happenings of the day is *"reactionary"*, are we not playing Satan's part?
 
-Man is only reacting in his natural or Satan state; he never acts or creates, he only re-acts or re-creates. One real creative moment, one real feeling of the wish fulfilled, is worth more than the whole natural life of re-action. In such a moment, God's work is done.
+Man is only reacting in his natural or Satan [state](/glossary#state); he never acts or creates, he only re-acts or re-creates. One real creative moment, one real [feeling](/glossary#feeling) of the wish fulfilled, is worth more than the whole natural life of re-action. In such a moment, God's work is done.
 
 Once more, we may say with Blake,
 *"[God only Acts](/lectures/god-only-acts) and Is, in existing beings or Men."* (The Marriage of Heaven and Hell", 1793)
@@ -17,7 +17,7 @@ There is an imaginal past and an imaginal future. If, by reacting, the past is r
 
 *"I feel now the future in the instant."* (William Shakespeare, Macbeth")
 
-The spiritual man Acts: for him, anything that he wants to do, he can do and do at once — in his imagination — and his motto is always, *"The Moment is Now"*.
+The spiritual man Acts: for him, anything that he wants to do, he can do and do at once — in his [imagination](/glossary#imagination) — and his motto is always, *"The Moment is Now"*.
 
 *"Behold, now is the acceptable time; behold, now is the day of salvation."* ([2Cor. 6:2](https://www.biblegateway.com/passage/?search=2+Corinthians+6:2&version=KJV))
 

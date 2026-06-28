@@ -1,8 +1,8 @@
 # The Power of Awareness - Chapter 17
 
-It is of great significance that the truth of the principles outlined in this book have been proven time and again by the personal experiences of the Author. Throughout the past twenty-five years he has applied these principles and proved them successful in innumerable instances. He attributes to an unwavering Assumption of his wish already being fulfilled every success that he has achieved. He was confident that by these fixed assumptions his desires were predestined to be fulfilled. Time and again he assumed the feeling of his wish fulfilled and continued in his Assumption until that which he desired was completely realized.
+It is of great significance that the truth of the principles outlined in this book have been proven time and again by the personal experiences of the Author. Throughout the past twenty-five years he has applied these principles and proved them successful in innumerable instances. He attributes to an unwavering [Assumption](/glossary#assumption) of his wish already being fulfilled every success that he has achieved. He was confident that by these fixed assumptions his desires were predestined to be fulfilled. Time and again he assumed the [feeling](/glossary#feeling) of his wish fulfilled and continued in his Assumption until that which he desired was completely realized.
 
-Live your life in a sublime spirit of confidence and determination; disregard appearances, conditions, in fact all evidence of your senses that deny the fulfillment of your desire. Rest in the Assumption that you are already what you want to be, for in that determined Assumption you and your Infinite Being are merged in creative unity, and with your Infinite Being (God) [all things are possible](/lectures/all-things-are-possible). God never fails.
+Live your life in a sublime spirit of confidence and determination; disregard appearances, conditions, in fact all evidence of your senses that deny the fulfillment of your desire. Rest in the Assumption that you are already what you want to be, for in that determined Assumption you and your Infinite Being are merged in creative unity, and with your Infinite Being ([God](/glossary#god)) [all things are possible](/lectures/all-things-are-possible). God never fails.
 
 For who can stay His hand or say unto Him, What doest thou?
 
@@ -12,7 +12,7 @@ He calleth things that are not seen as though they were, and the unseen becomes 
 
 Each Assumption has its corresponding world. If you are truly observant, you will notice the power of your assumptions to change circumstances which appear wholly immutable.
 
-You, by your conscious assumptions, determine the nature of the world in which you live. Ignore the present state and assume the wish fulfilled.
+You, by your conscious assumptions, determine the nature of the world in which you live. Ignore the present [state](/glossary#state) and assume the wish fulfilled.
 
 Claim it; it will respond. [The law of Assumption](/lectures/radio-lectures/the-law-of-assumption) is the means by which the fulfillment of your desires may be realized. Every moment of your life, consciously or unconsciously, you are assuming a feeling. You can no more avoid assuming a feeling than you can avoid eating and drinking. All you can do is control the nature of your assumptions.
 

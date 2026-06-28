@@ -8,13 +8,13 @@ Whosoever shall smite thee on thy right cheek, turn to him the other also.
 
 There is a great difference between resisting evil and renouncing it. When you resist evil, you give it your attention, you continue to make it real.
 
-When you renounce evil, you take your attention from it and give your attention to what you want. Now is the time to control your imagination and give beauty for ashes, joy for mourning, praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord that He might be glorified.
+When you renounce evil, you take your attention from it and give your attention to what you want. Now is the time to control your [imagination](/glossary#imagination) and give beauty for ashes, joy for mourning, praise for the spirit of heaviness, that they might be called trees of righteousness, the planting of the Lord that He might be glorified.
 
-You give beauty for ashes when you concentrate your attention on things as you would like them to be rather than on things as they are. You give joy for mourning when you maintain a joyous attitude regardless of unfavorable circumstances. You give praise for the spirit of heaviness when you maintain a confident attitude instead of succumbing to despondency. In this quotation the Bible uses the word tree as a synonym for man. You become a tree of righteousness when the above mental states are a permanent part of your consciousness. You are a planting of the Lord when all your thoughts are true thoughts. He is I AM as described in Chapter One. I AM is glorified when your highest concept of yourself is manifested.
+You give beauty for ashes when you concentrate your attention on things as you would like them to be rather than on things as they are. You give joy for mourning when you maintain a joyous attitude regardless of unfavorable circumstances. You give praise for the spirit of heaviness when you maintain a confident attitude instead of succumbing to despondency. In this quotation the Bible uses the word tree as a synonym for man. You become a tree of righteousness when the above mental states are a permanent part of your consciousness. You are a planting of the Lord when all your thoughts are true thoughts. He is [I AM](/glossary#i-am) as described in Chapter One. I AM is glorified when your highest concept of yourself is manifested.
 
-When you have discovered your own controlled imagination to be your saviour, your attitude will be completely altered without any diminution of religious feeling, and you will say of your controlled imagination. Behold this vine. I found it a wild tree, whose wanton strength had swollen into irregular twigs. But I pruned the plant and it grew temperate in its vain expense of useless leaves, and knotted as you see into these clean full clusters to repay the hand that wisely wounded it.
+When you have discovered your own controlled imagination to be your saviour, your attitude will be completely altered without any diminution of religious [feeling](/glossary#feeling), and you will say of your controlled imagination. Behold this vine. I found it a wild tree, whose wanton strength had swollen into irregular twigs. But I pruned the plant and it grew temperate in its vain expense of useless leaves, and knotted as you see into these clean full clusters to repay the hand that wisely wounded it.
 
-By vine is meant your imagination, which, in its uncontrolled state, expends its energy in useless or destructive thoughts and feelings. But you, just as the vine is pruned by cutting away its useless branches and roots, prune your imagination by withdrawing your attention from all unlovely and destructive ideas and concentrating on the ideal you wish to attain.
+By vine is meant your imagination, which, in its uncontrolled [state](/glossary#state), expends its energy in useless or destructive thoughts and feelings. But you, just as the vine is pruned by cutting away its useless branches and roots, prune your imagination by withdrawing your attention from all unlovely and destructive ideas and concentrating on the ideal you wish to attain.
 
 The happier, more noble life you will experience will be the result of wisely pruning your own imagination. Yes, be pruned of all unlovely thoughts and feelings that you may think truly, and thy thoughts shall the world’s famine feed; Speak truly, and each word of thine shall be a fruitful seed; Live truly, and thy life shall be a great and noble creed.
 
@@ -35,7 +35,7 @@ The happier, more noble life you will experience will be the result of wisely pr
 ### Become A Tree of Righteousness
 
 - You are a tree when these mental states are permanent consciousness.
-- You are God's planting when thoughts are true, glorifying I AM.
+- You are [God](/glossary#god)'s planting when thoughts are true, glorifying I AM.
 
 ### Prune Imagination For Happier Life
 

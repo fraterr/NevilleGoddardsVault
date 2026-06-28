@@ -12,11 +12,11 @@ By man's imaginal activity, all things are made, and without such activity, *"wa
 
 Such causal activity could be defined as, an imaginal assemblage of images, which occurring, some physical event invariably takes place. It is for us to assemble the images of happy outcome and then keep from interfering. The event must not be forced but allowed to happen.
 
-If imagination is the only thing that acts, or is, in existing beings of men (as Blake believed), then *"we should never be certain that it was not some woman treading in the wine press who began that subtle change in men's minds"* (William Butler Yeats).
+If [imagination](/glossary#imagination) is the only thing that acts, or is, in existing beings of men (as Blake believed), then *"we should never be certain that it was not some woman treading in the wine press who began that subtle change in men's minds"* (William Butler Yeats).
 
 This grandmother is daily treading the wine press for her little grand-daughter. She writes: "This is one of those things that make my family and friends say, 'we just don't understand it'. Kim is two-and-a-half years old now. I took care of her for a month after she was born and did not see her again until a year ago, and then, only for two weeks. However, during this past year, every day I have taken her on my lap — in my imagination — and cuddled her and talked to her.
 
-"In these imaginal acts, I go over all the wonderful things about Kim: 'God is growing through me; God is loving through me' etc. At first, I would get the response of a very young child. When I started 'God is growing through me' — she would reply, 'Me'. Now — as I start she completes the whole sentence. Another thing that has happened is, as the months have passed, as I take her — in my imagination — on my lap she has grown constantly larger and heavier.
+"In these imaginal acts, I go over all the wonderful things about Kim: '[God](/glossary#god) is growing through me; God is loving through me' etc. At first, I would get the response of a very young child. When I started 'God is growing through me' — she would reply, 'Me'. Now — as I start she completes the whole sentence. Another thing that has happened is, as the months have passed, as I take her — in my imagination — on my lap she has grown constantly larger and heavier.
 
 "Kim hasn't even seen a picture of me in this past year. At the most, I could only be a name to her. Now, some time each day, her family tells me, she starts talking about me — to no one in particular — just talking. Sometimes it goes on for an hour; or she goes to the phone and pretends to call. In her monologue are such bits as: 'My Dee Dee loves me. My Dee Dee always comes to see me every day'.
 
@@ -26,7 +26,7 @@ All imaginative men and women are forever casting forth enchantments, and all pa
 
 There is no form in nature, which is not produced by, and sustained by some imaginal activity. Therefore, any change in the imaginal activity must result in a corresponding change in form. To imagine a substitute-image for unwanted or defective content is to create it. If only we persist in our ideal imaginal activity and do not let lesser satisfactions suffice, ours shall be the victory.
 
-"When I read in '[Seedtime and Harvest](/books/seedtime-and-harvest/seedtime-and-harvest)' the story of the school teacher who, through her imagination, in daily Revision, transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
+"When I read in '[Seedtime and Harvest](/books/seedtime-and-harvest/seedtime-and-harvest)' the story of the school teacher who, through her imagination, in daily [Revision](/glossary#revision), transformed a delinquent pupil into a lovely girl, I decided to 'do' something about a young boy in my husband's school.
 
 "To tell all the problems involved would take pages, for my husband has never had such a difficult child nor such a trying parent situation. The lad was too young to be expelled, yet the teachers refused to have him in their classes. To make matters worse, the mother and grandmother literally 'camped' on the school grounds making trouble for everyone.
 

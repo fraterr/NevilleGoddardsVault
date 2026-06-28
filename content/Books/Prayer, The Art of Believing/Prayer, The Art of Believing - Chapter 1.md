@@ -2,7 +2,7 @@
 
 *"Pray for my soul, more things are wrought by Prayer than this world Dreams of"* (Tennyson).
 
-Prayer is an art and requires practice. The first requirement is a controlled imagination. Parade and vain repetitions are foreign to Prayer. Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for Prayer is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
+Prayer is an art and requires practice. The first requirement is a controlled [imagination](/glossary#imagination). Parade and vain repetitions are foreign to Prayer. Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for Prayer is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
 
 The ceremonies that are customarily used in Prayer are mere superstitions and have been invented to give Prayer an air of solemnity. Those who do practice the art of Prayer are often ignorant of the laws that control it.
 
@@ -26,9 +26,9 @@ Whether or not man succeeds in reversing the transformation of a force, he knows
 
 This law is of the highest importance, because it enables you to foresee the inverse transformation once the direct transformation is verified.
 
-If you knew how you would feel were you to realize your objective, then, inversely, you would know what state you could realize were you to awaken in yourself such feeling.
+If you knew how you would feel were you to realize your objective, then, inversely, you would know what [state](/glossary#state) you could realize were you to awaken in yourself such [feeling](/glossary#feeling).
 
-The injunction, to pray believing that you already possess what you pray for, is based upon a knowledge of the law of inverse transformation.
+The injunction, to pray believing that you already possess what you pray for, is based upon a knowledge of [the law](/glossary#the-law) of inverse transformation.
 
 If your realized Prayer produces in you a definite feeling or state of consciousness, then, inversely, that particular feeling or state of consciousness must produce your realized Prayer.
 

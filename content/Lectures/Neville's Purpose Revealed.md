@@ -1,6 +1,6 @@
 # Neville's Purpose Revealed
 
-When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of God. Paul said: *"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in Christ as a plan for the fullness of time."* [[Ephesians 1:9](https://www.biblegateway.com/passage/?search=Ephesians+1:9&version=KJV), 10] There is a plan behind it all. 
+When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of [God](/glossary#god). Paul said: *"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in [Christ](/glossary#christ) as a plan for the fullness of time."* [[Ephesians 1:9](https://www.biblegateway.com/passage/?search=Ephesians+1:9&version=KJV), 10] There is a plan behind it all. 
 
 Now let us turn to the most disputed verse in Ecclesiastes: *"God has put Eternity into man’s mind, yet so that man cannot find out what Cod has done from the beginning to the end."* [[Ecclesiastes 3:11](https://www.biblegateway.com/passage/?search=Ecclesiastes+3:11&version=KJV)] 
 
@@ -16,7 +16,7 @@ Now, in the 4th Chapter of Ecclesiastes, at the very end of the 4th Chapter, he 
 
 This *"second one"* spoken of in Scripture is the Lord from Heaven. It begins in the very beginning of Genesis. The *"second one"* was Abel, the slaughtered, the murdered. As we move through, the *"second one"* was Isaac, -- not Ishmael, the first. We come on through, and it was Jacob, not Esau. A strange reversal of order takes place in all of these adumbrations in Scripture. They are all a foreshadowing of what God has planned for us. There is that *"second youth"* in us that has to be awakened, and that is God Himself! He is reproducing in us His own image, and that is called the *"second man"* or the *"Lord from Heaven."* 
 
-I will share with you, as I’ve done night after night, my own personal experience of Scripture. The story is the only true story in the world. God’s eternal purpose is taking place in time; but it is an eternal state. It’s something that is continuous. It is permanent, in contrast to this fragmented state in time where we seem to begin, and all things that begin here end. But there is something that does not begin. It is continuous. It is in man. It is buried in man, and that that cannot begin or end is God-in-man. 
+I will share with you, as I’ve done night after night, my own personal experience of Scripture. The story is the only true story in the world. God’s eternal purpose is taking place in time; but it is an eternal [state](/glossary#state). It’s something that is continuous. It is permanent, in contrast to this fragmented state in time where we seem to begin, and all things that begin here end. But there is something that does not begin. It is continuous. It is in man. It is buried in man, and that that cannot begin or end is God-in-man. 
 
 Paul asked the question: *"Do you not realize that [Jesus Christ is in you?"* [[II Corinthians 13:5](https://www.biblegateway.com/passage/?search=II+Corinthians+13:5&version=KJV)] 
 
@@ -118,7 +118,7 @@ When this thing happens to you, there are those in your circle of friends who wi
 
 So, man must be born from above or he cannot enter the Kingdom of Heaven. Everyone will be born from above, for that One to be born is already in man dreaming. The Dreamer-in-man is Jesus Christ. You are dreaming this world. Now dream it nobly. Dream noble Dreams. All can come to pass.
 
-In your Dreams dare to assume that you are the man that you want to be. Assume that you are it, and persist in that Assumption; and that Assumption, in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the Assumption as though it were true.
+In your Dreams dare to assume that you are the man that you want to be. Assume that you are it, and persist in that [Assumption](/glossary#assumption); and that Assumption, in a way you do not consciously know, will harden into fact. All assumptions if persisted in become what the world calls “reality.’ So, do not give up. The most fantastic dream can become true if you assume it and walk in the Assumption as though it were true.
 
 Night after night, sleep as though you are the man -- the woman -- that you would be or that you would like to be. And then, if tomorrow does not bring it to pass, it doesn’t matter. There are intervals of time between the Assumption and its fulfillment. It’s like generation. So, if you dare to assume it, give it time. And then some Bridge of incidents will be built for you without your conscious knowledge of it, and it will lead you across that bridge to the fulfillment of your Assumption in a way that you do not know.
 
@@ -153,7 +153,7 @@ That’s the drama.
 
 Now in her letter she said, *"Recently I have been having these Dreams where I know I am dreaming. I am trying so hard to see what I am seeing, but I know I can open my eyes and see differently; but I am struggling to open the eyes and they won’t open."*
 
-They are actually on the verge of it, my Dear. You must open the in-current eye, because you are going to see inwards into the world of thought -- into Eternity -- that which is ever expanding in the bosom of God, -- what is it? The human imagination.
+They are actually on the verge of it, my Dear. You must open the in-current eye, because you are going to see inwards into the world of thought -- into Eternity -- that which is ever expanding in the bosom of God, -- what is it? The human [imagination](/glossary#imagination).
 
 As someone wrote, they had their ears pierced -- not the lobes of the ear, but the very center of the ear. Yes, they must be pierced, too, as told you in the 40th Psalm: *"Ears Thou hast pierced for me."* [[Psalm 40:6](https://www.biblegateway.com/passage/?search=Psalm+40:6&version=KJV)] You have made holes in them, that I may hear the heavenly sphere; we only hear the sounds out here -- the noises. But there are ears to be pierced, and there are eyes to be opened. Then in-current eyes open up into the world of Eternity, into the world of thought, and forever expand; and that eye is the human imagination, which is one with God. For:
 
@@ -184,7 +184,7 @@ You may say in words, *"Yes, I believe you."*
 
 Then I may find you after that disbelieving by your behavior. And so, at the very end he asks him three times; and you will find the word that he used to be *"love."* There are different words. *"Eros"* is love on the lowest level, and man mistakes that for love. *"Aphrodite"*(?), that’s love -- something entirely different. So, man thinks of sex. All right, I am not denying sex. Sex is a very important thing in this world -- very important; but people will say, ‘I love you,” meaning sex. Others, an entirely different emotion permeates them.
 
-I stood in the presence of Infinite Love, and it’s Man; but there was no feeling of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, *"What is the greatest thing in the world?"* and I answered, *"[Faith, hope and love](/lectures/faith-hope-and-love); these three. The greatest of these is Love."* [[I Corinthians 13:15](https://www.biblegateway.com/passage/?search=I+Corinthians+13:15&version=KJV)] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, *"The two shall be one."* [[Matthew 19:5](https://www.biblegateway.com/passage/?search=Matthew+19:5&version=KJV)]
+I stood in the presence of Infinite Love, and it’s Man; but there was no [feeling](/glossary#feeling) of sex about it. He embraced me, and our bodies became one body; we fused, when I answered his question. He said, *"What is the greatest thing in the world?"* and I answered, *"[Faith, hope and love](/lectures/faith-hope-and-love); these three. The greatest of these is Love."* [[I Corinthians 13:15](https://www.biblegateway.com/passage/?search=I+Corinthians+13:15&version=KJV)] At that, he embraced inc. Now, our two bodies became one body. As we are told in Scripture, *"The two shall be one."* [[Matthew 19:5](https://www.biblegateway.com/passage/?search=Matthew+19:5&version=KJV)]
 
 But on this level, sex plays a very important part; but the day will come, the body is going to be split in two from top to bottom, and that energy that went into generation will be reversed and move into regeneration. So, he asked the question at the very end of the drama.
 

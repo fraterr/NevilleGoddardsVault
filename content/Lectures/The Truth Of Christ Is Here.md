@@ -1,8 +1,8 @@
 # The Truth Of Christ Is Here
 
-There is something in this changing, changing world that never changes, and Scripture refers to that which never changes as Truth, So, Paul said, 'The Truth of Christ is here.'
+There is something in this changing, changing world that never changes, and Scripture refers to that which never changes as Truth, So, Paul said, 'The Truth of [Christ](/glossary#christ) is here.'
 
-Now he defines Christ as 'the power of God and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
+Now he defines Christ as 'the power of [God](/glossary#god) and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
 
 He saw Christ as a plan ' God's plan of redemption) of man. But really, it was the redemption of himself, because [God became man](/lectures/god-became-man), that man might become God. So, he saw Christ differently and there was no one to this day who was greater than Paul concerning the spread of the knowledge of the truth of Christ.
 
@@ -20,7 +20,7 @@ As the Psalmist said, 'Rouse thyself. Why sleepest Thou, O Lord? Awake! Do not c
 
 I tell you, you are God dreaming this Dream of Life. You may not know you are; I am telling you that you are. You can put it to the test, and no power in the world can stop it because there is no other power. 'Christ is the power of God and the wisdom of God.' That Power is buried in you! When you say, 'I am,' that's God!
 
-Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your Assumption? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
+Now, what are you assuming that you are? You can assume anything in this world, for the Being assuming is God. Can you believe in the reality of your [Assumption](/glossary#assumption)? Can you believe that which at the moment your reason denies and your senses deny? Can you believe it? If you can believe it, no power in the world can stop it from objectifying in this world of ours, but no one.
 
 Let me share with you some of my own discoveries. We go back, now, to the Psalmist, and the Psalmist asks the question concerning this life: he said, 'Send Thy light and Thy truth to me. Let them bring me to Thy holy hill and to Thy dwelling.' ([Psalm 43:3](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
 
@@ -50,7 +50,7 @@ In the silence, to just see is the most obvious thing in the world, these wonder
 
 I will send, now, that thought on the light, and it cannot return unto me void, but 'it must accomplish that which I purpose and prosper in the thing for which I sent it.'
 
-And so, while you are seated in the silence, just simply think of your friend as having what he asked, or she asked of you and then just simply break it. And your word has gone forth from you. But you say, 'That's from you, a man.' Don't you know that God became you? It went forth from you, but God became man, that man might become God. So, in the silence, who are you? Who is doing it? I am. Well, what is His name? I AM. That's His name forever and forever.
+And so, while you are seated in the silence, just simply think of your friend as having what he asked, or she asked of you and then just simply break it. And your word has gone forth from you. But you say, 'That's from you, a man.' Don't you know that God became you? It went forth from you, but God became man, that man might become God. So, in the silence, who are you? Who is doing it? I am. Well, what is His name? [I AM](/glossary#i-am). That's His name forever and forever.
 
 But who is doing it? Who said he was the light of the world? He said, 'I Am the Light of the world.' What is this Light? Isn't this, now the Truth? 'Well,' you say, 'maybe, and maybe not.' Well, wait and see if it isn't true. If it proves itself in performance, then is it not true? And if others deny it because it doesn't make sense, does it matter what they think? If there is evidence for a thing, what does it matter what the world thinks?
 
@@ -70,7 +70,7 @@ So, 'I am the Way and the Truth and the Life.' To what? To the Father. 'No one c
 
 So, no one takes away my life. God deliberately became humanity, and He plays all the parts, and when He played them all, He came out. And the sum total of all the parts, gathered together into one single being projected, became David. For humanity has done, and is doing, and will continue to do the will of God. So no matter what a man has done, is doing, or will do, he is only doing the will of God!
 
-But God is not someone other than your Self. God-in-action is your own wonderful human imagination imagining, and humanity is expressing the imaginal acts of man. That's God.
+But God is not someone other than your Self. God-in-action is your own wonderful human [imagination](/glossary#imagination) imagining, and humanity is expressing the imaginal acts of man. That's God.
 
 Everything that man has imagined, is now imagining, or will imagine, will be expressed, and humanity will express it. The individual comes out, but He is playing all the parts, and He can say, 'Forgive them. They know not what they do.' But each will come out, having played all the parts, and then he will be confronted with one being, a youth named David, and David will call him 'Father'; and then the drama is over and he knows who he is. He is God the Father.
 
@@ -94,9 +94,9 @@ He is the Power that was sent into the world, for 'Christ is the power of God an
 
 So here, if I am ever to ascend, well then, I must be the One who descended, and that I know from my own personal experience. And just as you are told in the Old Testament in the 21st chapter of Numbers, 'Just as Moses lifted up the serpent in the wilderness', what was the serpent? It was a fiery serpent ' a brazen, fiery serpent. That's exactly how you are lifted up. You are split in two from top to bottom, and then you behold this fiery, golden, liquid light at the base of your spine; and, like a serpent ' a fiery serpent, coiled like spiral lightning, you ascend into heaven.
 
-Well, where is heaven? 'The kingdom of heaven is within you,' we are told in the 17th [chapter] of Luke. So, if I would go into heaven, where would I go? I'd return within myself, into this immortal skull, and it reverberates when I re-enter that state. So, I return 'like the fiery serpent.'
+Well, where is heaven? 'The kingdom of heaven is within you,' we are told in the 17th [chapter] of Luke. So, if I would go into heaven, where would I go? I'd return within myself, into this immortal skull, and it reverberates when I re-enter that [state](/glossary#state). So, I return 'like the fiery serpent.'
 
-Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he Dreams the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! [Catch the mood](/lectures/catch-the-mood). What would the feeling be like if it were true?
+Well, who returns? Only one Being can return, the one who descended. And if only the Son of Man descended, then, though I did not know it, I must have been all along that Son of Man! But I was dreaming, and I was the one who sought the blessing, for he said, 'Rouse Thyself! Why sleepest Thou, O Lord? Awake! Why cast us off forever?' as told us in the 44th Psalm. 'Rouse Thyself.' He is speaking to the Lord. Well, who is sleeping in man at the moment? The Lord descended to this limitation called Man, and while buried in man, he Dreams the Dream of Life. But while He's dreaming, may I tell you, you can be anything that you want to be, but anything, absolutely! [Catch the mood](/lectures/catch-the-mood). What would the [feeling](/glossary#feeling) be like if it were true?
 
 I told you a few, I think, maybe, months ago of a friend of mine who called me. She never had money. I gave her away because she asked me to give her away. She said, 'I have no father to give me.' Whether the father was here, I do not know. And so I said, 'Willingly, I'll give you away.' So, I arranged it ' almost like a funeral. When they said, 'Who giveth this woman to this man?' I stepped forward and said, 'I do.' So, I gave her away. At the reception, this lady came by along with these people, and this one said, 'Who are you?' I said, 'I am the bride's 'father'; I just gave her away.' She said, 'I know you gave her away all right, but who are you?' I said, 'I am her 'father.'' She said, 'Yes, but I happen to be her sister!'
 

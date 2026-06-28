@@ -14,15 +14,15 @@ To really understand the message of the Bible you must bear in mind that it was 
 
 The first thing you must discover if you would unlock the secret of the Bible, is the meaning of the symbolic name of the creator which is known to all as Jehovah. This word *"Jehovah"* is composed of the four Hebrew letters â€“ JOD HE VAU HE. The whole secret of creation is concealed within this name.
 
-The first letter, JOD, represents the absolute state or consciousness unconditioned; the sense of undefined awareness; that all inclusiveness out of which all creation or conditioned states of consciousness come.
+The first letter, JOD, represents the absolute [state](/glossary#state) or consciousness unconditioned; the sense of undefined awareness; that all inclusiveness out of which all creation or conditioned states of consciousness come.
 
-In the terminology of today JOD is I AM, or unconditioned consciousness.
+In the terminology of today JOD is [I AM](/glossary#i-am), or unconditioned consciousness.
 
 The second letter, HE, represents the only begotten Son, a desire, an imaginary state. It symbolizes an idea; a defined subjective state or clarified mental picture.
 
 The third letter, VAU, symbolizes the act of unifying or joining the conceiver (JOD), the consciousness desiring to the conception (HE), the state desired, so that the conceiver and the conception become one.
 
-Fixing a mental state, consciously defining yourself as the state desired, impressing upon yourself the fact that you are now that which you imagined or conceived as your objective, is the function of VAU. It nails or joins the consciousness desiring to the thing desired. The cementing or joining process is accomplished subjectively by feeling the reality of that which is not yet objectified.
+Fixing a mental state, consciously defining yourself as the state desired, impressing upon yourself the fact that you are now that which you imagined or conceived as your objective, is the function of VAU. It nails or joins the consciousness desiring to the thing desired. The cementing or joining process is accomplished subjectively by [feeling](/glossary#feeling) the reality of that which is not yet objectified.
 
 The fourth letter, HE, represents the objectifying of this subjective agreement. The JOD HE VAU makes man or the manifested world (HE), in the image and likeness of itself, the subjective conscious state. So the function of the final HE is to objectively bear witness to the subjective state JOD HE VAU.
 
@@ -38,7 +38,7 @@ Believing is simply living in the feeling of actually being the state imagined â
 
 JOD is to be aware; HE is to be aware of something; VAU is to be aware as, or to be aware of being that which you were only aware of. The second HE is your visible objectified world which is made in the image and likeness of the JOD HE VAU, or that which you are aware of being.
 
-*"And God said, Let Us make man in Our image, after Our likeness"* ([Genesis 1:26](https://www.biblegateway.com/passage/?search=Genesis+1:26&version=KJV)). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
+*"And [God](/glossary#god) said, Let Us make man in Our image, after Our likeness"* ([Genesis 1:26](https://www.biblegateway.com/passage/?search=Genesis+1:26&version=KJV)). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
 
 The world is the objectified likeness of the subjective conscious state in which consciousness abides.
 

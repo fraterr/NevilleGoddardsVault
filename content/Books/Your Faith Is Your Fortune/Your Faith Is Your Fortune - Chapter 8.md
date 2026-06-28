@@ -1,6 +1,6 @@
 # Your Faith Is Your Fortune - Chapter 8
 
-*"I am the first, and I am the last; and beside me is no God."* ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
+*"I am the first, and I am the last; and beside me is no [God](/glossary#god)."* ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
 
 *"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* ([Deut. 5:6, 7](https://www.biblegateway.com/passage/?search=Deuteronomy+5:6,+7&version=KJV))
 
@@ -8,7 +8,7 @@
 
 The beliefs in the potency of drugs to heal, diets to strengthen, moneys to secure, are the values or money changers that must be thrown out of the power he can then unfailingly manifest that quality. This understanding throws out the money changers Temple. *“Ye are the Temple of the Living God,”* a Temple made without hands. It is written, *“My house shall be called of all nations a house of Prayer, but ye have made it a den of thieves.”*
 
-The thieves who rob you are your own false beliefs. It is your belief in a thing not the thing itself that aids you. There is only one power: I AM He. Because of your belief in external things you think power into them by transferring the power that you are to the external thing. Realize you yourself are the power you have mistakenly given to outer conditions. The Bible compares the opinionated man to the camel who could not go through the needle’s eye. The needle’s eye referred to was a small gate in the walls of Jerusalem which was so narrow that a camel could not go through it until relieved of its pack. The rich man, that is the one burdened with false human concepts, cannot enter the Kingdom of Heaven until relieved of his burden any more than could the camel go through this small gate.
+The thieves who rob you are your own false beliefs. It is your belief in a thing not the thing itself that aids you. There is only one power: [I AM](/glossary#i-am) He. Because of your belief in external things you think power into them by transferring the power that you are to the external thing. Realize you yourself are the power you have mistakenly given to outer conditions. The Bible compares the opinionated man to the camel who could not go through the needle’s eye. The needle’s eye referred to was a small gate in the walls of Jerusalem which was so narrow that a camel could not go through it until relieved of its pack. The rich man, that is the one burdened with false human concepts, cannot enter the Kingdom of Heaven until relieved of his burden any more than could the camel go through this small gate.
 
 Man feels so secure in his man-made laws, opinions and beliefs that he invests them with an authority they do not possess. Satisfied that his knowledge is all, he remains unaware that all outward appearances are but states of mind externalized. When he realizes that the consciousness of a quality externalizes that quality without the aid of any other or many values and establishes the one true value, his own consciousness.
 
@@ -29,7 +29,7 @@ You are the temple of the living God, made without hands. False beliefs are the 
 
 ### Consciousness Objectifies Itself
 
-Consciousness dwells in and objectifies what it is conscious of being. Forgive others, for they express their state.
+Consciousness dwells in and objectifies what it is conscious of being. Forgive others, for they express their [state](/glossary#state).
 
 ### Change Consciousness, Change Expression
 
