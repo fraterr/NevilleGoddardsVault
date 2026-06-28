@@ -10,9 +10,12 @@
 }
 
 .header {
-  padding: 2rem 1.5rem;
+  padding: 1.5rem 1.5rem 1rem 1.5rem;
   border-bottom: 1px solid var(--border);
-  background: linear-gradient(180deg, rgba(212, 175, 55, 0.1) 0%, transparent 100%);
+  background: linear-gradient(180deg, rgba(212, 175, 55, 0.1) 0%, var(--bg-primary, #111) 100%);
+  position: sticky;
+  top: 0;
+  z-index: 10;
 }
 
 .title {
@@ -31,24 +34,7 @@
   margin-bottom: 1rem;
 }
 
-.logoContainer {
-  display: flex;
-  justify-content: center;
-  margin: 1.5rem 0 0.5rem 0;
-}
 
-.logo {
-  border-radius: 50%;
-  border: 1px solid var(--accent-gold);
-  box-shadow: 0 4px 15px rgba(212, 175, 55, 0.15);
-  object-fit: cover;
-  transition: all 0.3s ease;
-}
-
-.logo:hover {
-  transform: scale(1.02);
-  box-shadow: 0 6px 20px rgba(212, 175, 55, 0.25);
-}
 
 .teaButton {
   display: flex;
