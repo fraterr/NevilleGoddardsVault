@@ -1,0 +1,115 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: God's Dwelling Place
+keywords: [Dreams]
+bible_ref:
+tags: lecture
+topics: [God's Dwelling Place, God Becoming Man, The Risen Christ, Everything Exists in Imagination, The Journey of Awakening, Redeeming the Imaginal Acts, The Return to Glory]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+*"Why stand we here trembling all around calling on God for help and not ourselves in whom God dwells?"* God does not dwell in us as something other than ourselves, for God actually became as we are, that one day we may be as He is. I tell you: you are the Being who became man, the Being Blake refers to as God. You, human imagination, did not begin in your mother's womb and will not end in the grave. As a pre-existing Being, you emptied yourself of memory for a divine purpose. Tonight I will try to touch on that purpose.  
+  
+In Paul's letter to the Philippians he speaks of God in action as *"Christ Jesus who, though he was in the form of God, did not consider it something to grasp, but emptied himself, took upon himself the form of a slave and was born in the likeness of men. Being found in human form he humbled himself and took upon himself the cross of death."* Your body of flesh is your cross of death which you took upon yourself when you who existed before the foundation of the world lost your memory. Now Paul continues as though he is speaking to another, saying: *"Therefore God has highly exalted him and bestowed on him the name that is above every name, that at the name Jesus every knee should bow on earth, in heaven, and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God."*   
+  
+You may think Paul is speaking of another here, but I tell you: there is no other. It is you who completely emptied yourself of your glory, your power and your wisdom, for you could not pretend to be nailed to the cross called Man. You deliberately took upon yourself the humility of your garment of flesh and blood which enslaves you. You must cater to it constantly feeding it, washing it, and after eliminating what it cannot assimilate, you must clean the body again.  
+  
+Christ (Imagination's power and wisdom) is crucified and buried in man. When he rises in man he is called the Risen Christ and conferred with the divine name, Jesus as the New Age is ushered in. The word *"Jesus"* is the same as *"Jehovah"*, the savior, whose name is I AM. Jesus is not a being separate from you. He is you, but you have forgotten you are He. You had to completely forget your power, your wisdom, and your glory to become what the world sees as a little man (a little woman) born from the womb of a woman, who plays a little part an then departs. But there is an immortal play that is imminent and buried in all. That immortal being is the one Blake referred to when he said: *"Why stand we here trembling around calling on God for help and not ourselves, in whom God dwells."*  
+  
+Everything you can think of is present, now. You cannot conceive of something that is not already worked out in detail; but it is a shadow if you do not dwell in it. It is just a possibility, but when you enter that shadow it seems the only substance. I have seen a world in my imagination that is not like this. Prior to my entrance it as a mere possibility, an image, but when I entered that world and allowed my consciousness to follow vision, it was more real than this room is now. At the moment I am in this room and it is real. When I depart, this will become a memory image, and wherever I am at that moment will be more real than this room or any part of my world. My home was real when I left it and will be real when I enter it again, but now it is a memory image. This room has reality to me because I am in it.  
+  
+I tell you: everything exists and can be just as real as this room. The job you desire exists. The home of your [[Dreams]] exists. The man or woman who is perfect for you exists. You cannot conceive of a state that is not already worked out in detail, waiting for someone to occupy. As a desire it is only a dream, a mere image, but when the state is entered, it is the only reality.  
+  
+In order to come into this world you had to completely empty yourself of your creative power, your wisdom, and glory. The day will come when, having gone through the gamut, God in you (who is your very self) will rise in you. Then your memory will return and the divine name Jesus will be conferred upon you. And when this name is heard (in you) every knee shall bow in heaven, on earth, and under the earth, and every tongue confess that Jesus Christ is Lord to the glory of God, because you will know you are God. You have always been God, but in order to take on your garment of limitation you had to become limited. You could not pretend you were man; you had to take upon yourself this cross called man, with all of its weaknesses and limitations.  
+  
+Does the Bible in any way suggest this? Yes. In the Book of John we are told: *"In the beginning was the Word and the Word was with God and the word was God. And the Word became flesh and dwells within us."* If you were with God and were God you pre-existed. *"Before Abraham, was I AM."* Does that not imply pre-existence? *"Tell me, Master, who sinned, this man or his parents that he was born blind? I tell you, neither this man nor his parents, but that the works of God may be made manifest in him."* Isn't that pre-existence? Either the man sinned in his mother's womb, and this is the result, or he pre-existed. Blindness is state which must be experienced. No one will avoid any experience, but must (and will) play every part known to man.  
+  
+Now in the 17th [chapter] of John, the Risen Christ asks the Father (who he knows himself to be) to make everyone be where he is, *"That they may see my glory which thou gavest me, and the love with which thou loved me before the foundation of the world."* You and I were loved (for we are part of the body of love which existed before the foundation of the world) before we came down to expand our power, our wisdom, and our glory. To do this, we had to reach the limit of contraction - which is man, the limit of opacity - which is doubt. We had to completely forget the being we really are and doubt that we ever existed. Here we are experiencing the limit of contraction and opacity; but the moment will come when He who is within us, sound asleep and appearing to be dead, will be awakened by a storm wind to find himself encased in a tomb. Rising, Christ (God's creative power) comes out of his tomb from above and is conferred with the greatest of all names, which is Jesus. So in the end there is Jesus only.  
+  
+You, collectively, are the Cosmic Christ who is buried in all. And when He rises in you, individually, memory will return and you will know you are Jesus, the Lord God Jehovah. Then who is Christ? I AM. What is God's name? I AM. What is David's Father's name? I AM. The essence of all that you have experienced as man will stand before you. Personified as the crown of your journey, your Son will bear witness to your victory over death. That Son is David, of Biblical fame. You had to die to enter the world of death, but you will rise out of death to be transfigured to wear the divine body of Jesus. Everyone will be gathered into that one body called the Lord Jesus Christ.  
+  
+In this world things are what they appear to be, but - as Blake said so beautifully:  
+  
+Those in great eternity who contemplate Death  
+Said thus. What seems to Be: Is: To those to whom  
+It seems to Be, and is productive of the most dreadful  
+Consequences to those to whom it seems to Be: even of  
+Torments, Despair and Eternal Death: But Divine Mercy  
+Steps beyond and Redeems Man in the Body of Jesus.  
+  
+When it seems that everything is lost, you begin to awake within yourself. You will not see another, for the drama takes place in a first person, singular, present tense experience. You are the Christ written of in scripture. You are your own hope of glory. Jesus Christ is in you as your human imagination, so why call upon another for help? Why not call upon yourself in whom imagination dwells? I tell you: there never was another Jesus Christ other than he who dwells in you as your human awareness.  
+  
+A short time ago a friend told me she would love to visit Norway, but felt she could not afford it. I suggested that she dwell in Norway by seeing the world from Norway. She was not going to look at Norway from Los Angeles, or ask how she was going to get there, but to simply sleep as though her bed was in Norway and it was the only substance. I received a card from her today, from Norway, where she confessed that she dwelled in the state as though she was there and she received a call from a casting office requesting her to make a picture in Norway!  
+  
+You can move into any state, for all states are already completed. All you need to do is step into the state, for it to be transformed from a shadow to the only substance. Think of your desire and it's a shadow lacking form. Enter it and it is the only reality.  
+  
+I tell you: the being who is aware of being you, now, was in the beginning with God and was God. You are God's power, wisdom, and glory suffering from amnesia, for you could not pretend to enter this graveyard called earth. The unnumbered bodies observed here are graves which your immortal presence animates. Your flesh-and-blood garment could not breathe without you, for you are its breath. Believing yourself to be the fleshly body you animate, you do not recognize your brothers when you see others. Rather, you war against the seeming others as though they were your enemy; yet you are told in the 2nd [chapter] of Philippians: "Let each of you think not only of his own interest, but also to the interests of others. Let this mind be in you, the mind which you have with Christ Jesus. It's the same mind. Paul couldn't have said it better. Your interest should be to the interest of all, because basically all are one. When these garments are finally taken off and we reenter the one body that fell, we will be that glorious being who is the Lord and Father of the entire journey.   
+  
+I received a letter this week from a man who shared a series of [[Dreams]] which occurred one night. The final one is the clue to the [[Dreams]]. In it he saw a huge, horrible monkey which clung to his back. It felt unclean and strange, and when it began to make love to him he tore it off his back, and as he did, he awoke. This was a perfect vision. He saw the symbol of the misuse of his creative imagining.  
+  
+Everyone has such a dweller on his threshold of thoughts which is fed by imagining something unlovely. And everyone also has the complementary side as a glorious, angelic being whose beauty is beyond measure. She is the personification of every lovely imaginal act the individual has ever committed. One day they will be together.  
+  
+When the vision came to me, my hairy monstrous ape called my angelic being *"mother"*. I became so annoyed. I began to beat it, until I realized that it grew on my violence. It became stronger with every blow as it loved every violent act of mine, even when it was on itself. Then I made myself a pledge, that if it took eternity I would redeem this monstrous being which had a right to live. The moment I made the pledge it dissolved, leaving not a trace behind. Then the energy I had wasted returned to me. Power cannot be wasted. It returns to the one who used (or misused) it, and as I felt the power return I watched my angelic being glow like the sun, and I awoke.  
+  
+Everyone will one day confront these two personifications of thought: noble and ignoble. One grows on violence and the other grows on love. Remember: God in you creates and sustains your world by the use (or misuse) of your human imagination. There never was another God and there never will be, for Imagination is the only God.  
+  
+So while you are still unmindful of the God who gave you birth, you can hear the voice of the one who has risen from the grave and test me, as this lady did fulfilling her desire to visit Norway. I urge you not to discount this principle, but test it; for as Paul tells you in the 13th chapter of 2 Corinthians, Jesus Christ is in you. Paul knew what he wanted and entered the state which finally took on substance and became real to him. I have done the same. I have gone into world after world after world, and when I enter they are the only reality, while my apartment where my physical body sleeps was only a shadow. But when I returned, my apartment wrapped itself around me once more and took on the tones of reality, as the other world became the shadow.  
+  
+At the moment this room is far more real to me than any place I have ever visited. Where I am, although only an image, takes on substance as I enter it. This I can do physically or in my imagination, and the body that I wear there is real. Where did it come from, if not from my imagination? I sleep in the nude, so where do the clothes come from? When the power begins to awaken it clothes itself, for it is protean. Your identity will remain unchallenged, yet in the end we will all bear the divine name which is above every name. That name is Jesus.  
+  
+No one can see Jesus here, but everyone will know him because we will all be him. In the meanwhile, Christ - the power, the wisdom, and the glory of God - is buried in us and will be raised in us. You are a pre-existent being. You did not begin in your mother's womb and you cannot die in the grave. You were before the foundation of the world, for you are the being of whom Paul speaks when he wrote to the Philippians. His letter is addressed to posterity, for he was writing from experience.  
+  
+I have had all of the experiences that are now recorded in scripture concerning the Lord Jesus Christ - and I mean all of them; yet I am in a weak garment and will remain there until the day I take it off to return to my former state, glorified beyond what I was before I began the journey into death and decay. So now I say: *"Return unto me the glory that was mine. The glory that I had with thee before that the world was, for I have finished the work that thou gavest me to do."* God proclaimed the work through his servants, the prophets, and only God can fulfill it; so He emptied himself of his wisdom, power and glory and assumed the opacity and concreteness of death.  
+  
+Finishing the work by completing the journey, God is victorious over death, and his power, wisdom and glory are multiplied, for God has expanded and is greater than He was prior to his entrance into death.  
+  
+Let no one scare you, for you are a pre-existent being. You were before the foundation of the world. Let the scientists put any number of zeros next to a number to denote the earth's existence and I will tell you: before that number you, imagination, existed. So now I ask the Father to return unto me the glory that was mine, the glory that I had before the world was. I ask, that all may know who I am and see my glory that was given me. That glory I now radiate as the Father, for I am His reflection. And I now go beyond that and ask for the love which I knew I was before the foundation of the world.  
+  
+God's infinite love loved us all. Foreknowing us, he chose us all in his one being. Together we fell as one man and entered the world of death. Bear in mind what you are told in the 32nd chapter of Deuteronomy: *"He has set bounds to the people of the world according to the number of the sons of God."* If God is not in you, you could not breathe, for he is your breath of life. And when he no longer breathes life into the garment you wear, your friends will cry over your body, not knowing its occupant was God himself. Your child - be it a boy or a girl - is Christ who is destined to be designated son of God in power through Christ' resurrection from the dead. While here on earth your child may be a carpenter, a musician, or professor. It matters not what part he plays here, but the moment Christ in him resurrects into that one body, he has returned to his power, his glory, and his wisdom and is designated Son of God, in power and joins the glorious brotherhood of divine love.  
+  
+Love is the human form divine. When that indescribably body of love stands before you and embraces you, a mood possesses you which carries with it an ecstasy beyond all ecstasies. Everyone must return to that body of love, because all were loved before the foundation of the world, and not one will be lost because God would be lost. And in the end even the cutthroat, the murderer, and the thief are vindicated, for - like the blind man in the 9th chapter of the book of John - no one sinned. Everyone played their part in order for the works of God to be made manifest in all.  
+  
+One day I saw every part I had ever played. Every costume I had worn was waiting for me to redeem it, and as I walked by everyone was made perfect, because I was perfect. Then the chorus sang out the last cry on the cross: It is finished. Now I remain here to tell my story to everyone who will listen. Eventually all will hear it. I will depart and others will pick up the story just where I left off. They will have similar experiences, tell their story and depart and other will continue from there. Don't expect one hundred per cent acceptance. There are those who will believe because you use scripture to support your argument, and those who will disbelieve - but it doesn't really matter. Leave them just as they are and go about your Father's business, telling exactly what has happened to you.  
+  
+When I tell you what has happened to me I can speak more convincingly than if I were theorizing, for the truth that you know from personal experience is known more thoroughly than you can know that same truth in any other way. I can tell you what I have experienced. Trusting me, you will believe my story, but you cannot tell it with authority until it happen to you. You cannot go into court and be a witness unless you have experienced the event. And there must be two witnesses: The written word in scripture and its parallel, the Living Word of interpretation. He sent you, His Living Word, to interpret and verify the written word which he gave to his servants, the prophets. When you have interpreted this written word by unfolding it within you, the kingdom is yours, for you will have fulfilled the only purpose for living.  
+  
+Paul tells us that the lord Jesus Christ who - though he was rich - yet for your sake he became poor that by his poverty you may become rich. In dollars and cents? No. He was rich in power, for he was the power of God. He was rich in wisdom, for he was the wisdom of God. He was poor in wisdom, poor in power, and poor in glory to enter the world of death that by his poverty you may become rich. And when you awaken, everything you lost will be found and multiplied, for you will know yourself to be the Lord Jesus Christ of whom there is no other.  
+  
+Now let us go into the silence.
+
+
+## Summary
+
+### God's Dwelling Place
+In this text, the author explores the concept that God dwells within each individual and that humans are manifestations of God. They explain that humans are pre-existing beings who have empty themselves of their memories and power to fulfill a divine purpose. The author emphasizes the idea that humans are the embodiment of God and that they have the potential to rise above their limitations.
+
+### God Becoming Man
+The author references Paul's letter to the Philippians, where it is stated that Jesus, who is considered God in action, emptied himself of his divine form to be born as a human. This act of humility and self-sacrifice is seen as the taking on of the cross of death. The author asserts that humans, as embodiments of God, also take on the cross of death through their physical bodies.
+
+### The Risen Christ
+The author states that when Christ rises within an individual, they are bestowed with the divine name of Jesus, marking the ushering in of a new age. The name "Jesus" is equated with "Jehovah" and signifies the savior. The author asserts that Jesus is not separate from the individual, but rather, is the individual themselves. It is emphasized that individuals must remember their true identity as God and that they have always been God.
+
+### Everything Exists in Imagination
+The author argues that everything that can be conceived of already exists in the realm of imagination. They assert that individuals can enter these states and make them a reality. Desires are seen as shadows lacking form, but when a state is entered, it becomes the only reality. The author encourages individuals to test this principle by dwelling in desired states and seeing them manifest.
+
+### The Journey of Awakening
+The author states that individuals must go through a journey of forgetting their true identity as God and experiencing limitations. They reference biblical passages that imply pre-existence and the need for individuals to go through various experiences. It is asserted that this journey is ultimately a process of expansion and transcendence, leading to a return to power, glory, and wisdom.
+
+### Redeeming the Imaginal Acts
+The author discusses the concept of imaginal acts, which can be noble or ignoble. They explain that individuals must confront these two personifications of thought and choose love over violence. The misuse of creative imagination is symbolized by a horrible monkey clinging to the back and is contrasted with the beauty and glory of the angelic being. The author shares a personal experience of redeeming the monstrous being through love and emphasizes the power of imagination as the only God.
+
+### The Return to Glory
+The author emphasizes that individuals are pre-existent beings who existed before the foundation of the world. They assert that everyone will eventually return to their true identity as Jesus, the Lord God Jehovah. The author discusses the significance of love and the unity of all beings, stating that even those considered sinful or lost will be vindicated in the end. The text ends with the author encouraging readers to share their own experiences and testify to the truth within them.
+
+idered sinful or lost will be vindicated in the end. The text ends with the author encouraging readers to share their own experiences and testify to the truth within them.
+
+them.
+
+
+
+
+#Dreams

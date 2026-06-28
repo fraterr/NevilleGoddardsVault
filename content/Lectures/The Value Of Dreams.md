@@ -1,0 +1,111 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Value Of Dreams
+keywords: [Dreams]
+bible_ref:
+tags: lecture
+topics: [The Word as the Dream of Man, The Power of Daydreams, The Voice of God, Dreaming and Fulfillment, Everyone is God, The Awakening of the Second Man, The Word as the Dream of Man, Bringing Jacob Again]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+Here we use the words *"God"* or *"Christ"* or *"imagination"* interchangeably. They mean the same thing. If I use the word *"God"* because I am moved to use it, or the word *"Christ,"* it is the same thing. It is the fundamental power that created and sustains the universe, and which, also sustains our environment. We are told there is a secret to the whole creation 'In the beginning was the Word and the Word was with God and the Word was God, and by Him were all things made, and without Him was not anything made that was made.*" We could use the word "*imagination,*" but the secret here is "*Word." What is the Word? Something was made that was made.
+
+You have been taught to believe many things about the Word. Read the Bible and you will find what it means, for no one familiar with the Scripture could fail to see that the Word is the dream of man. You have been taught it is some being, born in a miraculous way, without the offices of a man. Well, it is, in a way. I have a dream and it comes out of nowhere; it depends on no outside help. 'If there be a prophet among you, I, the Lord, will make myself known to him in a dream.*" So the voice of God is the dream of man. "*Blessed is she, for she believed that this spoken to her would be fulfilled.*" It was told to her in a dream. From the beginning to the end of the Bible God is always speaking through a dream. In Job he speaks of two types. The first is a dream and then a vision of the night. "*And there He will open the ears of men and frighten them with warnings." I do not have to fall asleep here to dream. The nightmare is the rearrangement of the day [[Dreams]]. They are rearranged drama'tically and presented to me, and if my purpose is faulty it terrifies me with a warning.
+
+There is one given in Genesis by Israel. He was first called Jacob and then he wrested for himself the new name of Israel - or Is-real. From then on his [[Dreams]] were objective facts, so the [[Dreams]] were real. He made a bargain with his uncle Laban that all the spotted and striped animals in the flocks were to be his, and Laban agreed, thinking Jacob would be little more than a slave while he worked to win the first daughter and then the second. And then the Lord appeared in a dream and told Jacob that all those goats and rams which leaped upon the flocks when they came to drink were spotted or striped. And as the flocks bred where they came to drink, then the offspring became as in the dream, spotted or striped, and Jacob became richer and richer and his father-in-law got nothing from his hard bargain. What he saw in the day dream he saw in chronological order in the night dream. We see a thousand things during the day, and often vio'lent things, to be rearranged and dramatized in the dream of the night, so it may terrify us with warning, for we are told, *"My word will not return unto me void but must accomplish that where − unto it is sent."* And the Word of God is man's dream.
+
+Could you dream today? That is the Word of God. Throughout the whole Scripture we are told of the Word of God, and we think someone is actually going to speak to us. It could come that way when man fully awakens, but it usually comes in a dream. Solomon was promised great riches and long life, and then he awoke and 'it was a dream.' God always appears speaking to man in a dream, so the voice of God is the dream of man. It need not be a night dream. Live so in your day dream that the night dream follows in a chronological order, just as Jacob saw it regarding the striped and spotted cattle. Though all the flock is brown I will see them spotted in my mind's eye. And that which was brought forth was brought forth in the image held. He saw what he wanted to see in the day dream and then in the night dream it came forth in chronological order. But man is terrified by his dream, but they are shown him only to get him to think more constructively during that day. For God is man's Imagination.
+
+I could pick out a dozen people in this audience tonight who have written me about controlling their day [[Dreams]]. Here is a man whose property was going to pot, his tenants were behind in their payments, the stepfather was drinking and the children were shabby and neglected. Instead of taking legal action the owner took an imaginary ride past his property and saw it in the well-kept state in which he desired to see it. Things began to happen. The woman broke her leg and went to the hospital; at once the stepfather disappeared. When the woman recovered she went away for a time with the children and returned with a new husband. The place is now in better condition than it has ever been, the children are well-cared for and the family is happy and contented. So, *"blessed is she that believed that this spoken to her would be fulfilled."* For everyone is Mary; the owner of the property was Mary. You have a dream of what you want to be and you see it clearly in its fullness. Now blessed are they who could believe this spoken by God, for God's voice is man's dream. So, can I believe that I am now what I want to be and be faithful to the voice of God? Then my Word shall not return to me void. If I can believe, it will come to pass. It has nothing to do with your background, for God speaks to man and He does not care who you are, for it is through the medium of one's own dream that He speaks to you.
+
+'Have nothing to do with this man for I have been troubled in a dream concerning Him.' So spoke Pilate's wife. Pilate receives this note from his wife when the one who was the embodiment of Truth stood before him. Pilate is the embodiment of Reason and Truth does not reply to Reason's voice. But Reason could not believe that God speaks to man through a dream, so he did nothing. God can speak through the night dream but it usually frightens and because he does not understand it. 'He speaks to man in a dream, in a vision of the night.' He does it that we may change our purpose and change our deeds, for if night after night my daily thoughts are rearranged in my night [[Dreams]] so that they terrify me, then what am I doing that it should be so? For night after night He dramatizes my day, but not in chronological order. He takes the whole day and dramatizes it, and if it is not pleasant it will terrify me to get me to turn from my deeds and my thinking and rearrange the furnishing of my mind and come to the point where I can wrestle with this being (my inner self) as Jacob did and get a new name, so that my day dream can then be projected at night just as I dreamed it during the day. Jacob wanted the mottled and striped ones, and it comes just as he saw it. The entire Bible from beginning to end is the vision of God speaking to man, and he speaks to man through the medium of [[Dreams]]. Visions are different from [[Dreams]] and they come by Grace and only to bear witness to the progress that you make, to mark the mile-posts on the way. Sometimes you do hear a direct voice, but that is rare, but God is always speaking to man through his day [[Dreams]]. The voice of God is heard by man in [[Dreams]].
+
+In the beginning he placed man (Adam) into a profound sleep and there is no record he has ever awakened, so he is still asleep. Then 'God spoke to them in the cool of the evening.' It is all imagery. It is man in a profound sleep and God is speaking through the medium of [[Dreams]]. Numbers 12: 'If there be a prophet among you, I, the Lord, will make myself known unto him in a vision, and will speak unto him in a dream.' You do not have to fall asleep to dream. Everything in the world is talking to me and I am talking to myself and my own wonderful Imagination is God speaking to me. In the beginning was the dream and the dream was with my Imagination and the dream was my Imagination, and by it were all things made that are made. So I begin in a dream, but I can change my dream, and changing my dream I change the activity of my Imagination and change the phenomena of my life. If I do not change it, it remains the same.
+
+If you know someone who would like this or that, you do not raise a finger physically, but dream it for them. What would it be like if it were true? Represent them to yourself as if their dream were true, and then you do nothing to make it come to pass, for a true dream has its own way of fulfilling itself. That is your Word and it cannot return unto you void. But I am free to change the Word of God and change the sentence and make it spell something different. You can take any 12 words and express devotion or, by their rearrangement, express something frightful. The Word of God is the dream of man. So what are we dreaming? If you would only believe it and become the one of whom it was said, *"Blessed is she who believed that this spoken to her would be fulfilled."* For you are this being spoken of. Think of the most ideal state you would like to realize. And do not modify it. Think of the ideal state for you. No two want the same thing. Few would want to do what I am doing and very likely I would not care to do what you are doing. But dream nobly. You have the Word. Its use may cause a seeming convulsion as this man's did. He did nothing but take his ima'ginary ride past his property and see things as he wanted them to be. But then what might be called a convulsion − the accident to the woman. He has asked did he cause the accident. Certainly! His Word caused it. It took that to free the woman from the monster who was living off her. Was it not a little price to pay to get free and to enjoy what followed? But be careful what word you are speaking, for the Word of God is the dream of man. And since man's dream is caused by his own imagining, then who is God?
+
+In this past week I have had one heavenly experience after another with my father, for I have thought so much about him, he is part of the drama of the night and I can take any of these parts and find their meaning for my instruction. Here, the other night I was with my father. I knew he was gone and he knew it, but he knew the boys could not see it. But my brother Collin went out in the rain and got some flying fish. Now he employs two to three thousand people, anyone of whom could have done this for him, but he went out − in the dream − and got these flying fish himself and brought them in. Now in the Islands there is nothing cheaper than flying fish. If you want dolphin you ask for dolphin, etc., but if you just ask for 'fish' you always get flying fish. And in the dream my father said to me, *"It is wonderful. He has no false pride and he can use his own hands to do what some think only servants should do."* My brother was one of the eight sons who bore my father to the grave. My dream was not frightening to me for I knew my father was where Collin could not see him, but he was looking on and was proud that his son showed himself to be without false pride and could do what any employee would have been glad to do.
+
+By taking today and living so fully in Imagination as the man I want to be, then I am obeying the Word of God. I can take the same word and distort it, for I am He, for the Word of God being the dream of man, and that, springing out of Imagining, that is God. So God, Christ or Imagination are interchangeable, and the whole thing is speaking of your own wonderful human Imagination. But if, during the day, I modify the Word because of the evidence of my senses, then the Word I have sent out I have voided, but if I have remained faithful to my image then it must accomplish that whereunto it is sent.
+
+Everyone can hear God for everyone is God. You are not some little thing divorced from God. People go to church and kneel and try to get the ear of God and they hope that God will forgive them for something they are condemning themselves for. This too, is a Word of God, but what confusion! There is no one to intercede for you for we are all One. So stand on your own two feet and speak the Word for everyone and for yourself. Then it has to fulfill itself, for Imagination creates Reality, and there is nothing to stop it.
+
+My father stood on a beach in Barbados 30 years ago and saw it as a perfect place for a hotel. He never faltered in that dream. The years went by and the owners finally died and when it came up for sale the one person who could have paid for it twice what my father could, had gone to Brazil, and his cabled offer arrived 24 hours too late. My father's dream came true, though he made it 30 years before. He was Jacob and he wrestled with an idea until it became real. He first made it real in his mind's eye, and when the time came the one person who could have outbid him was called away. My father did not devise that, but when the man in Brazil remembered the sale and sent his bid it arrived 24 hours too late.
+
+Everyone here − you are God. You are not some little thing beating your head out. God became you that you may awaken and know that you are He. Nothing you have ever done caused the so-called *"Fall."* There is no *"original sin."* It was God actually, willingly and lovingly becoming his own creation who is called man, that he might awaken it to become Himself. It was purposeful and deliberately done to awaken his creation, and when it awakens it ceased to be created for it is God, so *"He who comes after me is preferred before me."* Why? Because it came first. This which was first an image and was lit by God and is God, then has no beginning. That is the secret. Something that had a beginning is lit by something that is beginning-less and becomes it, so then it is also beginning-less. The form is lit and becomes a center of Imagining. Then you will understand the words, *"Return unto me the glory that was mine before the world was."* So man in the true sense cannot begin after he is lit by God.
+
+So take your most wonderful dream and no matter what the day seems to bring, a dream is God's Word and it cannot fail. Can you believe you are the woman you want to be? Stick to that and control it and do not let it become a jumble in the course of the day, for if you do then God will take the *"jumble of the day"* and rearrange it in the dream of the night and it might terrify you, but it will only be to instruct you. These [[Dreams]] are created by you in the course of the day, but if you would now only set the pattern of life you want and remain faithful to it, it cannot return to you void but must accomplish its purpose.
+
+So you will find all through the 66 books of the Bible that He is always appearing to man in a dream. Never mind the *"holy men"* or *"holy places."* Wherever you stand, that is holy ground. *"Take off your shoes, Moses"*... for where man stands there is God, for God is man. Do not look for someone to come in robes, etc. The real man is the natural man and acts in a natural way, but buried in him is the Second Man, the Lord from Heaven, and that is God. Let the natural man beget himself on his divided image. But that man died − (the natural man). Yet you are told *"You are gods."* We are told they condemned Jesus, not for what he had done but because he blasphemed. He said he was the Son of God. But he told them, *"I say the Law tells you this."* Psalm 82: *"I say you are gods, sons of the most High. But you shall die like men and fall as any other prince."* The Scripture cannot be broken. So I blaspheme when I say I am the Son of God? I tell you I am consecrated and sent by my Father, and you call me a blasphemer? You are actually the Son of God, the Son of the most High. The Second Man must awaken in the natural man. So you will die like any other natural man, but nevertheless the real you is the Son of the most High. When He said He was going to die and yet that He was the Son of God, they did not know He spoke of the Second Man. The first garment into which I am woven must be discarded as I awaken from within it to discover who I am. First I must put on visibility and become mortal.
+
+Blake writes:
+
+Whate'er is Born of Mortal Birth 
+Must be consumed with the Earth
+To rise from Generation free; 
+Then what have I to do with thee?
+
+Thou, Mother of my Mortal part, 
+With cruelty didst mould my Heart, 
+And with false self-deceiving tears 
+Didst bind my Nostrils, Eyes and Ears;
+
+Didst close my Tongue in senseless clay, 
+And me to Mortal Life betray,
+The Death of Jesus set me free; 
+Then what have I to do with thee?
+(To Tirzah)
+
+This garment (the body) is to be used as I awaken. But as I become more and more awake I can prove by a dream that I am He. The story is, *"Go and bring me Jacob.' "*He who formed me from the womb to bring Jacob again unto Him." Bring me that state of mind that can pre-determine. He wants a Son like Himself. But who can bring Jacob? And how can I find him when he is so small? Yes, he is small but who will bring him? For He formed you in the womb (Mother Nature) to bring Jacob. He wants to awaken in every being one who can create as He creates, for He creates by the Word, and God's Word is man's dream.
+
+
+## Summary
+
+### The Word as the Dream of Man
+- The words "God," "Christ," and "imagination" are interchangeable and refer to the fundamental power that created and sustains the universe.
+- The Word is the secret to creation, as stated in the Bible, and refers to man's dream.
+- The Word is often communicated to man through [[Dreams]], as seen throughout the Bible.
+
+### The Power of Daydreams
+- [[Dreams]] can occur not only during the night but also during the day.
+- By controlling daydreams and imagining desired outcomes, one can manifest them in reality.
+- Positive changes can be brought about by holding onto the vision of the desired outcome.
+
+### The Voice of God
+- The voice of God is heard through [[Dreams]].
+- It is important to believe in and trust the [[Dreams]] and visions that come from the imagination.
+- God speaks to man through his own [[Dreams]] and imagination.
+
+### Dreaming and Fulfillment
+- [[Dreams]] have the power to fulfill themselves.
+- The dreamer can influence the fulfillment of their [[Dreams]] by remaining faithful to the desired outcome.
+- The Word of God is the dream of man, which is brought to reality through imagining and belief.
+
+### Everyone is God
+- Every individual is God, and there is no need for intermediaries or external forces to connect with God.
+- God speaks to man through the medium of [[Dreams]] and imagination.
+- Everyone has the power to manifest their [[Dreams]] and change their reality.
+
+### The Awakening of the Second Man
+- The natural man must awaken to his true nature and become the Son of God.
+- The first garment, the physical body, is discarded as the individual awakens to their true identity.
+- Through awakening, one discovers their divinity and their ability to create like God.
+
+### The Word as the Dream of Man
+- The Word of God is man's dream, and man's dream is caused by his own imagination.
+- Man's [[Dreams]] can be powerful tools for creation and manifestation.
+- The Word, when believed and followed faithfully, can never fail and will accomplish its purpose.
+
+### Bringing Jacob Again
+- God wants to awaken in every individual the ability to create like Him.
+- The smallness and insignificance of the individual do not hinder this awakening.
+- The purpose of man's existence is to bring about this awakening and fulfill the divine creative power within. like Him.
+- The smallness and insignificance of the individual do not hinder this awakening.
+- The purpose of man's existence is to bring about this awakening and fulfill the divine creative power within.within.
+
+
+#Dreams

@@ -1,0 +1,141 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Is Christ Your Imagination
+keywords: []
+bible_ref:
+tags: lecture
+topics: [Imagination and Christ, The Bible's Definition of Christ, Testing Yourself, The Sacrifice of God, Man's Creative Power, The Gospel of John, Jesus as Son of God, The Resurrection and Resurrection Experiences, Believing in Christ, Revealing God, Destiny of Every Individual]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+Tonight's subject is in the form of a question: *"Is Christ your Imagination?"* When we ask the question we expect the answer in terms of our current background of thought, and quite often that is not adequate to frame the answer. Now, I am asking the question, and in order to answer myself I should really clarify the terms, *"imagination"* and *"Christ"* I think there will be no problem tonight if I define - say - *"imagination."* I think you will agree with me when I define *"Christ."* If I say to that, that imagination is the power of performing mental images, you wouldn't quarrel with that. Sitting here tonight, you can think of anything and see it mentally. You may not see it as graphically as you see it in its present form in the room at the moment, but you could see it vividly in the mind's eye and discriminate. Think of a tree, a horse, and you know the difference between one and the other, and they are two separate objects in your mind's eye. Well, that is the power of imagination.
+
+When it comes to Christ - and there are hundreds of millions in the world that call themselves Christians - the very use of the word instantly conjures in the mind's eye a person. They think of Christ as a person, and no two have the same mental picture of this person. I know, many, many years ago in New York City this French artist went to the library on 42nd street and brought up 46 different pictures of Christ and screened them with his little lantern. No two were alike, and each artist claimed that this was an inspired picture as it was presented to him, and he painted the picture. There were blond and blue-eyed pictures, dark swarthy skin; there were those with a very black skin - all 46 pictures were projected as so-called originals. So, man has been conditioned to believe that Christ is a person. So I ask the question: *"Is Christ your imagination?"* Can I personify the imagination? I will.
+
+Let us go back to the Bible. What does the Bible say of Christ? In Paul's first letter to the Corinthians (I will just give you the highlights) he defines Christ as: *"The power and the wisdom of God."* (1:23, 24) In John 1 (which brings Christology to its height, as far as the Bible goes - there is no single book that takes the secret of Christ and brings it to this height as you will find in the Gospel of John) - in the Gospel of John, speaking now of this presence that was with God, his meaning, his power: *"By Him all things were made and without Him was not anything made that was made."* It is the power and yet it is wisdom. So here is a creative power. If I take that now and analyze myself in another world, the sign goes to the end of the second letter to the Corinthians. He calls upon all of us who would read that letter: *"Test yourself. Do you not realize that Jesus Christ is in thee?"* Here we are told: *"All things were made by Him."* He is the power of God and the wisdom of God. Every attribute of God is personified. So his power is personified, and may I confess I have seen that power - and it is a man. I have seen that wisdom - and it is a man. And when you stand in the presence of that personified aspect of infinite being, you know you are standing in the presence of infinite might. It is not just power, it is almighty-ness, and you stand in the presence - and yet it is a man. So here he calls it the power and the wisdom.
+
+Now he asks me, and you who read his letter, to test ourselves: *"Test yourself, do you not realize that Jesus Christ is in thee."* (2 Corinthians 13:5) And he made all these things - well then, let us put him to the test in us. I say he is our imagination, that is the power, the creative power of the universe. Look around. Do you know anything in the world of man that man has created - from the clothes that he wears to the homes that he inhabits - that wasn't first imagined? Do you know of anything in this world that is now proved as fact, as a concrete reality, that wasn't first imagined - only imagined, and then it externalized? Yes, using hands, using implements of the world, but it first began as an image, and an image is simply the product of this reforming image-making faculty in man, which is man's imagination. Now, if *"All things were made by him and without him was not anything made that was made,"* I can't come to any other conclusion than the fact that Christ of scripture is my imagination.
+
+Now who is Jesus? If Christ is the power and the wisdom of God, and God sunk himself in us, that was his sacrifice. He actually became us that we may live; for were it not for this sacrifice of God, to actually limit himself to the state called *"man,"* man would - like the earth - wear out like a garment. As we are told in Isaiah 51:6: *"Lift up your eyes to the heavens, and look at the earth beneath; for the heavens will vanish like smoke, the earth will wear out like a garment, and they who dwell in it will do likewise; but my salvation will be for ever and my deliverance will never be ended."* That word *"salvation"* means Jesus. The word *"Jesus"* is *"Jehovah saves."* That is salvation. That is forever. Were it not that God became man that man may become God, to save man and lift him up to immortality, because the promise is: *"The earth will wear out like a garment."* 
+
+Our scientists tell us today that the sun is melting in radiation. If it took unnumbered billions of years, if it started a process of melting, no matter how long it takes it has an end, and with its end we have our end as part of the system. So we, walking the earth, always have an end. To stop that process of bringing man to an end: *"My salvation will be for ever and my deliverance will never have an end."*
+
+So, God became man that man may become God. In becoming man (as God is the only creative power in the world) what in me creates? My imagination. I may not have the talent to put it on paper, I may not have the ability to execute it the way artists can, but I can imagine it. I can imagine a book and the joy of having a book. I can imagine a picture. Without being an artist I can dream. I cannot conceive of a picture that a man can paint on canvas that is more alive than my dream, yet I can't put a thing on canvas. But I go to sleep and I can dream. And what is doing it, if not my imagination? And here when I lose the conscious faculty, this restricted area, I can actually dream. Dream as no artist in the world conveys; put color upon it, put motion upon it, and have the most wonderful drama - and that is my imagination.
+
+But this is not the only power and wisdom of God. In the greatest of all the New Testament, which is John, John does not emphasize the power. He states in the beginning - yes, he declares might as power - but the emphasis is not on power; it is on redemption and revelation. Revelation in John's gospel is an act of God in self-revealing. So, in the first chapter he tells us what this power will do for us. First of all there are two endings to John. Let us take the real ending, which is the 20th chapter, the first ending, and whoever the writer is who calls himself John: *"Now Jesus did many other signs that are not written in this book; but these are written that you may believe that Jesus is the Christ . . .and believing have life in his name."* He is the power and the wisdom of God. That is what the author is telling us in the very end. Many signs he did, but in spite of the number of the signs and the character of the signs, it did not evoke faith. The whole teaching of the Gospel of John is based upon faith and unbelief in him. Either one or the other. Have faith in him, or you disbelieve in him, and few believed in him - few, we are told, even his disciples. Only a few believed and they imperfectly.
+
+Well now, who is Jesus? Christ is the power and the wisdom, but who is Jesus? We have this wonderful thought expressed in Paul's letter to the Philippians (2:6-11): *"Though he was in the form of God, he did not consider equality with God a thing to be grasped, but he emptied himself, taking the form of a slave, being born in the likeness of men."* That identifies man with a slave, every man. *"And being found in human form he humbled himself and became obedient unto death, even death on a cross. Therefore God has highly exalted him and bestowed on him the name"* (not an indefinite article) *"which is above every name, that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God the Father."* He gave him the name, and it is above every name, and at that name every power in the world must bend, at the name of names. That is the name called Jesus, which is Jehovah. Jesus simply is Jehovah's name.
+
+Every child born of woman in this world one day wears that name. There is only one name, only one being: Jesus. You go through the same story as told us in the gospel - everyone will - and when he passes through this series of events, that name is conferred. Conferred on the risen Christ. That power is latent in man, that is man's imagination. Where it is lifted up, on that risen Christ, the name Jesus - the divine name, Jesus - is conferred, and that individual then enters a new age. An entirely different age that is immortal, eternal, because until the end of that age we are still subject to being worn out like a garment (as told us in the 51st [chapter] of Isaiah.) So everyone is moving on that wheel that is being worn out, wearing out like a garment and vanishing like smoke, like the heavens. But not one will fail, for God redeems us and God resurrects us, one after the other, lifts us up and confers on that risen Christ the name - the name, Jesus.
+
+When Blake was asked quite innocently about the mysterious name: *"What do you think of Jesus?"* without batting an eye, Blake replied: *"Jesus is the only God,"* and then hastened to add: *"But so am I, and so are you."* So in the end, all believed the name where the power - all Christ in man - is lifted up, lifted up so that the whole vast wonderful being that was sunk in man is now awake. What that body is like, I can't describe it to anyone. I can't find words to describe the glory that is yours, for everyone. It certainly isn't this, I assure you, yet I will know you and you will know me in eternity. But for all the sameness of identity we will actually know each other. There will be a radical discontinuity of form (not the form I now wear here today and have for the last fifty-eight years) - but identity'yes, you will know me.
+
+But how to display the glory of the being that you are when you are resurrected? This is shown us by the Sadducees, who do not believe in the resurrection. They are the modern scientists. The Sadducees of 2,000 years ago were the wise men. The Pharisees were the priesthood of the world. The Sadducees were the intellectual giants of that day and they - any more than today - could not even believe in survival, far less resurrection. Like the world today puts the two words together and they speak of survival as resurrection - and they are not. Survival is continuity; resurrection is discontinuity. You leave the field completely and enter the worlds of eternity. 
+
+So they ask the question based upon the law of Moses, and Moses said: *"If a man's brother dies, leaving a wife but no children, the man must take the wife and raise up children for his brother. Now there were seven brothers; the first took a wife, and died without children; the second and the third took her, and likewise all seven left no children and died. Afterward the woman also died. In the resurrection, therefore, whose wife will the woman be?"* (Luke 20:27-33). It is a fable, because they did not believe in the resurrection. *"And Jesus said to them, "*The sons of this age marry and are given in marriage; but those who are accounted worthy to attain to that age and to the resurrection from the dead neither marry nor are given in marriage, for they cannot die any more, because they are equal to angels and are sons of God, being sons of the resurrection.*" (Luke 34-36) They are completely above the organization of sex. What we call sex here, this garment of flesh, are shadows thrown by this fabulous being above. And the body you really have, you are told (as I quoted earlier, Philippians 2:6): "*Being in the form of God, did not count equality with God a thing to be grasped, but emptied himself, taking the form of a slave, being born in the likeness of men, didn't think it strange. And being found in human form he humbled himself and became obedient unto death, even death on a cross." And then to find himself with all the limitations of man, all the weaknesses of man, everything that is man? Then God exalted him at the end when he resurrected him and gives him the name. That name is conferred only at resurrection.
+
+So, everyone will get it, for everyone will be resurrected. Then you will not be wearing these bodies, wonderful as they are for us, filled with all the passions of the world, and they are all wonderful - but it is not the body you will wear. You will be completely above the organization of sex. No need for this kind of creativity. Imagination becomes completely awake and you will create at will, and your imaginal act will become an immediate objective fact. And what we call reality today, all this fabulous world of ours - may I tell you I have seen it - it is all imagination. When man has played his part and God has completed his purpose (which is to bring forth from us himself and make us all gods with him) then these garments - made up of all the elements that feel so permanent and so wonderful - they will vanish like smoke. There isn't an element that wasn't brought into being by the creative power of God, by his own wonderful divine imagining, and it is sustained in me because he sustains it by his imaginal act. When he ceases that imaginal act all the elements will melt, all vanish, and the world will be as though it never existed. But you and I will be lifted up above it all into an entirely different world, an eternal world.
+
+So is Christ your imagination? I say Christ is the power and the wisdom of God, and this power and this wisdom creates everything in the world. I can trace to my own being an imaginal act that became fact, then I repeated it and it became fact. If I can repeat it and repeat it, and these imaginal acts externalize themselves in facts, then I have found it. Found that power in myself, for the Bible calls him Christ and personifies it and speaks of [this] presence as a man - but that man is Jesus. Jesus Christ is simply the resurrected being that is God now, because he has resurrected the power within him, which is Christ. Now he is called *"the Lord,"* and everything should bow before him when it happens. I say to you: the day will come you will have the experience, and you will be startled. No one will believe you; they aren't going to believe you anymore than they believed the first person to whom it happened. He is the first that rose from the dead, but no one believed him. Up to the very end who would believe the story?
+
+They were looking for a different kind of Messiah, a conquering hero who would come just like a man out of some glorious background of warriors, and then conquer the enemy of Israel and lead Israel to some victorious end. They always look for that kind of a Messiah. We have them all over the world today, these false Messiah's who promise the nations they will lead them to some victory, even a little temporary victory. That's not Messiah. Messiah hasn't a thing to do with this world; he is resurrected out of this world. This world is vanishing, wearing out just like a garment. Christ in man is the power and the wisdom; and then, that in man that is man's imagination, becomes a mercy because he exercises it lovingly.
+
+If I read John correctly, not only my salvation is dependent on it; I must actually believe in him. Who is the being? My own imagination. If I don't believe and test it - even though I fail - well then, I don't believe in Christ, for Christ is really my imagination, your imagination. So you imagine something lovely of another, and if you don't believe in the reality of that imagination, then you don't believe in Christ. Though you can go to church every day and give ten per cent of your income to the church of your choice - all these things are lovely, give them if you feel that way about it - but that is not Christ. That is not believing in Christ.
+
+To believe in Christ is to see someone in this world, and have a sweet feeling towards that one that hasn't yet realized how to be lovely, something without his knowledge. Then represent him to yourself as though it were true, and believe in the reality of what you have done mentally. Believe in Christ, for all things are possible to Christ. Bring him before your mind's eye and see him as he would like to be seen by himself, as he would like the world to see him. But you do it and believe in the reality of what you have done. That is believing in Christ. You will be surprised beyond measure how it works. At that very moment, because: *"All things by a law Divine in one another's being mingle."* At that very moment that you interfere with his life, you reshuffle the entire deck, and all things will completely rearrange to mirror the change that is going to take place in him; and everyone in this world who can aid that change will be used to bring it about without their knowledge or consent. You don't need the consent of any being in the world; if they can be used to externalize what you have imagined, they will be used. And when you least expect it, because you believe in Him, then God resurrects you. Then you will live it out, and you stand bewildered when you see what God did for you.
+
+Everything claimed of him that you thought, that your mother taught you, happened 2000 years ago - it is happening. It didn't stop. Go back and read Paul's letter to Timothy: *"Those who teach that the resurrection is past are misleading the faithful."* It isn't a past: it took place in one, and it is taking place in unnumbered. It's all over, the crucifixion is over, yes - but not the resurrection. The resurrection is taking place in everyone that is called and lifted up. As we are called, God's mightiest act is performed. and we are lifted up and pass through the series of events leading into the kingdom of heaven. Though we seemingly remain here still wearing this garment for a little while, the garment will be shown you that you will occupy. You can't describe it to anyone, even to your own satisfaction. It is such a living thing, so luminous; it is just light, like the rainbow. You can't describe it to any being in this world who thinks only in terms of a garment of flesh.
+
+Now we are told in the 1st chapter of John (11-13) - he is speaking of an entirely different kind of birth: *"And those who believe in his name will be born, not of blood, nor the will of the flesh nor of the will of man, but of God."* Not born in any that this (the body) is born. *"Flesh and blood cannot inherit the kingdom of God,"* only Spirit. When you are born, you are self-begotten. You have actually no parents. You come right out of a grain, the mystery of the grain of wheat that falls into the ground. If it doesn't fall into the ground it remains alone; if it falls into the ground, it bears much fruit. The mystery of life through death, for God actually died to become you, to become me.
+
+God is divine imagination and he limits himself to the very limit of contraction, called human imagination, and actually dies in the sense that all the power and all the memory of his glorious being had to be completely forgotten. So the cry on the cross is true: *"My God, my God, why hast thou forsaken me."* He himself has cried out, because he so completely gave himself to us he suffered total amnesia, complete forgetfulness of his divinity as he became us, and that was divine imagining becoming human imagining. Then we, building our little world - lovely as it is to many of us - it is so different, and the power we exercise is so fragile, compared with that same power when raised up, when lifted up and the great name which is above all names is conferred upon us. And the day will come, without loss of identity you will bear the name *"Jesus."* Everyone is destined to be Christ Jesus - that power, with the name exercising infinite power - without loss of identity. We will know each other and all glorified, everyone. There is no limitation to the gift. Some will exercise it more than others, but certainly the gift is the same, the gift of Christ Jesus.
+
+So my question, as far as I am personally concerned: *"Is Christ your imagination?"* I say: yes. And yet don't limit it only to power and wisdom, for the emphasis is not on power and wisdom - it is on redemption, revelation. He reveals himself, and in that very first chapter, the prologue of John. The first eighteen verses are the prologue, and in the very last of the 18th verses he shows you the revelation: *"No man has seen God at any time, but the son in the bosom of the father, he has made him known."* No one has seen him, but in the bosom of the father there is a son, and he reveals the father. Then we are told in the 10th [chapter] of Luke: *"No one knows the son except the father. No one knows the father except the son and anyone to whom the son chooses to reveal him."* There will come that moment in time when the son reveals you, and you will know your name is Jesus Christ the Lord, for the son is going to call you, *"My Lord."* He is actually going to call you his father, his Lord, the rock of his salvation, and then you will know who you are.
+
+I can tell you from now to the ends of time, but I can't tell you the condition that experience will carry when it happens. And when it happens to you, it will make no difference to you if all the wise people in the world rise in opposition and tell you: you started from some grand little amoeba. It will make no difference to you whatsoever. This is revelation, and the whole thing is lifted - the veil is lifted - and now you know why you couldn't see the face of the father. You can see him only reflected in the son. There is no mirror to reflect the consciousness of the son. You can't see your face because you are mirrored on earth; but that is not the face, and you only know your face in the beauty of your son. So, everyone in the world is destined to bear the name of Christ Jesus, the Lord.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Imagination and Christ
+
+- Imagination is the power of creating mental images, and we can vividly see and discriminate objects in our mind's eye.
+- Christ is often seen as a person, but the word "Christ" actually refers to the power and wisdom of God.
+- The power of imagination is personified in Christ, and seeing Christ as our imagination allows us to personify this creative power.
+
+### The Bible's Definition of Christ
+
+- The Bible defines Christ as the power and wisdom of God in Paul's letter to the Corinthians.
+- In the Gospel of John, Christ is described as the presence that was with God, the power through which all things were created.
+- Every attribute of God is personified, including his power and wisdom, and all things are made by Him.
+
+### Testing Yourself
+
+- Corinthians calls us to test ourselves and realize that Jesus Christ is within us, as He is the power and wisdom that created all things.
+- Everything in the world of man, including clothes and homes, was first imagined before being externalized.
+- Therefore, it can be concluded that Christ, as described in the Bible, is our imagination.
+
+### The Sacrifice of God
+
+- God became man (Jesus) to save humanity and lift them up to immortality.
+- Without this sacrifice, the earth and everything on it would wear out like a garment.
+- Jesus is the salvation, the one who saves, and through him, God becomes man to save humanity.
+
+### Man's Creative Power
+
+- In becoming man, God's creative power in man is imagination.
+- Man may not have the ability to physically create like artists do, but everyone can imagine.
+- Everything in the world begins as an image in man's imagination before becoming a concrete reality.
+
+### The Gospel of John
+
+- John's gospel emphasizes redemption and revelation rather than power.
+- Believing in Jesus (our own imagination) is essential, as John focuses on faith and unbelief.
+- Jesus performed many signs, but it did not evoke faith in many, and the whole teaching of John's gospel is based on faith and unbelief.
+
+### Jesus as Son of God
+
+- Jesus is the only God, and we are also God.
+- Jesus is the name conferred upon the risen Christ, who is lifted up and given the name Jesus, which is above every name.
+- The name Jesus (Jehovah saves) is conferred upon everyone in the end, and everyone will be lifted up into a new eternal age.
+
+### The Resurrection and Resurrection Experiences
+
+- The resurrection is not past but takes place in every individual who is called and lifted up.
+- Christ is awakened and lifted up in every individual, and everyone will go through a series of events leading to the kingdom of heaven.
+- Everyone will be resurrected and receive the name Jesus, which signifies the resurrection and God's power.
+
+### Believing in Christ
+
+- Believing in Christ is not merely attending church or performing religious rituals, but it requires faith in our own imagination and its reality.
+- To believe in Christ is to imagine something lovely for another and believe in the reality of what we have imagined.
+- By imagining and believing in Christ, we can interfere with others' lives and externalize what we have imagined.
+
+### Revealing God
+
+- Christ reveals God, as no one has seen God directly, but the Son in the bosom of the father reveals Him.
+- The Son chooses to reveal the Father, and there comes a moment when the Son reveals each individual, who then knows their name is Jesus Christ.
+- Our consciousness is mirrored on earth, but it is not the true reflection; only in the beauty of the Son do we see our true face.
+
+### Destiny of Every Individual
+
+- Everyone in the world is destined to bear the name of Christ Jesus, the Lord, and carry the power and wisdom of God within them.
+- The name Jesus signifies resurrection and the awakening of Christ within each individual.
+- The experience of realizing one's identity as Christ Jesus is indescribable, and opposition or disbelief cannot shake the revelation.
+
+ the power and wisdom of God within them.
+- The name Jesus signifies resurrection and the awakening of Christ within each individual.
+- The experience of realizing one's identity as Christ Jesus is indescribable, and opposition or disbelief cannot shake the revelation.
+
+tion.
+
+
+
+
+#

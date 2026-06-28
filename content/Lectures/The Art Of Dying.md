@@ -1,0 +1,97 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Art Of Dying
+keywords: [Revision, Dreams]
+bible_ref:
+tags: lecture
+topics: [Belief in the Power of Imagination, The Mystical Meaning of the Death of Moses, The Art of Dying, The Awakening and Transformation of Man, The Power of Imagination, The Power of Revision, The Power of Revision]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+If you are with us for the first time, this is what we believe and teach here. We firmly believe that you, the individual, can realize your every dream, and the reason is that God and man are one. We believe that the difference is not in the mentality with which we operate, but only in the degrees of intensity of the operant power itself, and that we call human Imagination.
+
+Keats said: *"You can take any one great and spiritual passage and it will serve as a starting point to lead you to the two-and-thirty palaces."* Take this simple one in Paul's letters to the Corinthians: *"I die daily,"* or Blake's statement in his letter to Crab Robinson: *"Death is the best thing in life. There is nothing in life like death, but people take such a long time in dying. At least, their neighbors never see them rise from the grave."* If you understood Blake you would not think of death as the world thinks of death, but you would see that no one can grow without outgrowing. But man is not willing to outgrow, [and] yet he wants other things than those he has. But if you remain in one state, you will forever have to suffer the consequences of not being in another state. (From the *"Hermetica"*) If I remain in the state of poverty, I must suffer the consequences of not being in the state of wealth. So I must learn the art of dying. Paul says: *"I die daily."* Blake says: *"People take such a long time in dying."* Man does not outgrow his state of ill health or his old job or his environment. We must learn the art of dying, and this week is the great death and we are told that God dies that man may live.
+
+We say that the Imagination of God and man are one, no matter how far it goes. Universes are created and sustained by *"the same power that sustains our environment."* We say the power is the same, but we recognize a vast difference between the power that sustains the universe and that which sustains an environment. The difference is only in the degree of intensity of the center of imagining. So, if we increase the intensity [in] the center of imagining, we will create greater and greater things. So I see my dream, and I must learn to die to what I AM in order to live to what I want to be.
+
+Now this is the mystical meaning of a death in the Bible - the death of Moses, a story familiar to all of us. We are told that Moses comes out of the land of Moab (Deuteronomy 34) and then scales the mountain of Nebo, goes to Pisgah, sees Gilead, and finally he looks into the promised land of Jericho. But the Lord tells him: *"I will let you see the land, but you cannot go into it."* Then Moses dies. (The present state cannot be carried into the new; it has to die as a consequence of the new made alive.) *"But his eye was not dim and his natural force was not abated."* And no one knows his burial place. First remember that all the characters of the Bible take place in the mind of man. I am Moses, you are Moses. It means to *"lift up"* or to *"draw out of."* We are told in the very beginning of the story that he was pulled from the bulrushes. The word [*"Moses"* - in Hebrew, *"Moshe"*] spelled backwards in the ancient Hebrew means *"the Name"* [haShem] or *"I AM."* So I am drawing out of my own being, or the I AM. Moses comes from *"Mo ab."* This comes from two Hebrew words meaning *"Mother-Father,"* or *"womb."* Then he scales the mount of Nebo, which means *"to prophesy,"* or which represents the subjective state I long for. I will prophesy for you, or you for another. You single out a person's longing. If he longs for something it means that he does not have it, else there could be no longing. But Moses climbs Nebo - that is, he participates in seeing the state longed for. I single out something that implies I am the man I want to be. I scale the mountain. Then comes Pisgah, which means, *"to contemplate."* I contemplate what I want to be. Then he sees Jericho, which means *"a fragrant odor."* I will contemplate the desired state until I get the feeling or reaction that satisfies. I have not only scaled Nebo but I have reached Pisgah and looked into Jericho. I am filled with the emotion that implies the act is completed. Then there is Gilead, which means, *"hills of witnesses."* Then I, as Moses, die. I cannot go into the promised land, and no one can find where I am buried.
+
+What does it mean? If I am poverty-ridden and frightened and then you meet me and see me as free as a bird and happy, then I am not the man you knew who was frightened. Then where is that other man buried? For Moses is the power in man (generic man, male-female) to draw out of himself anything in this world he desires, and to so enact the drama that he dies to what he was, that he may live to what he is enacting. That is Moses - and no one can know where he is buried. But we are told: *"His eye was not dim nor his natural force abated."* That is [to say], when I die, that is when I enact the drama. I do not wait for signs to appear; it is when I am most aware of my restrictions and feel the pressures, then is when I must learn to die. I must learn to let go of what my senses dictate and *"go mad"* and yield to what is only a dream. But sustaining it and living in it, I die to what was physically real as I gradually lift up what was only the dream. You knew only the frightened man and not the other one. No one can tell where the other has gone.
+
+So this is how the art of dying is dramatized in the Bible as the death of a man. But it has nothing to do with any certain man, for the story of the Bible takes place in the mind of every man. I will crucify myself, for God crucified himself in me that I might live. But now I must nail myself upon the thing I desire and, remaining faithful to it, lift it up as God nailed himself upon me. (The present body) is believing himself a man called Neville, giving Neville the same power that is his (but keyed low) in the hope that I will lift up the power to bigger things in my world to which I can nail myself, and so lift them up. There is no possibility of man making his dream alive unless He nails himself to this cross that is man. We are living because God nailed himself to us. Now man, keyed low, yielding to other states and not to what the senses dictate, becomes one with the state and nails himself to it (fixes himself in the state through emotion and feeling) and then he will be lifted up.
+
+For crucifixion comes before resurrection. Crucifixion without resurrection would be unthinkable; it would be the utter triumph of tyranny. If I could yield myself to my dream and it would not become flesh, it would be complete tyranny over this wonderful concept of life. But you cannot fail if you yield. If you hold back within yourself, wondering *"What will I play as my last card if this doesn't work?"* then you have not yielded, you have not nailed yourself to it. It is a complete yielding. It is the great cry *"My God! My God! Why hast Thou forsaken me?"* If you know that you're God doing it, you can yield. But there must be complete abandonment as though it were true and then you make it a reality. The cost is that form of mental abandonment that Blake calls *"madness."* But man is afraid; he dare not so abandon himself to a dream, and so never *"dies."* So Blake was right when he said: *"There is nothing like death: the best thing in life is death."*
+
+Many people only age, but never change inwardly. They only mature physically, but they have not died in the mystical sense. There is no transforming power in the physical death, and they will still be anchored in a larger world with all the trends of this world. To our senses they seem to be dead but they will still, on another plane, have to learn the art of dying. I can anywhere so completely detach myself from what is taking place that I can *"die"* to that state. So every little death is the lifting of the divine image. This means dying as the mystic means it. It means dying mentally. Man dies to ill health, or poverty, or to disharmony, etc., but he does it by yielding to the other states.
+
+Blake looks on all states as permanent, as in his great poem regarding the Halls of Los: *"I curse the earth for man and made it permanent."* So states remain and man passes through states, as though cities. If I do not pass through some state but remain in it, I think [it] is the only reality. You cannot conceive of a state that is not, for the whole is finished; but man is awakening only by dying to state after state.
+
+You take a friend who is not well or cannot set himself free from some state. You represent that friend to yourself as he should be seen by the whole world, and to the degree that you are faithful to that representation, to that degree you will bring him out of the old state. It does not matter if he knows you did it or not; he does not have to know. But remain faithful and you will bring him out of the old state into the new state that you are seeing. All things are burned up when we cease to behold them. Moses could see the promised land but he could not go into it. If I am true to the likeness of what I behold, then I - the *"old"* man - cannot go into the new state. Something called the power goes into it, but [no one] recognizes it, for they cannot recognize the transformed being.
+
+We all feel so secure in recurrence. If we know that a thing is fixed and that next week things will be as they are today, I feel secure in that recurrence. I can have done something that violates the moral codes, I can have come from the wrong side of the tracks, but I can accept that, for I am used to it. But to say that something awakes in me and can become what it will - that is frightening to man. So we are told to awake out of sleep, for recurrence brings security to the whole vast world. One does what he does as if he did it in a nightmare. For God had to *"forget"* he was God to become man, and that whittling down to this level is [the] very limit of contraction, But then comes the awakening from that deep dream into which he threw himself to make me alive. So this lifting-up power goes about setting men free, for God became every man, that every man may in time awaken as God. Eventually the whole [world] will awaken and the poem will be in full bloom and it will be noble beyond our wildest [[Dreams]]. And then it will exist for us and we will be one with the creator of the great poem. That is [the] art of dying.
+
+Next Sunday is the great drama. I am riding a beast and I am at the crossroads. *"Bring me a colt on which no man ever sat, that is tied by the road where two ways meet."* Here is state I have never ridden before. It is so unnatural to feel myself to be the man I want to be and to actually get into that state and ride it without being thrown by reason, which tells me I am mad. But if you know the Lord is your Imagination, you can ride it into Jerusalem. We [are] told [we] will find the animal at a crossroads where two roads meet. We are always at a crossroads of what I am and what I want to be. So, can I ride the beast I find at the crossroads and ride it into Jerusalem? Then I am going toward *"heaven,"* but it is not continuous on my line of motion. It is contiguous. It is adjacent to where I am, for heaven is a state of consciousness. I try to catch the feeling that would be mine if [I were] the man I [want] to be, but that involves a death. I must abandon myself to my dream as if it were true, and - living in it - I lift it up and make it real. Everyone must pass through this state, for this is the only true religion in the world. Religion, like charity, begins at home, with one's self. The mother seed of all religious beliefs lies in the mystical experiences of the individual. All ceremonies are but secondary growths superimposed upon it.
+
+Religion means, *"to be tied or devoted to."* But if I am not in love with what I am tied to, I must yield to something more lovely and make it real. I must bear my cross. I go so far and then I want to cross to the other line where my heaven is. For everything is interrelated. We all interpenetrate each other. We are all one. So there is interpenetration of the whole world and then comes conflict, and from that comes the solution of the conflict. For we must conflict if we are all interpenetrated. But then we must bring about reconciliation. Whatever the solution is, that is the reconciliation. But we cannot stay in a state or any condition forever. Each new state bears within it the seeds of new conflict. Every heaven becomes in time hell. A thing is ours for a moment, but as we continue in it, it will bring about conflict. As long as there is interpenetration there is always conflict. So live in any desired state and then as conflict arises resolve it and die to it and then move into another state. Thus we grow and outgrow; thus man awakes.
+
+No man can be born in one environment and ever realize another if he does not yield to the state desired. So Blake was right: *"The best thing in life is death but it takes man so long to die that his friends never see him rise from the grave."* Can you not see then how it is with your friend who always tells you the same things, even though you have not seen him for ten years? Everything is still recurring, nothing is new, but that makes him feel secure. Man does not want change; it frightens him.
+
+I tell you that your Imagination is God. Believe it. Exercise it. It is keyed low, but as you lift it up you intensify it and then vision after vision will be yours as you begin to awake. Do not think you are greedy because you are demanding things or the changing of things. You are here to create as your Father creates. Want what you want and yield to it and create it. Then you will want higher and higher things. But nothing blesses a man unless it comes down from its heavenly state and takes on flesh. You are the only one who can clothe it in reality. But it remains a state unless you yield to it.
+
+This drama in the Bible is all about you, for the Christ Jesus of the gospels is your own wonderful Imagination. There is only an infinite God and the creation he loved. And he so loved it, he wanted to make it alive and then share it and even change it, so God became man that man may become God. That is the great story of the gospels. Every mystic in the world tells this same story. Then every man is free. There is no judgment, for no matter what man has done, it is God's doing it in a nightmare. There is only complete forgiveness of sin - no judgment and no argument, but man can change facts. The past can be unmade. So a man has done this or that. Use your strange Imagination and *"turn the great wheel backward until Troy unburns."* It means to revise.
+
+I know a lady who burned her hand and then *"unburned"* it. She poured boiling water on her hand. She lay on the couch and tried to undo mentally what had been done. It was difficult because of the pain but she kept trying. She redid the scene and poured the boiling water on the tea and brewed it and then she drank the tea. She did it over and over and finally in the act of thus making the tea she fell asleep. When she awoke some hours later there was no trace of the burn. She wrote: *"You would have thought I should go right to the hospital, but now there is not even a sign of the burn."*
+
+Comment: The past and present are one in a greater moment.
+
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Belief in the Power of Imagination
+- The belief that individuals can realize their [[Dreams]] because God and man are one.
+- The difference between individuals lies in the intensity of their Imagination.
+- The importance of outgrowing one's current state and learning the art of dying.
+
+### The Mystical Meaning of the Death of Moses
+- Moses represents the power in man to draw out what he desires and enact his desired reality.
+- Symbolism in the names and actions of Moses in the story.
+- Moses dying represents the enactment of the desired state and the abandonment of the old state.
+
+### The Art of Dying
+- The mystical death represents the mental death to old states and the yielding to desired states.
+- The importance of mental abandonment and complete yielding to the dream.
+- The crucifixion and resurrection as the process of dying to the old state and being lifted up into the new state.
+
+### The Awakening and Transformation of Man
+- The concept of awakening from the deep dream and becoming what one desires.
+- The process of passing through different states and the need to yield to desired states.
+- The significance of conflict, reconciliation, and the continuous process of growth and awakening.
+
+### The Power of Imagination
+- The belief that Imagination is God and the importance of exercising it.
+- The role of man in creating and bringing desires into reality.
+- The idea that nothing blesses a man unless it takes on flesh through the individual's creative power.
+
+### The Power of [[Revision]]
+- The belief that facts can be changed and the ability to revise the past.
+- An example of "unburning" a burned hand through mental [[Revision]].
+
+dual's creative power.
+
+### The Power of [[Revision]]
+- The belief that facts can be changed and the ability to revise the past.
+- An example of "unburning" a burned hand through mental [[Revision]].
+
+sion.
+
+
+
+
+#Revision #Dreams

@@ -1,0 +1,145 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Who Am I
+keywords: [Sabbath]
+bible_ref:
+tags: lecture
+topics: [Who am I?, The Journey of Awakening, The Revelation of True Identity, The Eternal Drama, The Recognition of True Identity, The Unfolding Mystery]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+*"Every generated body in its inward form is a garden of delight and a building of magnificence. Travelers from Eternity pass outward to bodies of flesh and blood and forgetfulness, but travelers to Eternity pass inward to the Father and Remembrance."* (William Blake) Notice the movement here. Those who travel from eternity pass outward to these bodies of flesh and blood and forgetfulness, while those who travel to eternity pass inward to the body of the Father and Remembrance!
+
+Tonight I want to ask this question: *"Who am I?"* Am I Neville Goddard? No. Are you John Brown or Mary Smith? You may know your physical background and if I should call your name you would answer, but are you the name you go by? No. Your name is a part of your outward journey from eternity into a state of forgetfulness of who you really are. Were you to turn around by practicing repentance, by radically changing your attitude towards everything in the world, you would move inward to the Father and Remembrance.
+
+If you don't like someone, change your attitude towards him. Represent him to yourself as you would like him to be, and persist in seeing and liking the new image. Your reason and your senses may deny any change, but it will come because you are practicing repentance. Change your attitude towards life by turning your thoughts around and you will move towards eternity. You will pass inward to the Father and Remembrance. *"I came out from the Father and I have come into the world. Again I am leaving the world and going to the Father."*
+
+Follow me now in your imagination, for I am going to tell you a little story. It is the story of a man who was born in a very modest environment in a certain city. He never traveled beyond a few miles of his home. He had no social, financial, or intellectual background, but lived a simple life in a normal environment. Now imagine this man entering the synagogue (as was his custom on the [[Sabbath]]), picking up the Book of the prophet Isaiah and turning to the 61st chapter, rise and read these words: *"The Spirit of the Lord is upon me, because he has anointed me and sent me to preach good news to the poor and release to the captives."* Closing the book he hands it to the attendant and sits down as all eyes are on him. Turning to those present he says: *"The scripture that you have just heard has been realized today."*
+
+Knowing scripture was being fulfilled in him he told those that would listen, but that's not what the people were looking for. They did not think scripture would be fulfilled in an individual, but by an individual on the outside. They are taught to believe that a conqueror will come from without and enslave those who enslave and free those who are bound, but that is not how Christ comes. He comes to set you - an individual - free, for though you be a billionaire, you are still enslaved by your billions. You could this night have millions of dollars, yet find yourself flat on your back, paying someone to care for your normal, natural functions as you are unable to do it yourself; therefore you are a slave to the body you wear and totally unaware of the being you really are. So when Jesus comes into the world he comes not from without, but from within. He unfolds in you, casting you as the central character in scripture. That is the story of Christianity.
+
+Now, in our story the man makes the claim that scripture is fulfilled today and then makes this statement: *"Abraham rejoiced that he was to see my day; he saw it and was glad."* Those who heard him make this statement said to him: *"You are not yet fifty years old and you saw our father Abraham, or Abraham saw you?"* Then he said: *"Before Abraham was, I am."* Well, that was too much, so they took up stones (the literal facts of life) to throw at him, saying: *"We know your background. You are Joseph's son. We know your brothers and sisters. We have the entire record of your physical history and you dare to make these claims?"* He was not speaking of a literal, physical birth, but of the unfolding of scripture in the individual, the unfolding of that which was true before that the world was.
+
+In the 17th chapter of the Book of John, Jesus (he who said: *"I and my Father are one"*) addresses his Father, saying: *"Return unto me the glory that was mine, the glory that I had with thee before that the world was."* Here he is asking for the return of the glory he knew before he entered this predetermined play. Having played all the parts, he is returning to himself, enhanced by the play. And because God is one, in the end everyone discovers himself to be that one God and Father of all. I tell this to you before it takes place, that when it does take place you will believe me.
+
+The story of Jesus Christ is the only story of salvation. There is no other way, no other savior. But Jesus Christ is not a man, but a plan of salvation. He is the pattern which is activated and awakes in Man. No one knows the name of that earthly man in whom this pattern awoke or the authors of the gospels Matthew, Mark, Luke, and John. The true authors of any book of the Old Testament are unknown. All we have are their records. But I tell you tonight: the pattern as spelled out in the New Testament as the life of one called Jesus Christ awaits animation in everyone, and when Man turns around it erupts in him and Man finds himself to be the central character of scripture, who is God the Father.
+
+The pattern begins with an event called the resurrection. In my own experience, I actually awoke from a sleep of which I was totally unaware. You see: you left eternity to travel outward into these garments of sleep, and you have been traveling for unnumbered ages. If I would take the experiences of the mystics, scripture, and others - like a Blake - I would say you have traveled 6,000 years during which time you have been totally unaware of who you are. Then comes that moment when, as the same traveler, you are turned around; and instead of traveling from eternity, you travel to eternity, to the body of the Lord Jesus Christ, who is God the Father to discover that you are He.
+
+On your turn around you awake, and where do you think you are? In your skull! An unearthly vibration awakened me one night and I found myself waking like I had never experienced before. Completely awake, I found myself alone and therefore had to redeem myself. Intuitively knowing how to get out, I pushed the base of my skull and came out in the same way an infant leaves its mother womb, only I came from above and not from below. I came out from the base of my own skull and not from my mother's womb. Then the entire drama as described in scripture unfolded before me, casting me in the central role. No one saw me, but I saw everything that was taking place. The three witnesses were there, as well as the little infant wrapped in swaddling clothes. I was not an infant, I was the same being I am now. The infant wrapped in swaddling clothes was the sign of my birth from above. The witnesses called me by my earthly name. That is not my true name, but they could not see that yet, so using my earthly name they identified the children as mine. As Spirit, now they were unable to see me, for I am born from above as Spirit, and they only know me by reason of the mask I wear. They knew that the one who wore that mask was born from above, so they called that name; but am I that name? No!
+
+The next grand event came a few months later, when a similar vibration resulted in another explosion within me. And when it was still, David of Biblical fame stood before me and I knew he was my son. There was no uncertainty about this relationship. I am looking at my son and I know I am his father. At that moment I fulfilled the 2nd Psalm: *"And the Lord spoke to David saying, 'Thou art my Son, today I have begotten thee.'"* And in the gospels we are told that in the Spirit, David called Christ *"Lord,"* which means Father. Then, for the first time, I knew who I really was.
+
+In the 16th chapter of Matthew, Jesus turned to his disciples and said: *"Who do men say that the Son of man is?"* and they answered: *"Some say John the Baptist, others say Elijah and still others say Jeremiah, or one of the prophets."* Then he asked: *"But who do you say that I am?"* (Here he identified himself with the Son of man). Peter answered: *"You are the Christ, the Son of God."* Upon hearing this Jesus said: *"Flesh and blood could not have revealed this to you, but my Father who is in heaven has made it known."* No earthly man or woman can tell you who you really are to the point of belief because it cannot be rationalized. This knowledge comes by revelation. Your Son sets you free from all doubt when he is unveiled within you.
+
+Raised in the Christian faith, I was taught to believe that Jesus Christ was the Son of God. I did not know that he was literally God the Father until it pleased God to reveal his Son in me. At that moment he revealed me as God the Father. So now I can say to you this night: *"Before David was, I am,"* yet David chronologically lived in 1,000 B.C. and I was born in this century. That's 3,000 years between us, yet I am his Father!
+
+Who am I? Neville? No. He is a garment of sleep and forgetfulness I wear. Those who are on their outward journey know me as Neville, but those who move to eternity pass through the body of the Lord, and remembering, they know who I really am, for we will be one. When Man turns around, he begins to remember what was shown him before the journey started. The return is the act of remembering, for the being who fell asleep is the same being who awakens memory, only this time enhanced and expanded by reason of the plunge into forgetfulness called the world of death. I came out from the awareness of being the Father and came into the world. Again I leave the world and return as the Father.
+
+Tonight I can tell you who you really are, but until God's Son has revealed himself to you, you cannot be convinced. I know you trust me and believe my words, but not with the assurance and conviction that will be yours after the experience. How can you, born in the twentieth century, know yourself to be God the Father of one recorded to have lived in the year 1,000 B.C.? You can't know it until it happens in you. Then and only then will you know the answer to the question: Who am I? And you will reply with conviction: *"I am the central character of scripture. In the volume of the book it is written of me: 'If I were hungry I would not tell you, because the world is mine and all within it. The cattle on a thousand hills are mine. If I were hungry I would slay and eat for it is all mine.'"*
+
+Now, Jesus did not start his ministry until that fourth and final act, which was the descent of the Holy Spirit in the embodied form of a dove. He didn't start with the resurrection (his birth from above), the discovery of David as his Son, or the splitting of the temple (which was his own body) from top to bottom. These things are awe inspiring, but he waited until the final act, which took exactly three and one half years. We are told this in a very simple way. Just before he starts his ministry, he said: *"Were there not others in the days of Elijah when heaven was sealed for three years and six months? And Elijah went to none of them except Zarephath. There were many lepers in that day, yet none of them were cleansed but Naaman."* This was a way of concealing and yet telling those who have had the experience that it takes three years and six months from the awakening to the descent of the dove. Only then do you tell it, and there will be those who believe and those who will not believe you. Well, that is forever.
+
+Tonight if the outer world heard what you are hearing, 99.99 per cent would question my sanity, but I have scriptural support for that: *"Why listen to him, he is insane and has a devil."* Why did they think he was insane? Because he said: *"I and my Father are one. My Father is he who you call God, only I know my Father and you know not your God."* He spoke of the moving inward to eternity and only these who had turned around could understand to the point of acceptance, but he still told all who would listen.
+
+The drama of Christianity is not something that unfolds on the outside of Man, but takes place within Man and is the only way of salvation. A man called Neville is not the way to the Father. Neville is not my identity. He is the garment I wear as I walk the earth. I am telling you what happened in me while wearing this garment called Neville. Certainly Neville is not God the Father of David, but I am. Neville is not anything other than a little garment that God is wearing, playing the part called Neville, which is forever. Just like a Hamlet, an actor plays the part; but the one who wrote the play is the one to praise or condemn, not the actor. Well, God wrote the play. Neville is a part in God's play and God, being protean, plays the part called Neville. If tonight I leave this garment called Neville it is not gone, for every event in space is forever, and tomorrow God will pick up the part called Neville and play it. You will see it in time, but I - the being who played the part - will not be playing it, for I have passed on, on my way to the Father.
+
+The drama is finished and is being played forever and ever. When anyone is cast in the role called Neville he has these experiences, but the one who plays the part is God individualized, for the gods came down. Neville is part of the eternal structure of the universe and no one can rub it out. You could blow my head off right now and I drop dead, yet you could not destroy the character called Neville, for it remains forever and forever. Nothing passes away. I have moved back in time, not only a few years but hundreds and even thousands of years and know it is all a play, completely sealed and intact. As I enter a scene it appears to be taking place now, but I am seeing what has already happened, even though as the play unfolds in this world it appears to be a present fact.
+
+So who am I? Only your Father in heaven can reveal my true identity to you. No one can tell you to your own satisfaction that your I Amness is Christ, yet you are told in the 13th chapter of 2 Corinthians: *"Do you not realize that Jesus Christ is in you? Test yourself and see."* You are called upon to test your creative power, even though you do not realize who your power really is. And you are told that you are born from above by the awakening and resurrection of your power from the dead. That through this powerful resurrection from the dead you are born anew and relegated Son of God in power. Now, if Jesus Christ is in you, and you are born anew through his resurrection from within, is Christ in you not your hope of glory? And when he awakes it's not another. I know from experience, when Christ awoke within me there was no other. It was I who awoke!
+
+Now, we are told: *"Unless you believe that I am he you die in your sins."* Christianity teaches that a man is telling another that unless the other believes this man is He the other will die, but that is not the Word. I am the Word speaking to myself. I am telling myself that unless I believe that I am God, I will continue to believe in my limitations and die to the tree of life. When those who heard this simple man say: *"Unless I believe I am he, I die in my sins,"* they couldn't understand, for they knew his father, Joseph; his brothers James, Hosea, Peter, and Simon, as well as his sisters (which were plural). They questioned how any man not yet fifty years old could know these things or have seen Abraham. How could anyone know that he was before that the world was? They thought he was insane because they were looking for a savior outside of self, and there is none. The one and only savior awakens from within, because God became Man that Man may become God.
+
+God actually became you on your journey from eternity into these garments of sleep in the hope that one day you would turn around and, moving to eternity, pass inward to the body of the Risen Lord to become one with the one body, one Spirit, one Lord, one God and Father of all. One body fell, diversifying itself into unnumbered men and women, and only one body will return. When you experience this return, it will not matter what the world thinks. You will stand completely unashamed and undaunted, regardless of their arguments. Whether the one who tries to break you sits on the throne of the religious, political, or financial world, he is still a child and you simply tolerate his infant mind. You won't argue with them because they are incapable, without vision, to comprehend the true pattern of salvation.
+
+Without vision Man hasn't the slightest concept of the mystery that God is buried as a pattern in Man. That he erupts and Man bears the fruit of the tree of life beginning with God's resurrection from the dead. Then comes the birth from above, followed by the revelation of God's Son, revealing Fatherhood. Only when this revelation is yours do you know who you really are, for *"No one knows the Son except the Father and no one knows who the Father is except the Son and anyone to whom the Son chooses to reveal him."* So when the world tells you that Jesus Christ is the Son, leave them alone, for they do not know the Father. Jesus Christ is God the Father, whose Son is David. When David chooses to reveal his Father to you, then and only then will you know who *"I am."*
+
+As Blake so beautifully said: *"Every generated body is a garden of delight and a building of magnificence."* This body is that which is within, not without. On the outside the garment becomes withered, old, and decayed. That is not the body Blake is speaking of, for the generated body is within. It is a form, and when you see it you see the glory that awaits your return.
+
+I remember a vision my friend Bob Crutcher shared. He found himself in a dilapidated shack fighting a war in Paris. As he opened the door to leave, all of the soldiers fused into a single man and I am that man waiting for him. Taking him to the back of the house, he sees beautiful, golden fields being harvested with wheat. To his left that which was the enemy is now transformed into a mountain of harvested wheat. Sensing something symbolic in the scene he asked: *"What are they doing?"*
+*"The same thing they did last year. It goes on forever,"* I replied.
+*"How long have I been here?"*
+*"Two years."*
+*"Did I learn anything?"* 
+*"Yes, you learned how to move, how to create."* Then he looked at what was the little shack, and it had become a castle with attendants waiting to escort him to his quarters, as the vision came to its end.
+
+Bob has already discovered he is God the Father, so no matter what happens to the outer form, it is as nothing to him. It is only a garment of forgetfulness worn by a Son of God as he passes inward to the Father and Remembrance.
+
+So who am I? Jesus Christ who is God the Father. I tell you now before he awakes in you, so that when it does take place you will believe me. But until you turn around and start the journey inward I cannot bring you to the inner conviction that it is true, for the outer Man wants an outer belief. He thinks there is another one who is greater than himself, who will save him. Today we have the world going on relief because the politicians have promised to take care of everyone, yet our country is already broke. If a politician has any religion whatsoever and wants to be a good politician, he must put his religion in deep, cold storage while he plays the part, for politicians are perpetual liars, making promises they cannot keep.
+
+I am not sent to tell you any lies, but to tell you of the only true God. While on the outside, you will hear many false promises, but when you turn around you will discover you are the Lord Jesus Christ who conceived the play and played every part. I have told you exactly what has happened to me, and as Peter tells you: *"I think it right to tell you now that you may be brought to remembrance of these things, for I was shown by the Lord Jesus Christ that I have not long to wear this garment of flesh."* I tell you this now so that in the future you may remember my words and rejoice. Peter was on the mountain when the whole thing unfolded. He knew the majesty of the power of Christ. I ask you to believe me, for what I have told you this night is true.
+
+Today people are creating monuments to garments of flesh and blood. It's like making a monument to Hamlet and not to Shakespeare. We have all of these monuments to the garments God wears, rather than to God the healer and true character of the entire play.
+
+Ask another: *"Who am I?"* and they will call you by your outer name, but when you ask yourself: *"Who do you say that I am?"* you realize that no flesh and blood person can ever tell you. The answer can only come from your Father who is in heaven and heaven is within. The drama unfolds not between two men, but within one Man. Life has only one purpose and that is to fulfill scripture. Today we have countries, corporations, and individuals building images of themselves and they are all false; for there is only one real image, who is your Son, David, who tells you who you really are.
+
+I tell you: you are God the Father. The day will come when the words you now hear through the outer ear will be experienced from within and then you will know who you really are. You will know that you are Jesus Christ, who is God the Father and his only begotten Son, David.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Who am I?
+
+- Travelers from eternity pass outward to bodies of flesh and blood and forgetfulness, while travelers to eternity pass inward to the body of the Father and Remembrance.
+- Repentance and changing one's attitude towards life can lead to a movement inward towards eternity.
+- Jesus comes to set individuals free and unfold within them, making them the central character in scripture.
+- The story of Jesus Christ is the only story of salvation, and Jesus Christ is the pattern of salvation that is activated in every individual.
+- The pattern begins with the resurrection, the awakening from sleep and forgetfulness, and the discovery of one's true identity as God the Father.
+- Jesus Christ is not a man, but a plan of salvation that awakens from within each individual.
+- Each individual's awakening is the return to the Father, moving from outward journey to inward journey.
+- The return is the act of remembering and discovering the true self as the central character of scripture, who is God the Father.
+- Only the Father can reveal the true identity of individuals, and the revelation comes through the awakening of Christ within.
+
+### The Journey of Awakening
+
+- The generated body within is a garden of delight and a building of magnificence.
+- The story of a man born in modesty who enters the synagogue, reads scripture that is fulfilled in him, and declares his true identity.
+- Scripture is fulfilled in the individual, not by an individual from outside.
+- Jesus Christ comes from within, unfolding in each individual as the central character in scripture.
+- The unfolding of scripture happens through specific events like the resurrection, the discovery of David as God's Son, and the splitting of the temple.
+- The true identity is revealed through the awakening of Christ within and the realization of being God the Father.
+
+### The Revelation of True Identity
+
+- Jesus Christ is not a literal man, but the pattern of salvation that waits to be activated in each person.
+- Only the Father can reveal the true identity of individuals as God the Father.
+- The true identity is known through the awakening of Christ within and the revelation of God's Son within each individual.
+- No earthly person can reveal the true identity and belief comes through personal revelation and experience.
+- The world's understanding of Jesus Christ as the Son is limited, while the true revelation comes from within.
+
+### The Eternal Drama
+
+- Man's journey from eternity to forgetfulness has a purpose of turning around and moving inward to eternity.
+- The drama of salvation takes place within each individual and is the only way to salvation.
+- Neville is the outer garment that God wears while playing the part of Neville, but the true identity is God the Father.
+- The drama is eternal, with the characters being played by different individuals across time.
+- God wrote the play and plays the part of each character, while the actors are not to be praised or condemned.
+- The true identity is known through personal revelation and experience.
+
+### The Recognition of True Identity
+
+- Jesus Christ is the only true God and the recognition of true identity comes from the Father within.
+- The belief that Jesus Christ is God the Father must come from personal revelation and experience.
+- The outer world's perception and understanding of Jesus Christ may be limited, but the inner revelation brings deep conviction.
+- The world may question the sanity of those who believe their true identity, but the revelation brings freedom from doubt.
+- The knowledge of one's true identity comes from the unveiling of Christ within and the understanding that God became Man so that Man may become God.
+- The world's promises and beliefs cannot compare to the revelation of one's true identity.
+
+### The Unfolding Mystery
+
+- Man is the garden of delight and magnificence within, not the outer garment of flesh and blood.
+- The return to the Father is the return to remembrance and the awareness of one's true identity.
+- The outer form may decay, but the true character is forever and cannot be destroyed.
+- The journey, filled with different experiences and events, unfolds within one individual.
+- The revelation of one's true identity comes from the Father within, not from external sources.
+- The purpose of life is to fulfill scripture and discover one's true identity as God the Father.mes from the Father within, not from external sources.
+- The purpose of life is to fulfill scripture and discover one's true identity as God the Father.Father.
+
+
+#Sabbath

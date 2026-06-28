@@ -1,0 +1,118 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Ultimate Sense
+keywords: [Assumption, Dreams]
+bible_ref:
+tags: lecture
+topics: [Misinterpretation of Scripture, Understanding Scripture as Allegory, The Nature of Christ and Salvation]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+In the Book of Nehemiah we are told that: *"They read from the book, from the law of God with interpretation and gave the sense so that the people understood the reading."* I wish that were true of today's preachers, but unfortunately they have mistakenly taken personifications for persons and the gross first sense for the ultimate sense intended.
+
+In today's paper I read where 325 graduate students of fifteen Catholic colleges were asked to name their ten heroes, in order, with no restrictions as to time. The late president Kennedy came in first, his brother Robert second, Martin Luther King third, with Jesus coming in fifth. Here are graduates of fifteen Catholic colleges who - seeing the Bible as secular history - place its primary character fifth in their heroic order when if read as literature (as many college students do) they would discover it is not secular history at all.
+
+In Biblical thought a name is not a mere label of identification but an expression of the essential nature of its bearer. To know the name of God is to know God as he reveals himself to the individual. As the Psalmist said: *"Those who know the name put their trust in thee."* His name is revealed in a progression of revelations. It is first revealed as God Almighty in the name El Shaddai. This name is personified as Abraham, Isaac, and Jacob. In the state of Moses the second revelation comes as *"I AM."* Then, in the third and final state of Jesus Christ, the full disclosure of his name is revealed as Father, in a Father/Son relationship. Bearing the name of Jesus, you will say with Paul: *"I have made manifest the name to the men whom thou gavest me out of the world. They were thine and thou gavest them to me. I have made known unto them thy name and I will make it known that the love with which thou hast loved me may be in them and I in them."*
+
+But now, when you read scripture always remember that the names Abraham, Isaac, Jacob, Moses, and Jesus are personifications of eternal parts of God's play. Having faith in yourself and the play you created, you entered the part called Abraham, at which time you were shown the entire play in detail. And when the play is completed you move into the part called Jesus Christ to discover you are its author. To say Jesus is your hero and see him as a person is to completely misunderstand the story of scripture. As Blake said: *"It ought always to be understood that the persons, Moses and Abraham, are not here meant, but the states signified by those names, the individuals being representatives of visions of those eternal states as they were revealed to mortal man in a series of divine revelations as they are written in the Bible. I have seen these states in my Imagination. When seen at a distance, they appear as one man. As you approach, they appear as multitudes of nations."* 
+
+I know the truth of that statement for although Blake was born in 1757 and died in 1827, we are closely woven in the tapestry of thought. One particular night we met, and after discussing the mystery of God, Blake said to me: *"Fall backwards with a complete abandonment of self. Do not restrain yourself, just relax and fall."* Following his instructions I felt as though I was falling off the earth, as I hurled through space like some interstellar body. And when the motion ceased I looked up to see a single man aglow in the distance. His heart was like a flaming ruby, but when I approached I realized that all of the people in eternity were in that one body. I saw the body we will all be gathered back into when God's play is over.
+
+The play begins when *"The scriptures, foreseeing that God would save and justify the heathen, preached the gospel beforehand to Abraham."* Now, if you take the story of Abraham as secular history you would realize that he would have been shown God's plan of salvation two thousand years before it occurred. But, agreeing to play the part of Abraham, you entered death's door, the human skull. It is there that you sleep in visions of eternity as the Christ seed, being one with your Father.
+
+The word translated *"seed"* in Galatians is *"sperma"* meaning the sperm of man and identifying man with God. This is not the physical sperm, for it is only a shadow producing bodies of death. I am speaking of the spiritual sperm called Christ, whose seed is capable of extending itself. Dreaming your life into being, you appear to be two, but you are not. One day this barrier will be removed and you, individualized, will emerge as the Lord Jesus Christ - which, like Abraham, Isaac, and Jacob, is a sign, witnessed by God.
+
+When you read scripture try to remember that these characteristics are only personifications and try to find out what they represent. Until you understand the significance of the name, you are going to miss its message. Quite often you will find a classic telling a far greater story than you will ever hear from the pulpit on a Sunday morning. One of my favorites was written by a mathematician. You know his story as Alice Through the Looking Glass. 
+
+*"Come and look at him!"* the brother cried, and they each took one of Alice's hands, and led her up to where the King was sleeping. 
+
+*"He's dreaming now,"* said Tweedle-dee: *"and what do you think he's dreaming about?"* 
+
+Alice said, *"Nobody can guess that."* *"Why, about you!"* Tweedle-dee exclaimed, clapping his hands triumphantly. *"And if he left off dreaming about you, where do you suppose you'd be?"*
+
+The dreamer in you is God, who must dream in the sequence he set up in the beginning. No part can be omitted. As our forefathers played it so will we, for there is only one actor in this drama called life and that actor is God.In you God is dreaming the various parts he wrote in the beginning and you saw while in the state of Abraham. You are the Son of God now, an *"I"*, which he is extending. We are all the *"I"*, only now we are enhanced by reason of the predetermined dream.
+
+Charles Dodgson (whom we know as Lewis Carroll) wrote the child's classic, Alice Through the Looking Glass which tells us that everything was possible through the looking glass. This is true, for with God all things are possible. Things are what God thinks they are. He thinks He is you and will keep on thinking He is you until he brings you to the awareness of being the Lord Jesus Christ.
+
+It is sad to read that those who have graduated from Catholic colleges believe this personification is a character of history, and unbelievable to think they have put him in the fifth place. I am not saying this could not happen in a Protestant college, for it could happen there, too. Who knows - they might put him in the tenth place rather than the fifth. Without any feeling towards the story it cannot be believed, but the dreamer in you is playing every character in the play as you cast your shadow in this world. I heard it so clearly one night, when He said to me: *"I laid myself down within you to sleep, and as I slept I dreamed a dream'"* and I knew He was dreaming He is I, and when He awakes, I Am He!
+
+Now, in this shadow world you must learn to imitate him. If he dreamed you into being and is dreaming you through all of your worldly experiences, you can start to modify some of them by imitating him and dreaming your own particular dream. What would the feeling be like if your desire were true? I know from experience that it will come to pass, and I want to encourage everyone to try it.
+
+Start tonight. Feel yourself into your desired state of consciousness. What would you be conscious of feeling if the world reflected your desire right now? I encourage you to use feeling, just as Isaac did in his story. As Isaac, you cannot see your desire as objective to yourself. It is Jacob, smooth-skinned and with no external reality while this objective world is Esau. You must clothe Jacob with such external qualities that he will feel objectively real to you. Touch has a fantastic sense of reality, so through the sense of touch and smell Isaac gave Jacob the right to be born.
+
+I know when I am out of this body I am awake, and when I touch someone there they are solidly real. I can hear their voices and see their faces, and when I touch them my hand does not go through their bodies, for the world, at that moment, is just as real as this one.
+
+Learn to shake yourself loose from what the world believes is the only reality. Feel yourself touching a friend or relative you know well and love, and you, too, will know from experience that no one dies to cease to be. No matter how wise the priest and rabbi may be, they have not been where you have and therefore cannot know what you know. They are theorizing and you will be speaking from experience. I have stepped into other worlds and they are just as real to me as this room is now, and the people there just as solid to my touch as this lectern is now. At this moment this room is real to me because I am in it. But when I am in these other worlds they are more real than this room or my home in Beverly Hills where I spend most of my waking hours.
+
+Let us return now to the sense of touch. Think of something that you would touch if your desired were objectively real. Money, for instance, can be touched and it even has an odor. These are the senses Isaac used. When Jacob came close, Isaac touched him and said: *"You feel like my son Esau and you have his odor."* Then he blessed Jacob and, strangely enough, when Isaac discovered he was self-deceived he could not reverse his blessing.
+
+As Isaac, through the sense of feeling you set in motion that which the feeling implies, and in its own good time it will confront you. You may not recognize your own harvest and wonder when you would have planted such a seed; but you had to have done it or it could not come to pass, for God is your awareness, dreaming everything in your world. He is the reality behind their appearance.
+
+So when you open the Bible in the future and come upon the glorious name Jesus, stop yourself from thinking of an individual who was born in some strange manner 2000 years ago, and think of him as the representative of all who have reached the climax of the play; for everyone who has achieved the end is gathered into that one body which is personified as the Lord Jesus Christ.
+
+Now, it is the Christ seed who is the Son of God that rises. Listen to the words in the 3rd chapter of Galatians: *"The promise was made to Abraham and his seed who is Christ."* You will note the world *"seed"* is singular, not plural. Here we find that the seed is one with the one who made the promise.
+
+Entering the part called Moses you were told that you would go into a foreign land where you would be enslaved and suffer for four hundred years. Then you would come out expanded a hundred-fold greater than what you were before the play began. That's the purpose of the play. We entered death's door with the Christ seed, to lie down in our grave and experience visions of eternity. This we are doing. These eternal visions (eternal states) are parts of the play. If you leave a part another may enter it or you may return to play it again, for you travel through states just like a traveler in time and move from state to state until you reach the final state called Jesus Christ. When you enter that state you awaken in your grave and come out of the gate of your father. Looking back you see your body, which is the linen clothes your earthly mother wove for you. Everything that is recorded of Jesus is a sign. When you experience these signs they will not be gossamer, but solid reality.
+
+The Bible is an allegory whose fictitious characters have meaning, but man, unfortunately, has mistaken the personifications for persons and the instrument which conveyed the instruction for the instruction. Believe me, for what I am telling you is true. I, too, thought that these were historical characters who lived thousands of years ago, but they did not. They are characters in a play which was conceived in the Divine Mind, and are not of human composition. The play has a divine origin, and when you experience it you will bear witness to its divinity.
+
+From time to time individuals are called and sent to be witnesses. They are known as apostles. An apostle is first called out of this world to enter the heavenly world, where he is commissioned and sent. Returning to the same garment he left behind on the bed or chair, he is awed beyond measure with what he has experienced. From that moment on he cannot only preach the truth of the gospel, but is a witness to it, for he knows the difference between the thing signified and the sign.
+
+Isaiah tells us: *"The Lord himself will give you a sign. A young woman will conceive and bear a son and call his name Immanuel (which means God with us.)"* This is true, for God is with every child born from a regular conception of woman. He is its breath, its awareness. The Christ seed is there also, awaiting fertilization at a certain moment in time. And when the hour has come the individual himself comes out of himself to find signs bearing witness to God's expansion. Your birth from above is a spiritual experience, as is your son David, your ascension, and the Spirit Himself descending upon you to smother you with love, for God is Spirit. When God is born you are born as God, even though you must continue in your limited state until you take off your garment of flesh and blood for the last time.
+
+I do hope you are reading the Bible daily. I find no book comparable to it. But you will get nothing out of the reading unless you read it through the eyes of the mystic. Take my experiences with you as you read, and then you will know who Jesus, Abraham, and Isaac are.
+
+The name *"Isaac"* means *"he laughs."* Isaac was Abraham's promised son. He is the sign the shepherds were told to find as a child wrapped in swaddling clothes. You will see this sign, and as you take that child in your arms he laughs.
+
+The word *"Moses"* means, *"to be born."* Moses could not enter the promised land because he had not yet been born. It is Moses who leads you up to the one being who is yourself. I have seen that one being and I know he contains the entire universe. From a distance he appeared as one man, but as I approached I saw he contained a multitude of nations, races, and people. Now I know that all that I behold, though it appears without it is within my imagination, of which this world of mortality is but a shadow. Truly the world is nothing more than yourself pushed out. And in the end you come out to discover you are that one Man who contains eternity - the one Being spoken of as the Lord Jesus Christ.
+
+I wish I could convince everyone that there is only one true gospel of Christ. Mankind is redeemed, not going to be. It is already done. If you are not there yet it doesn't mean you aren't going to get there. Nothing can prevent you from reaching your destination and having the experience, because the drama is over. It has been accomplished. Christ is risen, so mankind is already redeemed and no one can be lost. We are told that the Lord hardened Pharaoh's heart. If the Lord did it, Pharaoh had to do what he did, for it is a part of the play. On a certain level you can't understand, and like Job you will want to curse God and die, yet Job is your story. As an innocent being you are put through hell by the will of God, as told you in the 42nd chapter of Job: *"His friends came and comforted him for all the evil the Lord God had brought upon him."* No one else caused his sorrow. The dreamer puts himself through hell by his ignoble [[Dreams]], and that dreamer is God.
+
+Now that you are coming to the end, as it were, learn to alter the play. Make your world conform to your lovely concepts the same way the Father [[Dreams]] your life into being. Although you appear to be two, when he brings you to the climax you will be as one. God is your husband, your Maker who cleaves to you - his emanation, his wife - until you become one Being, one body, one Spirit, one Lord, one God and Father of all; for in the kingdom of heaven there is no room for two, only one.
+
+Now, while you are still here you have needs which must be met and perhaps desires yet to be fulfilled, so I urge you to use the law by assuming that you have them, for your [[Assumption]] is the beginning of your dream. Although your reasonable mind and your outer senses deny it your persistence will harden your [[Assumption]] into fact. I have watched it happen unnumbered times. Your noble [[Dreams]] will not interfere with the basic dream that is taking place in you, so take your wonderful [[Dreams]] and persist in them. Walk as though they were true. Try to touch them and give them reality. If you can use the sense of odor try to detect it.
+
+One night a lady decided to test me by embracing a huge bouquet of roses. She caught the aroma of the rose and completely saturated herself with it, then she dropped the thought. This lady lived in the Waldorf Towers, and when she returned to her room the following evening she discovered three dozen roses had been placed there. It appeared that the Queen Mother was in New York City and had attended a banquet in her honor. Special roses were grown and [brought] there for her pleasure. The next day the maitre d' sent three dozen roses to this lady's room. She put her sense of smell to the test and within 24 hours her room was filled with roses.
+
+I don't care who you are, I invite you to take the challenge. In the 13th chapter of 2 Corinthians you are asked this question: *"Test yourself and see. Do you not realize that Jesus Christ is in you? Unless of course you fail to meet the test."* Test God's power and God's wisdom, for encased in love you are testing the Christ seed within you. You can take anything and test this power. Do it just for the fun of it. Hold a long-stemmed rose in your hand. Touch its velvety petals and smell its heavenly aroma. Make a pledge to yourself that you will live by your imagination, for God has promised that you can assume a state and it will become a fact in his words: *"Whatever you desire, believe you have received it and you will."* It can't be stated any clearer than that. These are the words of an awakened man who is God, for every man who awakes in Jesus Christ is God, He who is forever extending himself.
+
+So when you know what you want, construct a scene which would imply that you have it. Enter the scene by touching the articles there, listening to the sounds that may be heard, seeing with your spiritual eye, and smelling its odor with your spiritual nose. Bring all of your senses to bear upon the scene implying the fulfillment of your dream. After you have done it persist in the awareness that your desire is already a fact, for the present moment does not recede into the past, but advances into the future to confront you. You will walk into your future and confront the fulfillment of your desire, which began as a dream.
+
+You may think your yesterdays are in the past, but God knows you will meet them in the future, for your future is always confronting you and bringing in the harvest of what you are doing now.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Misinterpretation of Scripture
+- Many preachers mistakenly see personifications in the Bible as actual individuals.
+- Graduates from Catholic colleges often see the Bible as secular history, rather than literature.
+- Names in the Bible represent the essential nature of their bearers.
+- The revelation of God's name progresses from El Shaddai to "I AM" to Father.
+- Jesus should be understood as a representative of eternal states, not as a historical figure.
+
+### Understanding Scripture as Allegory
+- The names in the Bible are personifications and should be understood symbolically.
+- Lewis Carroll's "Alice Through the Looking Glass" illustrates the possibility of seeing beyond the conventional reality.
+- The dreamer within is God, who [[Dreams]] the various parts of the play and is present in each character.
+- The Bible is an allegory with divine origins, and experiencing it reveals its divinity.
+
+### The Nature of Christ and Salvation
+- Apostles are individuals who have experienced the heavenly world and are witnesses to the truth.
+- The birth of Christ is a spiritual experience, and every child born has God's breath and the Christ seed.
+- The play of life involves moving through states until reaching the final state of Jesus Christ.
+- The play has a predetermined conclusion, and all of mankind is already redeemed.
+- Personal desires can be manifested through the use of imagination and [[Assumption]].
+- The present moment is always advancing into the future to bring the fulfillment of desires.
+imagination and [[Assumption]].
+- The present moment is always advancing into the future to bring the fulfillment of desires.
+sires.
+
+
+
+#Assumption #Dreams

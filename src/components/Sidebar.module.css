@@ -1,0 +1,93 @@
+.sidebar {
+  width: 320px;
+  height: 100vh;
+  position: sticky;
+  top: 0;
+  overflow-y: auto;
+  border-right: 1px solid var(--border);
+  display: flex;
+  flex-direction: column;
+}
+
+.header {
+  padding: 2rem 1.5rem;
+  border-bottom: 1px solid var(--border);
+  background: linear-gradient(180deg, rgba(212, 175, 55, 0.1) 0%, transparent 100%);
+}
+
+.title {
+  font-size: 1.25rem;
+  font-weight: 600;
+  color: var(--accent-gold);
+  margin-bottom: 0.25rem;
+  letter-spacing: -0.02em;
+}
+
+.subtitle {
+  font-size: 0.85rem;
+  color: var(--text-muted);
+  text-transform: uppercase;
+  letter-spacing: 0.1em;
+}
+
+.nav {
+  padding: 1.5rem 1rem;
+  flex: 1;
+}
+
+.treeList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+}
+
+.dirNode {
+  margin-bottom: 0.5rem;
+}
+
+.dirLabel {
+  display: flex;
+  align-items: center;
+  font-weight: 500;
+  color: var(--text-primary);
+  margin-bottom: 0.25rem;
+  font-size: 0.95rem;
+  padding: 0.25rem 0;
+  opacity: 0.9;
+}
+
+.fileNode {
+  margin-bottom: 0.2rem;
+}
+
+.fileLink {
+  display: flex;
+  align-items: center;
+  color: var(--text-secondary);
+  text-decoration: none;
+  font-size: 0.9rem;
+  padding: 0.35rem 0.5rem;
+  border-radius: 6px;
+  transition: all 0.2s ease;
+}
+
+.fileLink:hover {
+  background-color: var(--surface-hover);
+  color: var(--text-primary);
+}
+
+.folderIcon, .fileIcon {
+  margin-right: 0.5rem;
+  font-size: 0.9rem;
+  opacity: 0.7;
+}
+
+@media (max-width: 768px) {
+  .sidebar {
+    width: 100%;
+    height: auto;
+    position: relative;
+    border-right: none;
+    border-bottom: 1px solid var(--border);
+  }
+}

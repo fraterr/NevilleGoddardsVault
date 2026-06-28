@@ -1,0 +1,122 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Battle Of Armageddon
+keywords: [Assumption, Dreams]
+bible_ref:
+tags: lecture
+topics: [Your Imagination and the World, The Battle of Armageddon, Neutrality and the New Idea, The Symbolism of the World, Personal Awakening and Transformation, The Door to Heaven, Personal Application of the Law, Conclusion, Conclusion]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+Your true environment is in your imagination! All that you behold, though it appears without, it is within, in your imagination - of which this world of mortality is but a shadow. No matter what is taking place on the outside, it is but a symbol telling you what is taking place within; for the world is nothing more than yourself pushed out. Its image, alive in your imagination, overwhelms you. 
+
+Tonight let us turn to the greatest of all books, the Bible. In it we are told that at the end of the world there would be a great war whose final battle is called 'Armageddon'. You may have been taught that this battle will take place on the outside, as races battle races, and nations battle nations. It doesn't mean communism against democracy or socialism against capitalism. There will always be wars and conflicts; but the battle of Armageddon is the battle of ideology. This battle does not take place on the outside, but within each and every individual.
+
+If you really understood what was taking place and knew your scripture, you would rejoice at the unrest on the outside. *"Do not think that I have come to bring peace on earth. I have come not to bring peace but a sword; to set a man against his father; a daughter against her mother and a daughter-in-law against her mother-in-law, for a man's foes are those of his own household."* This certainly does not mean our children will be pitted against us, but that the true understanding of the Word of God is pitted against the traditions of men. Living by structures built by tradition, we have believed that by them we could earn the kingdom of heaven and acquire merit. But when one who has experienced the story of God tells you that the life of Jesus Christ is everyone's spiritual autobiography, this truth causes a conflict within the individual - and that is the battle of Armageddon.
+
+Neutrality is impossible. You cannot attach the new cloth to the old; it is all or nothing. You cannot put the new wine you are receiving into the old bottle, by being willing to go along with this new idea to a certain point, but not being willing to give up your belief in an external God, to whom you bend your knee and cross your body when you stand before what represents him on the wall. So the battle rages until the story of Jesus Christ unfolds within you; and then the war is over, for from that moment on you will have no other god, only he whose name is I AM. I tell you: the story of Jesus Christ is your spiritual autobiography. One day his story will unfold within you and you will know there is no other, only God.
+
+Today when you see the disturbance the young people are causing - not only in our country but all over the world - see it as a symbol of the tremendous eruption of truth taking place in the hearts of men. It is not just confined to this platform, for the picture is worldwide. There is an enormous eruption of truth against the entrenched traditions of men going on right now, even in atheistic Russia and in lands which are not considered Christian; but truth is not confined to space or time. Truth is only confined to God.
+
+Religion, in the true sense of the word, is devotion, and at times an exalted reality for the one experiencing it. When you have experienced scripture, you will never again return to your little bottle. Our world is filled with men who are supposed to speak the word of God, yet are deeply involved in the shadow world. They are telling our government what to do and how to do it, not telling the individual about God's promise to give himself to the individual in a literal sense. I tell you: God is going to give his son to you; and because he and his son are one, he gives you himself. Believe me and hope for your eruption now, for when it comes, you will realize that everything which appears to be taking place on the outside, is nothing more than a shadow, cast by God. So when you see the young pitted against the old, rejoice, for they are fulfilling scripture. We may resent being taxed to rebuild the buildings the young burn down, but the eruption is taking place in us as the new idea replaces the old.
+
+No more will I be bound to an external God. I no longer believe in an external Jesus Christ, for the Christ in me who is my hope of glory, awoke and unfolded his story - not as another for me to observe, but as myself. He redeemed me by becoming me, to the point where everything said of him I have experienced. That is the new idea which has replaced my old concept that I learned from my mother, Sunday school, and church. I lived by that structure until one day I knew it was not truth. Then the battle between truth and error began. It may seem to be on the outside, but it is all taking place within.
+
+He comes, not to bring peace but a sword, and he is followed by the armies of heaven. From his mouth a sharp sword is issued. It is the sword of the Spirit, which is the Word of God. He does not bring a sword to chop people's heads off with. The sword is only a symbol. When John the Baptist was beheaded, John - wearing everything that is external to man - died, and the Lord Jesus Christ rose in his place. When your head is symbolically removed, you have received the sign that you no longer give power to external things. Then the inner you will rise and supplant your outer self. The rising of this inner you has a disturbing influence, for everything you believed in and bowed to on the outside must die.
+
+Formerly I worshiped a man because he was known, rich, or intelligent; then I discovered that the one who is the Being of beings, the God of gods, was my very self. Then He began to awaken in me, as I learned to overcome everything external to myself. And as I did, I realized that I was the cause of the phenomena of my life. I accepted this fact one-hundred percent and he fulfilled his promise: *"To him who conquers I will give the Morning Star."* Then he identified himself as the morning star, saying: *"I am the root and the offspring of David. I am the bright morning star,"* the symbol of the new day and immortality. When God reveals himself to you, as you, your world changes; and when your little garment which has housed the old beliefs, is taken off, it will be for the last time. Then you will be clothed in the new man, as the man who rose from within and repeated the entire story of the Lord Jesus Christ, in detail.
+
+Armageddon is not a place in the battlefields of the world. Battles are fought as the new supplants the old. America is a new nation compared to Europe and has now supplanted the old powers. That was one grand eruption. Today, America is the mightiest power in the world of Caesar; but in the midst of it we find the young pitted against the old. In the 10th chapter of the Book of Matthew, he begins with a man against his father, then a daughter against her mother, and a daughter-in-law against her mother-in-law, as the young try to dislodge the old. As this happens in you, the world will reflect your conflict.
+
+Everything must be interpreted as a symbol, in this world as well as in your dream world. A lady shared this dream with me recently. In it she had a twin sister who died. Loving her twin so much, she pretended she was her; thereby receiving her mother's affection; yet she knew the role she had assumed. This is a perfect story of scripture. Jacob supplanted his brother Esau in the affection of his father. Coming second, Jacob thought his father would love the first-born most, not knowing (as the world does not know) that the first-born of every creature is the same first-born, but the firstborn from the dead is seen in the order of events, rather than in time.
+
+Everyone within whom the story of Jesus Christ erupts is the firstborn. No one comes before you, because Christ is first. He is the head, and if Christ unfolds within you, he supplants the body you wear, which came into the world first. The physical is first. The spiritual comes second and supplants Esau - the outer man. Jacob - the inner, smooth-skinned man - is spirit. And the Lord loved Jacob and hated Esau. The outer man must be discarded, because flesh and blood cannot enter the kingdom; so the inner man must be born. And when he does, he is the first-born from the dead in the order, rather than in time.
+
+The one who is to be born of the spirit must first be awakened. Coming out, he is the one the lord loves, because he is one with him and is given the bright morning star. God, himself, is the bright morning star who gives it - so God gives himself! And there is no one but God from then on, as you control all; and when you take off this garment of flesh, you are one with the God who runs the entire show. Seen from above, this conflict is not disturbing; rather it is a time for rejoicing, for the eruption of truth has begun in the hearts of men. But on this level, as a tax payer, you may resent the burning of buildings and the inability of those who desire an education to get it, because of a small group who do not know what they are doing.
+
+They are only symbols, playing their little games; so Father forgives them; they are only a symbol of the eruption which is taking place in the hearts of men. There is always a remnant erupting, and the symbol of this eruption appears on the outside.
+
+Now another lady wrote of a dream which disturbed her. In the dream she was leaving her husband and moving to a new apartment two miles away. Then the scene changed and she found herself in the new apartment, completely furnished with all of her possessions. As she awoke she realized that the apartment - although having appeared to be three-dimensional and real - was only a dream. This is a wonderful experience. The dream does not mean you are going to leave the man you love here. Take the symbolism of it: Your true husband is God. You are told in the second [chapter] of Genesis: *"A man shall leave everything and cleave to his wife until they become one flesh."* That's what you did. You moved into an entirely different state. 
+
+The first creative act was motion: *"The Spirit of God moved upon the face of the deep."* As God moved, everything erupted, and the world became visible. You moved into the awareness of your true husband, which is the Lord God Almighty, whose symbol is your earthly husband, who you love and share your world with. You moved within yourself into the real union with God, who is your husband - as told us in the Book of Isaiah: *"Your Maker is your husband, the Lord of Host is his name."* You have now moved into a real relationship with the God within you, who left everything to cleave to you. And you have discovered the great secret of moving from state to state. You will find that your love for your earthly husband will grow stronger. When you first met, you were fired by sex, and - if the love has maintained as it was prior to the union - when sex fades, you will find your relationship growing deeper. You will be more concerned for each other, as a deeper love takes over. Now, the motion took place within you, and you have moved from what is a relationship in this world, to a spiritual relationship, as the story of Jesus becomes your spiritual autobiography.
+
+Do not look at the conflict on the outside as terrible; rather see it as a symbol. Rejoice when you see the youth pitted against the old, as it signifies that the Word - which is the sword of the Spirit - has erupted; and the armies of heaven are on the march, as the Living Word which unfolds within man, interprets the external word of the letter. The outer world - like the letters in the Bible - is dead, and remains so until something that is alive gives it life. Only when that which is life itself erupts, does the Bible's dead letter become alive. I have experienced scripture, and when I see the conflict, I know that many have accepted my words and are experiencing them. As long as I wear this mask I do not know where they are, but I do know they are telling the story of salvation from experience. That is the only thing that can inflame the mind.
+
+The traditions of men are only dead letters. Our clergy are not telling the word of God, they are too involved in politics, thinking they can buy off the eruption with money. You can't stop ransom or blackmail, but you can tell the story of Jesus Christ from experience - but the clergy do not know it. If they heard what you have tonight, they would think my words were blasphemy; yet I am telling you what I have experienced, while they speak from theory. That is all right, for they are part of the story. *"For the sake of the traditions of your fathers you have made void the word of God."* Religion has created saints out of nothing, for they never existed. Now something is happening to force them to confess to their nonexistence, even though they have made hundreds of millions of dollars in the selling of these little icons. They will still sell them, because there are people who will still want their little so-called protection based upon the outside. But you don't want them; that's why you are here. You are willing to believe the drama is unfolding in you and not on the outside. So when a horrible blow hits your heart, try to see its symbolism, as everything in the outer world is a symbol. Why and how did it happen and what does it mean? What is the significance of the thing that happened? Just like a dream, everything has some significance, for God is speaking; therefore you would listen attentively and try to understand what he is saying in symbolism.
+
+I received another lovely letter with about twenty or twenty-five [[Dreams]] in it. I couldn't even summarize the [[Dreams]] because they differ, but I can tell her that they are perfectly marvelous. They are all adumbrations, foreshadowings of the story that will erupt within her when she discovers that she is Jesus Christ. In her [[Dreams]], Jesus still seems to be another, and that's an adumbration, like the story in 2 Kings concerning Elisha, who said: *"Give me a double portion of your spirit"* and the Lord replied: *"When I depart from you, if you see me you will get what you ask for. If you do not, you shall not have it."* Then fire separated them and Elijah went up in a whirlwind. That's an adumbration, for the Word must erupt within you first, before you can understand the story of Elijah. It is said that fire separated them. May I tell you: it is a fire. In the 14th chapter of Zachariah we read that the Lord stands on the Mount of Olives, as it is split from east to west, with one-half moving northward and the other half southward. You are the Mount of Olives the Lord is standing on, when you are split to discover your true identity as golden, liquid light. Fusing with that light, you will go up into heaven in a whirlwind motion as a fiery serpent. The fire that separates you is the bolt of lightening which cuts you in two from your head to the base of your spine; but who could understand this until it was experienced and dramatized as the evangelists did. 
+
+It is still a closed book to those who have not experienced scripture, but it will be understood by those who are drawn by the one who had the experience. I have shared my experiences with you, in the hope that in the not distant future you will individually experience the entire story of Jesus Christ. So when you see the unrest today, rejoice that the young is now pitted against the old. And remember: the conflict is in your imagination. Although I have overcome the world, as the drama has proved, I may find myself listening to the radio or watching television and get involved. I do it by forgetting and coming down into the nonsense in this world. Then I must get back up on the mountain and see it as symbolism, telling me what is happening within.
+
+The eruption will not go on forever. It only lasts for a certain length of time and then the door to heaven is closed once more. The door does not remain open, but only opens at intervals of time. Blake says it is every two hundred years, but how long it remains ajar he does not say. Now you see why the conflict rages - because the door is still ajar.
+
+What I am telling you tonight could not be printed in tomorrow's paper as it doesn't make sense, but it is true. People may doubt my words and say; *"Why listen to him, the man is mad and has a devil."* But I say to you: *"I am not mad and I do not have a devil, for what I tell you is true. I speak not of my own accord, but as the Father speaks to me."* I have actually experienced the entire drama recorded in scripture, and have shared my experiences with you. With my limited background, you may question how I have such learning; but the words are not mine, they are the words of him who sent me - and he who sent me is God. He is my Father. I know my Father and you know not your God. I may be considered mad by some, because my background can be checked; yet I dare to claim I am the son of God and I and my Father are one. So when you see me you see him who sent me. I was sent by my Father, and - knowing the Old Testament - I have shared with you my spiritual interpretation of its dead letter; for the entire scripture has unfolded in me.
+
+Armageddon is the battle of ideologies, where belief is pitted against belief. I can't tell you how shocked I was to discover that the Christ to whom I prayed was within me. Scripture teaches, *"Christ in you is the hope of glory,"* but I didn't take that statement literally, for I was taught to look for Christ on the outside. I could find no conflict in that Christ.
+
+I was seventeen when I left Barbados, and every night during those seventeen years I did not have the guts to go to bed without getting down on my knees and praying, as my mother had taught me. I could not break that habit for quite a while after I came to this country. Can you imagine the shock I felt, having been trained to kneel and pray to an external God, to find he was within me as me? I could hardly believe it. I know my past and am well aware of how unlovely much of it was. I knew the thoughts I had entertained, the emotions that were mine, the words that I uttered; and to think that all that could be the house in which the perfect one who was never tarnished has unfolded, was a shock beyond measure. But now I know I am He, although I still possess the memory of the outer garment I wear, which clothes me while I am here.
+
+I cannot tell you of the shock that comes when all of the beliefs by which you have lived come tumbling down. You will no longer be able to turn to anyone on the outside to praise or blame for what is taking place in your world. If it is unlovely, you are its cause. If it is lovely, you are its cause. Everything unfolds within you, and you are detached from what takes issue; yet you know you are its cause, for as the word of truth erupts within you, it sets one against the other. The word is not confined; but when it comes - as it has in me - I bring the new wine which the old bottle cannot contain. The old garment of belief is ripped and you cannot put a new patch on an old garment. As the world erupts around us, we may wonder what is taking place and ask ourselves if we have lost control of our children, as they are so different now. 
+
+We can say all kinds of things, justify our actions and beliefs - that is our right. On occasion I find myself sucked into the same stream and pass an opinion not based upon the truth that has erupted within me; so I can't judge another. I can only say; when you see these things, rejoice, for He has come. His coming brings a new idea, which will disturb the traditions of men; and - living by man's traditions - you will see the disturbance on the outside, but it is in you.
+
+The world reflects this disturbance, and those in the world are being led like sheep to the slaughter. Yet in the hearts of those who observe it from above, it is cause for rejoicing, as they wait only for the eruption of God's immortal plan. Jesus Christ is this immortal pattern of salvation. Its eruption in man causes an eruption in the outer world, as the young is set against the old, and the new conflicts with the traditions of men.
+
+In the meanwhile, take what you know of this law, and use it towards your own personal good fortune in the world of Caesar. It's simple. Go to the end and assume the feeling of the wish fulfilled. Don't ask anyone to help you. Ask no one if it is right. If you like it, assume you have it. Remain faithful to your [[Assumption]], and that Being who is going to erupt in you will take you to that end. If you find yourself moving from your fulfilled desire, go back to it, and once more assume the feeling of the wish fulfilled. Do this and your [[Assumption]] will harden into fact.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Your Imagination and the World
+- Your true environment is in your imagination.
+- The world is a reflection of what is happening within you.
+- The battle of Armageddon takes place within each individual, not externally.
+
+### The Battle of Armageddon
+- The battle is not between races or nations, but between ideologies.
+- The conflict is between the true understanding of God's Word and the traditions of men.
+- The battle is symbolized by the unrest seen in the world today.
+
+### Neutrality and the New Idea
+- Neutrality is impossible; you must fully embrace the new idea.
+- The battle ends when the story of Jesus Christ unfolds within you.
+- You become one with God and there is no other god but God.
+
+### The Symbolism of the World
+- The disturbance in the world is a symbol of the eruption of truth in the hearts of men.
+- Everything in the external world is a symbol that speaks to you.
+- Interpret events as symbols and try to understand their significance.
+
+### Personal Awakening and Transformation
+- The story of Jesus Christ is your spiritual autobiography.
+- The conflict and eruption of truth within you lead to personal transformation.
+- Discovering your true identity as Christ leads to a spiritual relationship with God.
+
+### The Door to Heaven
+- The eruption will not go on forever; the door to heaven opens and closes.
+- The conflict in the world is a sign that the door is still open.
+- Understand the symbolism and listen to what God is saying.
+
+### Personal Application of the Law
+- Use the law of [[Assumption]] to achieve your desires.
+- Assume the feeling of the wish fulfilled and remain faithful to it.
+- Your [[Assumption]] will become a reality if you persist in it.
+
+### Conclusion
+- Embrace the battle of Armageddon within yourself.
+- Find joy in the unrest as it signifies the eruption of truth.
+- Experience the story of Jesus Christ within you and transform your life.reality if you persist in it.
+
+### Conclusion
+- Embrace the battle of Armageddon within yourself.
+- Find joy in the unrest as it signifies the eruption of truth.
+- Experience the story of Jesus Christ within you and transform your life.r life.
+
+
+#Assumption #Dreams

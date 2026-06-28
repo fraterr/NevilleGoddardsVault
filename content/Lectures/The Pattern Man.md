@@ -1,0 +1,231 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Pattern Man
+keywords: [Assumption, Prayer, Meditation]
+bible_ref:
+tags: lecture
+topics: [The Pattern Man, The Significance of Jesus and Christ, God's Suffering and Redemption, Meditation and Prayer, Witnessing the Pattern Unfold]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+Tonight’s subject is *"The Pattern Man."* Paul, in his final letter to Timothy, -- when he felt that he was about to depart this world, he wrote Timothy, and he said: *"Follow the pattern of the sound words which you have heard from me. Guard the truth which has been entrusted to you by the Holy Spirit who dwells within us."* [II Timothy 1:13, 14]
+
+Paul’s Letters were written twenty-odd years before any other part of the New Testament. The earliest Gospel is Mark; that came twenty-odd years after the Letters of Paul. It was in Paul that the entire story unfolded itself. Paul said: *"When it pleased God to reveal His Son in me, I did not confer with flesh and blood."* [Galatians 1:16,17] To whom would he turn? And he spent his last days, as told us in the Book of Acts, expounding the matter to them [Acts 28:23], *"trying to convince them about Jesus, then from the law of Moses and from the prophets. And some were convinced by what he said, while others disbelieved."* [Acts 28:23,24]
+
+He found the Pattern. Like every one, we are looking for a man, -- some strange being coming out of space to save humanity; and he was one of those who looked for a man. Then he found it was not a man, but a pattern that was buried in man; that God had prepared the way for His sons to return, and the *"way"* is buried in man as a pattern.
+
+When that pattern unfolded in man, then the one in whom it unfolds realized Who the Coming One really was.
+
+If you take the 39 books of the Old Testament; although they are written across the centuries, they form one book, and events that are widely separated in time are welded into a pattern, and that pattern unfolds within the individual, forming what we call in Scripture *"Jesus."* Jesus, then, is the pattern. I call Jesus the Pattern Man.
+
+The first one to use the word *"Jesus"* is Paul. The first one to use the word *"Christ"* is Paul. He speaks of Jesus Christ. Well, *"Jesus"* has the same root as the word *"Jehovah,"* -- the Lord God Jehovah, the same root as that of Jesus; and the word *"Messiah"* and the word *"Christ"* are one and the same. So, when he speaks of Jesus Christ, he is speaking of the Lord God Jehovah and His Messiah.
+
+Now, where did he find it in the Old Testament? In the Second Book of Samuel, the 7th chapter, we read these words: *"Go to my servant David, and say to David, “When your days are fulfilled, and you lie down with your fathers, --’"* which is a euphemism for *"Death"* -- when you are dead and you are buried with your fathers, your forefathers, *"‘I will raise up your son after you, who will come forth from your body, . . . I will be his father, and he shall be my son.’"* [II Samuel [7:12,14J
+
+Here He tells David that He is going to raise up a son that will come forth from his body, and that He the Lord will be the father of that boy. That son will call Him *"Father."*
+
+Now, everyone was looking for the physical descent of someone called David, because they did not understand the great mystery of Scripture. David symbolizes Humanity. The whole vast world of man is symbolized as David, and he will raise up out of man That which will be the Son of God.
+
+Well, you are a man. I am a man. Regardless of our sex, generically we are all Man, whether you be male or female; so, I will raise up out of Man a son that will come forth from his body, but I will be his father, not the man out of which he is raised! I, the Lord, will be his father.
+
+Well, how on earth would you know this unless it happened to you? You can hear it from others, as they heard it from Paul, -- as you are hearing it from me. In the early church Paul was known as the Apostle, -- not just an apostle, but the Apostle, as though there were no others, because Paul -- whoever Paul was; but Paul is that state that everyone must reach. When he reaches that state called *"Paul,"* then it happens in him, and he is sent to tell it. So, he tells it, hoping to convince those who will listen to him, concerning this great mystery. *"And some were convinced by what they heard, while others disbelieved."* [Acts 28:24] He used Scripture to persuade them. He showed them in Scripture what he really meant. As it unfolded in him, then he took Scripture, and this is what it meant. For in me something was raised, but it wasn’t another; it was myself. I found myself buried in myself. When I rose in myself, I came out of this thing you call a man; so the son was raised out of man, which is David. Now, that which came out is my very Being! I came out.
+
+And then in time -- in the not-too-distant time after coming out, here I found Humanity personified as the David out of which I came. And Humanity then became my son, but I then was the Father. He simply raised up Himself out of Man. It was the Father who was buried in Man. He raises up out of Man Himself. So that man who was raised can say, I and my Father are one.” [John 10:30]
+
+So, *"when you see Me, you see the Father,"* for: *"I and my Father are one."* [John 1O:3O] We are not two. First there is a father and then a son, and then it is David. -- The whole of humanity personified will come out as David.
+
+So, the pattern is buried in man, and God has prepared the way through that pattern for Himself to return. It was God Who came down into humanity. It is God who actually became as we are, that we may be as He is, because it is God who is buried in man.
+
+Now you may say: *"Will he suffer as I have suffered?"* Well, we are told in Scripture: *"He took our infirmities and bore our diseases."* [Matthew 8:17] Well, someone said to me: *"After all, he bore my disease, and he took upon himself my infirmities? It is I who suffer. I am suffering -- not any other."* And they repeated it: *"I am suffering."* Well, who do you think God is? What is His name forever and forever? Is it not revealed in Scripture, *"My name forever and forever is I AM"* [Exodus 3:15]? And when you go to the people of the world, called Israel, and they ask you: *"What is His name?"* say to them: *"I AM. That is who I AM. This is my name forever."*
+
+So, you say that you are suffering, and not God? You have a false god when you say, *"I am suffering, but He is not."* Who is He? His name is I AM. He isn’t pretending that He is you. If He pretended that He is you, that would be God masquerading under a veil of flesh -- masquerading as a man. He’s not masquerading as a man; He became man -- actually became as you are, that you may be as He is.
+
+So, when He raises up His son through the body, it is you that He raises. And to show you that you are God, He has one more marvelous experience. There are four Mighty Experiences: The first one, He raises up in you as you. That one is simply one side of the coin. The same night that you awake within yourself is the night that you are *"born from above."* As you are told in Scripture, *"You cannot enter the kingdom of heaven unless you are born from above. You must be born again."* [John 3:3] So, that is told you.
+
+So, the first night that you awake within yourself, that same night you are *"born from above."* Then He unfolds in the next great drama which comes about 139 days later -- in my own case it did; so I would say approximately five months later this thing happens, when actually you realize what came out. He raised himself, because it is God.
+
+If God is a father, then God has a son. Then you find His son; and in finding His son as your son, -- now you know who He raised up. At first you are aware of being John, if your name is John. And that’s who came out. Then, five months later, when He raises up now His son and you are the father of that son, then you know who actually He raised. He raised Himself as you!
+
+So, there is only God buried in Humanity; therefore there can only be God to be raised. And if God is a father, He has to raise up His son; so the son is made to say in Scripture, *"Thou wouldst not leave my soul in hell."* [Acts 2:27] *"Thou hast redeemed me, O Lord, faithful God."* [Psalm 31:5]
+
+So, here out of man comes the meaning of His promise: *"I will raise up your son after you, when you lie down with your fathers."* [II Samuel 7:12] I will be His father, and He shall be my son! So, when you are raised up, you think then: *"Am I now the son?"* No, not yet. You are the Father, but you do not know it yet; and then 139 days later another explosion of the mind, and this time He raises up the son. But He first raises Himself. You are the Self. Then He raises the son, and you are the father of that that He now raises. Therefore, you are God the Father!
+
+Every one is going to experience it! I don’t care what you have done or what you are planning to or what you are doing now; it’s irrelevant. You may have a dream that you are a billionaire, -- well, that is all right. It will all pass away. It means nothing. You may have the dream of being the greatest scientist in the world and bring something into the world completely unknown to man, and receive all the plaudits of the world. It will pass away. It means nothing. This is the only reality: God redeeming Himself. God ventured into death. This world is the world of death. Everything dies. It appears, it waxes, it wanes, and then it vanishes.
+
+Everything in this world comes in, grows, wanes, and disappears. But that which I am talking about is forever.
+
+Eternity came down into Time and buried itself in Time -- in man. And He is buried in man. Then in the fullness of time He redeems Himself through a pattern. So, Jesus of Scripture is the Pattern Man! The eternal pattern. There is no other way to the Father. He said, *"I am the way, I am the truth, I am the life; no man cometh unto the Father, except by me."* [John 14:6] There is no other way.
+
+So, when people tell me: *"Can it be in this religion, or that religion, or the other religion, or in something other than this?"* I reply: *"There is no other. There is only one way to the Father, and that way is through this Pattern Man. And Jesus Christ is the Pattern buried in every man."*
+
+Well, Jesus is the Lord God Jehovah -- God the Father. And Christ is His Son, the Messiah called David. And David calls him *"Father,"* calls him, *"My God,"* calls him, *"my Lord."* So, he said, *"How did David call me? He called me in Spirit."* *"Well, what did he call me? He called me, ‘my Lord.’"* Read it in Scripture.
+
+*"What think ye of me?"* And they answered, *"The son of David."* The son of David, -- *"Then why did David In the spirit call me, ‘my Lord’? If David thus calls me, ‘my Lord,’ how can I be his son?"* He is my son, and he symbolizes Humanity, for I, the Pattern Man, -- I am buried In every child born of woman, regardless of his race, regardless of his nationality, regardless of anything -- I am buried in every one. And in every one, in the fullness of time, I will rise, and will awaken in man as the man in whom I awaken.
+
+He will know it at that moment when I awaken in him; he will simply know that something happened. He will know that he came out of his own skull, which was to him a tomb. He came out of that skull, and he was *"born from above"*; but he is bewildered. He tries to tell others, and they have no ears to listen to him, for to them he has some strange hallucination. It’s not what they were looking for. *"So, don’t bring me any nonsense,"* they will say.
+
+Thus, he spent every day from morning to evening just simply expounding the matter to them, trying to testify to them concerning the Kingdom of God, trying to convince them concerning Jesus. [See Acts 28:23] Well, they never heard of Jesus, for the word *"Jesus"* came into the language only through Paul. But he knew *"Jesus"* meant *"Jehovah."* He’s trying to convince them of the reality of this Self-existent Being called Jehovah. He named it *"Jesus."* YOD HE YAU is the root of it. And then some were convinced by what he said, because he used Scripture. Well, the only Scripture he could have used in those days was the Old Testament, for there was no New Testament. The first books of the New Testament are the 13 Letters of Paul, and they preceded the next book of the New Testament by at least twenty-odd years, which is the Gospel of Mark. That book was written twenty-odd years after these Letters of Paul. And Paul’s first letter is Galatians.
+
+In Galatians he tells us, *"When it pleased God to reveal His son in me --"* The preposition is *"in,"* not *"to,"* -- but *"in me."* *"-- I did not confer with flesh and blood."* [Galatians 1:16] To whom could I turn? A Freudian? To one who studied with Jung or one who studied with Adler? What could they tell me? What on earth could any man in this world tell me if he is going to rationalize based upon his concept of Jung or Adler or Freud or any other doctor? They do not know. Well, here, the whole thing is buried in man.
+
+So, just imagine someone who knew his Old Testament backwards, he had committed it to memory, he knew it; a learned man was Paul. And then he studied and studied but couldn’t find it. He couldn’t find the answer as he studied it. But, then, it erupted within him. That tree had never yet borne fruit, and suddenly the Tree of Life began to unfold within him, and the fruit unfolded within him. Well, he is the Tree of Life, and he is bearing fruit, -- he is bearing a son; and the son is Humanity calling him *"Father"*.
+
+I say to you, what I’ve told you tonight and will continue to tell you to the ends of time, -- I see no other reason for my being here, other than to tell my experience. I was sent, as he was sent, -- whoever he was. He was called by the word *"apostle"* because he was sent. That is what the word *"apostle"* means; one who is sent. You don’t volunteer. You don’t do it for yourself. You can’t send yourself. You are sent. You are called and sent. So, to be called is also to be sent. I was called into that assembly and sent. At the moment, I did not know why I was sent. I only knew I was sent. Then came the experience thirty years later. That’s why I was sent, in preparation for the experience, that I simply may take the barnacles off this ship and set it once more straight, even though there are only a few to hear it. What does that matter? There were only a few who heard him, if you read Scripture carefully, -- just a few.
+
+At the end of his days, he spent the time in his own little home from morning till night; and those who would come, he simply took Scripture and showed them where what happened to him was foretold In Scripture. But no one reading Scripture could have seen it that way, for trained as they were, they were looking for a man -- some unique man to come from without, and were told that, by some miraculous, fantastic way, was the leader of men, and that he would save man, -- as Hitler said he would and as Stalin said he would, and Karl Marx said he would. They were all *"outside"* saviors. There is no *"outside"* savior. The Savior is within you. He is buried within you as a pattern; and when the pattern unfolds, it is not another unfolding, it is you unfolding. He unfolds in you as you.
+
+You are the one who finds himself awakening within your own grave, which is your skull. It is you who comes out of that skull like one being born. It is you who stands before Humanity personified as the son called David, and he calls you -- not another; he calls you *"Father."* Then you read Scripture, and in Scripture David calls God *"Father,"* fulfilling what God said he would do.
+
+He said, *"I will raise up your son after you. He shall come forth from your body. I will be his father, and you [sic] shall be my son"* [II Samuel 7:12,14]; and then David is made to say: *"I will tell of the decree of the Lord: he said unto me, ‘Thou art my son, today I have begotten thee.’"* [Psalm 2: 7]
+
+So, the whole thing unfolds, and you go back and read Scripture -- you have read it before. How on earth could any man ever have understood it until in the fullness of time it unfolded within him? When it unfolded in a man, that man knew what Scripture intended all along. Then you tell it to those who are still looking for some external savior, and they are still looking for him; so they turn their backs upon you, and they will not believe you.
+
+This is a repeated pattern over and over and over. Some believed -- a few believed, but others disbelieved. I’ll find that until the ends of my days. He returns to Timothy and tells Timothy to *"follow the pattern of the sound words --."* [II Timothy 1:13] He took the entire 39 books and events widely separated in time, and he brought them together to form the pattern. He found some in the early parts of Genesis, and then some in the Book of Samuel; then he found some in the Book of Psalms, in Jeremiah; he took these patterns and wove them together, and they all unfolded within him.
+
+There was a promise in the beginning. He found that in the early parts of Genesis. He promises a child -- a child that would prove something. That’s the son coming, just a son. Then he tells you: *"Here’s another sign: As Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up."* That is in the Book of Exodus. And, then, that happens to you. *"To me in this same manner?"* Yes, it’s going to happen to you.
+
+It happened to me. Like a fiery serpent I was lifted up; and here is something that recorded it thousands of years ago. The whole thing is contemporary. It is an eternal drama that is taking place. One is drawn into that eternal drama, and then it unfolds within him.
+
+I like to repeat it in this manner: If you can conceive of an action -- a simple action that is forever taking place, like an eternal command, -- something to be done absolutely and continuously. It’s like -- well, the imperative passive mood; something that is done absolutely, but at the same time continuously, without reference to the completeness of the action or the incompleteness of the action, without reference to its duration, without reference to its repetition, without reference to its position in time. It is simply taking place in Eternity. And then you are drawn by this like a magnet; and as you are drawn into it -- because it is a simple act talked about in Scripture, the action unfolds within you, for it is already in you. You are drawn into it, and it unfolds within you. You are the one having the experience.
+
+You don’t see it as something on the outside. You are experiencing the action. And when the whole thing unfolds within you, you go back to Scripture, and then you see that this is what was said anyway. This is what was prophesied would happen, but you thought it was going to happen to another.
+
+I thought it happened two thousand years ago to one called Jesus. Now I see that Jesus is a pattern. Jesus is the Pattern Man buried in every man; and when that pattern unfolds in man, man is Jesus! Well, Jesus is the Lord, -- the Lord God Jehovah. So, there is no room for another god. There is only God.
+
+So, when asked, *"What is the greatest commandment in the world?"* he replied: *"Hear, 0 Israel. The lord, our God, the Lord is one. There is no greater commandment."* You can’t have two gods -- only one. But one God becoming us unfolds in us, and we are that one God! So, in the end, we are all one; for if the same son calls you *"Father"* that called me *"Father,"* are we not one?
+
+You are not going to have another son. You are going to have the same son -- the identical son calling you, *"Father."* Well, if he calls you, *"Father,"* and he really is your son, and he has already called me, *"Father,"* and I know he is my son; then you and I, though we differ in identity, -- we still are one. We simply are only one. *"Hear, 0 Israel, the Lord, our God, the Lord is one."*
+
+There can’t be a second god, or other gods. But in the end, everyone in this world will form *"one body, . . . one spirit, . . . one Lord, . . . one God and Father of all."* [Ephesians 4:4]
+
+Now, this is far more important than to tell you how to make a million, which is a simple thing for you if you really want it and you are willing to give the time to it. Those who came here tonight, thinking that that would be part of tonight’s talk, -- then for your benefit, I will tell you a story. I have repeated it unnumbered times, but I will tell it again if you are here for that purpose:
+
+Your own wonderful human imagination is the being that I speak of when I speak of God. When I say, *"God became as we are, that we may be as He is,"* I am speaking of your imagination. And you cannot get away from your imagination. *"And by Him all things were made, and without Him was not anything made that was made."* [John 1:3] That’s your imagination.
+
+There isn’t a thing in this world that you see now and call it a fact that wasn’t first only imagined: the building; the clothes you wear; the chairs on which you are seated; this little mike; -- everything was first only imagined, and then executed. Well, if all things were made by Him, and without Him was not anything made that was made, -- good, bad or indifferent, try to find some other maker than your own wonderful human imagination. Try to find it. You may say: *"Edison did it"* -- in his imagination; *"Einstein did it"* -- in his imagination. Show me one other instrument other than the human imagination that conceived anything in this world, and that is God. *"If all things were made by Him, and without Him was not anything made that was made,"* then you conclude that He must be the human imagination.
+
+So, I tell you, your own wonderful human imagination is the God of Whom I speak! That is the Being that actually will awaken within you. But, now, to get things in this world, assume that you are. *"All things are possible to Him."* Assume that you are the man that you want to be -- or the woman that you want to be. And, although at the moment of your [[Assumption]] your reason and your senses deny it, if you dare to persist in that [[Assumption]] as though it were true, that [[Assumption]] -- in a way unknown to your rational, conscious mind -- will harden into fact. It knows how to actually build that series of events necessary to make it so in your world.
+
+If you really want to be what you call *"secure"*, -- say, in finances, dare to assume that you are secure, and live as though you were; sleep as though you were; and then it will happen in your world that will cause you to leave your present environment and move on into the state that you have assumed. If you wait for things to change before you dare to assume, you will wait forever. Circumstances cannot change of themselves. You change them by changing your concept of Self.
+
+To attempt to change the world before you change your own imaginal activity is to struggle against the very nature of things. Now, you say: *"Well, I am reaping these things in my world, and I didn’t make them."* No, -- you have forgotten the blossom time. What you are now reaping is simply the fruit of some forgotten blossom time. You have a very faulty memory. We all have. We can’t remember when we set in motion what we are now reaping as a harvest; but everything in our world was once planted as an imaginal act, and it has not a physical cause, -- it has an imaginal cause. Every natural effect in this world has an imaginal cause, and not a natural cause. A natural cause only seems; it is the delusion of a faulty memory, because man cannot remember the blossom time when he actually set it in motion.
+
+If you will try that; then if you came tonight to hear something more practical, then that is the practical side of this teaching. But may I tell you, I consider that what is most profoundly spiritual is most directly practical. For, if you really give all your attention to this pattern, *"and set your hope fully on this unveiling of The Christ you,"* it will be far more profitable than seeking to become rich in the world. If this thing should only unfold within you, then the world is yours. You don’t have any desire for the fantastic claims that people make in this world.
+
+So, if you really give all your attention to the hope, as Peter said, -- *"Set your hope fully upon the glory, upon the grace that is coming to you at the revelation of Jesus Christ."* [I Peter 1:13] If Jesus Christ is already in me, as told me in the Letters of Paul, then I can only wait for the unveiling of that Jesus Christ within me. And this is the hope that makes it wisdom to go after the burdens of this long, dark night of time.
+
+So, you find yourself in pain, find yourself limited by some infirmity for a little while; bear in mind: *"He took upon Himself our infirmities and bore our diseases."* and His name is I AM. So, when you say that I am doing it all by myself and He is not bearing it with me, remember: His name is I AM. And I AM, which is the real name of God, became as limited as you are, and now bears your infirmities and your diseases; and He does the suffering. But in the end, He will awaken in you as you, and you will be the Lord Jesus; and your son will bear witness of your fatherhood, and He is the Messiah in Scripture, as told us in Samuel and told us in the Psalms. And when you meet him, his name is David. You are the Lord Jesus, and David called you -- the Lord Jesus -- *"my Father."* He calls you, *"my Lord."* He calls you, *"my God,"* for that is the story of Scripture.
+
+Man has been completely educated out of it and he brings his prefabricated misconceptions of Scripture to a message of this nature. Well, it doesn’t dovetail with what he has been taught; therefore, he goes away saying, *"I didn’t hear it,"* or *"I don’t care for it."* He still wants his external god to whom to pray; and if his prayers are not answered, then he will say to himself that God did not think it wise to grant his [[Prayer]], -- in spite of the fact that we are told whatever we ask for will be granted. He didn’t say if it was good for you; he just said you should ask for it, but he made this statement: *"Whatever you ask in [[Prayer]], believe that you have received it, and you will."* Read it in the 11th chapter of the Book of Mark. [Mark 11:24] *"Whatever you ask, believe that you have received it, and you will."*
+
+*"If we know that He hears us in whatever we ask, we know we have obtained the request made of Him."* Read that in the First Epistle of John, the 5th chapter, 15th verse. These are statements made by the Awakened Man. Therefore, if the [[Prayer]] is not answered, you are praying to a wrong god. But if you know that the God to Whom you pray is your own wonderful human imagination, then instead of begging, you appropriate.
+
+You appropriate the state; so I call it the subjective appropriation of the objective hope. What is my objective hope? Well, I appropriate it subjectively. I *"go within"* and I simply appropriate it. I simply assume the feeling of my wish fulfilled. I appropriate it; and if my wish fulfilled were true, how would I see the world in which I live? and then do everything to make me see it as I would see it if it were: see the people in my world as I would have to see them, and let them see me as they would be compelled to see me if what I am doing is an actual external fact. If they know me and I know them, and something happens in my life that becomes public knowledge, -- well, then, they would know it. Then let them see me as they would have to see me if it were true. So, the subjective appropriation of the objective hope is [[Prayer]]. You don’t beg any one. Don’t ask anyone. You simply appropriate it. For, if He is in me, where would I go to ask Him?
+
+As we are told, *"Do you not realize that Jesus Christ is in you?"* [II Corinthians 13:5] Then test yourselves to see if you really realize it. Put yourself to the test If I say, *"Jesus Christ,"* and your mind jumps on the outside to something other than yourself, you have failed the test, for you are told: *"Do you not realize that Jesus Christ is in you? -- unless, of course,"* said he, *"you fail to meet the test!"* Well, you have just had the test. So, when I use the words, *"Jesus Christ,"* and something on the outside comes to you, you have failed the test!, for Jesus Christ is in you. If I go to Him in my [[Prayer]], where would I go but to myself? He became as I am, that I may be as He is. He actually became me. He is in me as my own wonderful human imagination, for *"by Him all things were made, and without Him was not anything made that was made,"* [John 1:3] so I go within and appropriate the state.
+
+So, the subjective appropriation of my objective hope is my [[Prayer]]. And having appropriated it, I drop it, as I would the seed into the earth. The seed must fall into the earth and rot before it can be made alive. Well, just drop it, and then in its own good time it will come into harvest. It takes an interval of time between my appropriation and its fulfillment; so having done it, I drop it, and go about my *"Father’s business"* appropriating other states -- not only for myself, but for myself pushed out,” which I call *"others."* For, in the end, there is Only One.
+
+One day we will know that you and I are one, for you must be the same Being that I am, though we are individualized, and we will remain individualized. But you must be the Being that I am, because you are the Father of my son. How on earth could you be the Father of my son and not be as I AM? So, I will know you -- know you in Eternity as who you are, a friend; I will know you as my brother, but I will also know you as God. Every one, in the end, I will know as God -- the Only God, but I will know them as my brother and know them as my friend. All will be God. Not one will be lost, -- in spite of all that is said to the contrary.
+
+There is no hell waiting for you. There is only an infinite body of Love -- an infinite body of Perfection, which one day you will wear; and wearing it, nothing can remain in your presence that is imperfect. As you walk by -- as you glide by, everything will be molded in harmony with the perfection that is springing within you. You do not need a realm called Heaven. You are Heaven. The body you will wear will be perfect, and in it presence nothing can remain imperfect. And that’s Heaven!
+
+So, if you went into the hell of hells, it would be automatically and instantaneously transformed into Heaven. So, you don’t need love; all you need is the Body of the Risen Lord within you. And when He rises within you, that body is an infinite body of Love and Perfection.
+
+So, here the Pattern, I know from experience, is buried in man. It’s the way of escape from the world of death into the world of Eternity. And that Pattern was built into man before the foundation of the world. He prepared the way for His own escape; end when the time is fully come to depart this world, as Paul said, *"The time for my departure has come. I have fought the good fight, I have finished the race, I have kept the faith. Henceforth there is laid up for me the crown of righteousness,"* [II Timothy 4:6-8] and now Paul is about to depart. But in his departure he spends his time from morning to evening expounding the matter to them, trying to convince them about Jesus, trying to testify to the Kingdom of God, and using Scripture to support his argument -- both from the law of Moses and from the prophets. And some believed what he said and some disbelieved; and everyone who comes into this same state of consciousness where the Pattern unfolds within him is going to find the same crowd, some believing and some disbelieving, until one day it happens in them; and they too will be confronted with those who will believe them and disbelieve them. And it will go on and on until the end when all are redeemed. When all are redeemed, it is by the one Pattern; so I say there is no other way of redemption.
+
+When people tell me diets will do it or [[Meditation]] will do it or this other -ism will do it, or some other savior, -- there is no other savior. The Savior is a Pattern, and the Pattern is in man, and it’s called in Scripture. *"Jesus."* There is no other way. *"I am the way, the truth, and the life."* [John 14:6] *"I am the resurrection and the life."* [John 11:25] No one comes to the Father, except by me.” [John 14:6] The one speaking in these quotations is the Pattern Man, and until this Pattern unfolds in man, he remains in the world of death. Well, when it unfolds within him, he is that which unfolds within him. He is the Lord Jesus. Jesus is the Lord God Jehovah.
+
+And because He is the Father, there must be a son; and the son stands before him, which is the sum total of Humanity with all its experiences personified, and that infinite beauty is called David. He is the David of Biblical fame, and he calls you *"Father."*
+
+Now let us go into the Silence.
+
+Last night after the meeting a lady asked me if I would touch on what I said earlier about who saw Him. He appeared first to Peter, and then to the Twelve, then to five hundred, and then to James, then to the Apostles, and finally to Paul. Well, I will touch it just briefly, for her sake.
+
+When He appears, it is simply the man in whom the Pattern has awakened. It is that man, whether you can him by a Biblical name or by any other name, -- anyone in whom the Pattern of Redemption awakes is that man called *"Jesus."* But you may know him in this world as George or Peter or Neville, or any other name. I know in my own case they must now start. It has already started. Those who see me in spirit as the Being that I am claiming that I am -- I am claiming it only because it has happened in me. I am not speculating. I am not theorizing. The whole thing has unfolded itself in me.
+
+There is a gentleman here tonight whose wife had this experience this week and wrote me this letter. She says, *"I had this wonderful experience where you gave this banquet. It was beautifully done and very formal. On your right sat one who seemed to have been, or should have been, an apostle. He was well dressed. I sat to your left. I knew the truth of what he was saying, but he was hysterical, because it struck him funnily. He told you that he had a dream that you were Jesus Christ, and then he started to laugh in a strange, disbelieving manner; and he kept on laughing as he repeated the dream that he had."*
+
+She said, *"I knew that the dream that he had was true, and in spite of the fact that it was a dream, he didn’t think it true. He disbelieved it completely. But I knew it was true."*
+
+Well, that’s Scripture. She is a lady. In the end of the Book of Luke it is the woman who comes to the Apostles, and it is the woman who said, *"He is risen,"* [Luke 24:34] and the apostles thought it an idle tale [See Luke 24.11], and they did not believe it. There’s your story. She believed it, and she was not judged among the apostles. He was judged among the apostles, the man who sat at my right, the honored position at the table, and did not believe it.
+
+The apostles named in Scripture were not sent until after. They were told, *"Remain in the city until you are imbued with power from above."* They had not yet received the gift of the Holy Spirit; so they could not be sent.
+
+So, they are coming. One after the other are coming to make that number. First He appears to Peter. Well, I told you who was Peter in my case -- a little girl 8 years old, Maylo. She was the one who saw the thing in detail. Then came others. Now they are gathering. No bragging about it. If it happened in me, it happened in me. There is not a thing I’ve done to warrant it. It’s Grace. It is a gift -- unwarranted, unearned. It is God’s gift.
+
+Grace is God’s gift of Himself to man which man did not earn. He did not merit it. It’s a gift. So, no one can brag. So, if it happened in me, which it has, I cannot brag; but I do know there must be witnesses to confirm that it did happen in me. And his wife -- he is sitting right here; his wife was one who actually witnessed it this past week.
+
+Are there any other questions, please?
+
+LADY: Yes. When you meditate, I understand you raise your chin.
+
+NEVILLE: It has no significance. If I raise my chin for one moment, it really has no significance. If I do it, I am not aware of it. I turn my attention inwards -- into my skull, and I ask no favors of any one. I simply go in. If I have nothing at the moment to appropriate, I just simply -- for the joy of looking on the inside to watch the golden clouds form. They always form like a halo around the head. It’s a simple matter, as though the whole dark convolutions of the brain grow luminous. And it takes no time for them to become luminous. So, I simply observe them. If I go for a purpose, while there I appropriate my gift or appropriate my wish. But if I raise my chin, my dear, don’t think for one second that it has any significance. So, don’t duplicate any physical action. Imitate the action in this sense: Go within. Close your eyes to the outer world. Go within, and center your entire attention within your skull. That’s where He is! That is where your True Being is.
+
+THE LADY: (A further question about meditating, and that in a class a bishop told her not to lower her head, but keep her chin up when she meditates.)
+
+NEVILLE: Well, my dear, if he said it to you and you believed it, I personally have nothing to say. I only will tell you this much: Your physical posture means nothing. There are people here in the western world who have no training for the lotus posture, and yet there are people coming from the East who insist that they get on the floor and sit right on the floor and get into a tight posture and they cannot even unlock themselves afterwards. Now, I would like to take the same Eastern man and put him into a western posture, and he won’t be able to unlock himself either! It’s all nonsense. So, I must do what the Eastern man does!
+
+He comes over here, and he came to L.A. and got $500 from each person to take a course with him. He was the *"holy of house."* So, someone asked him on TV. *"Why do you advertise yourself so? Jesus never did."* And he giggled and giggled and said, *"Well, that’s why he took so long to get started!"* And he’s a holy man! And all these people with lots of money -- well, you see, money doesn’t care who owns it; so they have fortunes and they give him $500 to teach them how to sit in the lotus posture and become holy. They are just as unholy today as when they gave him the $500, -- only he is richer. He has gone back to his little ashram in India with all of the tens of thousands that he got from the people here who were as stupid as they come.
+
+No physical posture. If you feel comfortable lying on your back, lie on your back. If you are a Catholic -- as you said, you were raised a Catholic and you bowed your head in a certain adoration, with a certain feeling of devotion, go ahead. Do anything that is to you natural. If you want to put your hands on your knee and they will remain comfortable and alert, put them on your knee. Do whatever is natural to you. But all this nonsense that you must do this, do that, -- and they all live double lives anyway. You must eat that, and you can’t eat the other thing. But don’t follow him into his little ashram, because you will see him eating what he has told you not to eat!
+
+I recall a man who was the physical culturist of the day. I am going back now to the 20’s. He was quite the boy. He had a magazine called *"Physical Culture,"* and he had all these things. He was against eating meat, and he was going to live to be a thousand, but he didn’t; he dropped off when he was 68 or so. And he did all kinds of things.
+
+Well, a friend of mine was a waiter in the rooms, and this man had a huge suite of rooms. Well, he put in his order, and my friend -- being the waiter -- carried his order. He had a steak that big; but he ate it behind locked doors. So, he had his huge big steak and all the things that washed it down, while in his magazine he said meat was anathema, -- you must not do these things. So he sold the magazines to all the people, and they believed he did what he preached.
+
+A GENTLEMAN: What does the scripture *"to one untimely born"* mean?
+
+NEVILLE; *"To one untimely born"*; that is what Paul said in the 15th chapter of I Corinthians. He meant that it came so shockingly suddenly that there was no warning of labor pains. *"One untimely born, and God revealed His son to him."* It came just like that -- as told us, *"like a thief in the night,"* -- no warning. So, let no one tell you they can see your aura and therefore you are right on the verge of it. What nonsense! I can see all kinds of auras for you if you pay me enough! So, they see this, see that, see the other. Forget all this nonsense. When it happens, it happens suddenly and unexpectedly, so that as Paul said, *"It came to me as one untimely born,"* -- because in my own case twelve years ago in this city I, too, could have said, *"untimely born,"* for here I
+
+End of source document.
+
+
+
+
+
+## Summary
+
+### The Pattern Man
+- Paul wrote about following the pattern of sound words in his final letter to Timothy
+- Paul's letters were written before any other part of the New Testament and contain the entire unfolding story
+- The pattern is buried in man and unfolds within the individual
+- The pattern unfolds to reveal Jesus, who is the pattern man and the son of God
+- The word Jesus has the same root as Jehovah and Messiah
+- The pattern can be found in the Old Testament, such as in the Second Book of Samuel
+- Everyone is looking for a savior, but the savior is within each individual as the pattern unfolds
+- The pattern is God's way to return to humanity
+
+### The Significance of Jesus and Christ
+- Paul was the first one to use the words Jesus and Christ
+- Jesus and Jehovah have the same root, and Messiah and Christ are one and the same
+- Jesus is the Lord God Jehovah and Christ is His Son, the Messiah
+- David symbolizes Humanity and God will raise up a son from his body
+- Everyone is looking for the physical descent of David, but David symbolizes all of humanity
+- When the pattern unfolds, the Father and Son are one
+
+### God's Suffering and Redemption
+- God became as humans are to redeem humanity
+- He took on our infirmities and bore our diseases
+- When we suffer, God is actually suffering with us
+- The ultimate redemption is when we awaken as Jesus Christ and realize our identity as God, the Father
+
+### [[Meditation]] and [[Prayer]]
+- The [[Meditation]] posture has no significance, and it is not necessary to imitate physical actions
+- The focus should be on going within oneself and centering attention on the skull, where the True Being is
+- [[Prayer]] is the subjective appropriation of the objective hope, and it is not about begging or asking others
+- The human imagination is the God being spoken of, and prayers should be directed to oneself
+
+### Witnessing the Pattern Unfold
+- Witnesses of the pattern unfolding are coming one after another to confirm its reality
+- Physical posture and outward appearances do not determine spiritual experiences
+- The pattern unfolds suddenly and unexpectedly, with no warning or labor pains
+- Claims of seeing auras or predicting spiritual experiences are not reliable indicators of the unfolding patternuddenly and unexpectedly, with no warning or labor pains
+- Claims of seeing auras or predicting spiritual experiences are not reliable indicators of the unfolding patternpattern
+
+
+#Assumption #Prayer #Meditation

@@ -1,0 +1,113 @@
+---
+book: 
+chapter: That Which Already Has Been
+keywords: [Revision, Dreams]
+bible_ref:
+tags: lecture
+topics: [The Great Secret of Life, "Ecclesiastes 3:15: That which is already has been", The Story of the Banished Man, The Purpose of Being on Earth, The Power of Imagination, The Influence of Imagination, Living by Imagination, The Importance of Reason and Desire, The Schoolroom of Life, The Schoolroom of Life]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+dg-publish: true
+---
+This platform is concerned only with the great secret of life. Here we are convinced that the Supreme Power that created and sustains the universe is Divine Imagining, and it does not differ from human imagination save in degree of intensity. So God-in-man is your wonderful Imagination; that is God. We tell you that Imagination creates Reality, but bear in mind that at this human level on earth it takes time and persistence. If we will persist in the image, live in it, sleep in it, breathe in it, it will crystallize into tangible form. Night after night we take different facets of this truly great secret, and as we turn to the greatest book on Imagination in the world, we treat it differently. So, as we turn to it, bear in mind that the Bible is addressed to the Imagination, not to the man of sense or the man of reason - the one that is *"lost"* or *"dead"* or *"sound asleep."*
+
+We will take a simple little verse and show you why it is not addressed to the natural man, Ecclesiastes 3:15: *"That which is, already has been; that which is to be, already has been; and God seeks what has been driven away."* The *"natural man"* cannot grasp that, for to him reality is based only on the evidence of the senses. The man of reason could justify the verse's end, saying if it has any meaning then the writer must mean recurrence. The sun comes every day and the moon completes its cycle and the seasons come and go. If we took a picture of the universe today, the scientists can compute how long it will take to return to this point in the picture. So the intellectual man could justify the verse; but that is not what is meant, for it is addressed not to the man of reason or the man of sense, but to the man of Imagination. What is it all about? *"That which is, already has been; that which is to be, already has been, and God seeks what has been driven away."*
+
+We are told that he made generic man (male-female) in his own image and called them *"Man."* Then we are told that this man was driven out, and the priesthoods tell us he was driven out because of some *"original sin."* I send my child to school to prepare her for living in the world, not to punish her, but to do it I must send her out. In Barbados we have a good school system, though not beyond high school, and when I was a boy there I would see these children arriving from the other islands at the beginning of the school year with their new clothes and their new books. They thought it was exciting, not knowing what it was all about. But then the time came for the parents to kiss them goodbye and leave them in this strange place, and many a child cried himself to sleep not just for a night but for the whole term, such was their homesickness and loneliness. But the parents did it in love and left them there. Many sent their children on to England for still higher education at great sacrifice, and they could not afford to bring them home for vacations, so they had to wait years to see them again. But they did it in love and only love.
+
+An infinite being of love did the same thing to us. We were *"dead."* We were fully made and perfect but we were like the statue of Galatea. And then to quicken man and make him like God, he had to drive him out - not in space, out in mind. So God became man, the thing that was dead, and to do it he had to lower himself to this level - which in comparison to the higher states would be called *"dead."* This garment of skin you wear has been long in preparation for the Son of God. We are told: *"And He clothed them in garments of skin."* It is for schooling purposes.
+
+Why are we here? To make images. The whole universe is an image of cosmic fancy. We are learning, so we begin with the simplest things - a job, a new home, a change in environment. We do it in the same way as our Father did it, but this is a classroom so we make mistakes - but the fault is not ours for we are not yet awake. There was the perfect system, existing for its creator, and then God set free certain portions of it, and so he *"prepared the way for his banished ones to return."* God seeks what has been driven away, so that he may say: *"This, my son, who was dead [and] is alive again."* So we are the one he is seeking. There is something hidden in this coat of skin that he is seeking.
+
+We must get beyond the senses and begin to create. So I say to everyone that we must start the art of creating, no matter how simple or how big the thing is, no matter what it is that is creating. We create by faith, and faith is belief in the thing not yet seen. We create by assembling an image that implies we now have what we want in this world, and if we are faithful we bring it to pass, and as we do it we begin to move through this labyrinthine way for the return of his Son. *"Whom God has afflicted He will comfort and call his friend."* So if you are hurt do not believe that it was because of what you did in the past. No. We pass through the fixed labyrinthine ways that he has prepared for the return of his Son. So the Son finally awakens and he walks with me through the whole roadway of these states.
+
+You can create anything in this world if you know who you are, and if you do not know, that is why these platforms exist to teach you, for we are all interlaced. You may think you are insignificant; you may even be in jail - but even behind bars you are creating. And you need not remain in jail if you know who you are.
+
+Have you ever flown over a lake or over the ocean? A friend recently flew in from San Diego. He had been in the navy and he had always owned boats, but he had never before observed what he saw now from the air. He was on the ocean side as the plane took off from San Diego, and looking down he saw this little thirty-footer coming in the opposite direction. He noticed the wake of this little ship and watched it widen, and nothing interrupted it. When his plane turned inland he was flying at three hundred miles per hour, but looking back he realized that this little boat - doing maybe thirty knots - was troubling the entire Pacific. As far as the eye could see this wake was moving and nothing could stop it and the occupant of that boat was totally unaware of what he was doing. We are all like that. You think you can imagine and not affect others? It is like the wake: in time it encompasses the whole world. It starts as a little *"v"* but it grows wider and wider. Everyone will be in some way influenced by my pattern. If one knows what he wants for himself or for others and remains faithful to it, he does not have to ask: *"Who will help me?"* For every person who must play a part will play it to make possible the fulfillment of that dream.
+
+A lady said to me the other night: *"Look at my hands! A week ago they were blistered as if with acid; now there is no scar, but it took me five days of [[Revision]] to bring about what you are seeing."* For unnumbered days prior to this nothing happened, but five days of [[Revision]] brought this about. She produced in her own body this change. This seems stupidity to the rational man; to the Greek it is foolishness and to the Jew a stumbling block. It means that the man of reason cannot comprehend it; he cannot believe that one can create by imagination. The way is prepared for you, for there are unnumbered states, and we can create states to deliver others and pull them out of those into which they have fallen.
+
+We are here on the earth as in a great schoolroom. We were not sent here to be punished, but to learn to become creators like our Father. There is no *"original sin"* for God made the decision to send me to *"school."* In fact I was *"dead."* I existed only for God, the creator of the perfect system, and then came the decision to subject me to this schoolroom in the hope I would be set free in the glorious liberty of the sons of God. Given the choice, what child would go to school? But loving the child the parents subject it to that training. How many years are taken from children's lives and given to learning? It is the same with us, only it is a vaster school. So let no one tell you that you did anything wrong in being born. These coats of skin were prepared for us, for they help man - the invisible reality - to become conscious. And then some certain teachers sent by God tell them of the only value in the world and that is to awake. But if in the awakening you want a better home, a finer job, better health, then try to create it. Failure does not matter; you are learning. If you persist you will win. You create by faith. By faith the worlds were made and sustained. Things that are made are made from things that do not appear. So what would it be like if you were the man you want to be? See the world as you would like to see it.
+
+Let me define Imagination for you. It is spiritual sensation, but the word *"spiritual"* is to most of us something that is not practical - the incorporeal as opposed to the corporeal. But Imagination is the power to perceive what is absent from the senses. Take a rose - there is not one here - but right now could I sense it in any way? Smell it? Touch it? I can, though it is absent from the senses. That is Imagination. If Imagination creates reality, such perception of what is absent from the senses makes it so. We have unnumbered case histories to prove it. Imagination is the power to perceive what is absent from the senses, and if you persist, you go beyond the sense man and go beyond the rational man. *"The natural man receives not the things of the spirit of God for they are foolishness unto him."*
+
+How can I discern my home spiritually? I cannot see it with my physical eye or touch it with my physical hands, but in Imagination I can do both. You may say: *"I do not have a home."* Well, you do the same thing with a home you do not yet own. Do it with funds you do not now possess. Nothing has quite the same smell as money, or the same sound. If it is money you want, use every sense to make it real. But do not say: *"I perceive it because I know it is there."* To exercise the Imagination you see something that is not yet there. Then we get beyond the natural man, like the lady who in five days brought about a complete transformation in her hands. Everyone is here for image making and to learn lessons, and the being who sent you here came with you and he has never left you. He became you and lit you with himself. As he lit man he awoke through the passage prepared for him into this schoolroom called earth. And then as he is lifted up he is embraced and given the ring and the fatted calf. *"For this is my son who was dead and now lives again."* For the first state was death and then comes the quickening of this state. He was lost and now he is found again. *"That which is already has been; that which is to be already has been, and God seeks that which was driven away."* So he drives him out by taking him out of mind. He is seeking Jacob in the Old Testament, and in the New Testament, Jesus. For when he finds him, he is Jesus. As he finds him, his is the reality of being, which is Jesus. He will find him in every being in the world. When this begins to awaken in you, the old form cannot contain it any more than new wine can be contained in old bottles. You cannot take this new wine of truth and confine it to the old dogma - it will blow it apart. So it has to take a new form as the Spirit begins to awaken within one.
+
+So make your image and ask no one to help you, for like the wake of the ship it will change the whole world, if it is necessary to the fulfillment of your drama. *"Everything in the Pacific had to encounter that wake; nothing could stop it."* You are the ark of God and what you are imagining is influencing all the others who are also imagining. So Imagination changes things. Do not base it on facts. Truth as we see it is not confined to facts but depends only upon the intensity of Imagination. Everyone can do it - but often reason will interfere. A friend told me tonight that he desired the answer to a certain problem and it was given to him. He said: *"I prayed to the being within me."* It was a financial picture and he got the answer, but it seemed so stupid he did not apply it. Although he did share in it, it brought about everything that he desired. Reason interfered and he did not put his money into a certain venture. Reason stands between the man of sense and the man of Imagination.
+
+Have you read Prodigal Genius, the Life of Nikola Tesla? He said there was nothing that was not within the Imagination. He conceived of alternating current, and when Edison told him it could not be done he said: *"But I see it, and I am stopping it and starting it."* And when they brought his model into the factory they did not change a bolt of it.
+
+A friend of mine, a violinist, cut an accurate model of something he had seen in his mind. It was a collapsible box such as now used by department stores to hold dresses and such. He had it patented and sold his patent for $10,000. Not one person in this country but has used that kind of box. Harry Webb got it in a vision. The manufacturer made millions. Harry did not labor for it. Reason was suspended and this came through.
+
+Apply this principle to the little things of life and let no one tell you it is too material; the same ones will ask you for whatever it is when you discard it. You are here in this schoolroom to create out of your imagination and to do it by faith. Imagine and create the noblest concepts for yourself or for others and live in [them], and in a way you do not know, you will influence the lives of everyone in the world, and everyone who will be needed to bring about your dream will be drawn into it and brought to you. Even those who seek to stack the cards against you and think they are doing so very cleverly will find that the very thing they did will instead stack the cards against themselves. You are influencing everyone in this world when you are imagining. Who knows what being now in solitary is not disturbing the whole vast world. He will never be accused, for he is not out. They can find approximate cause, but they cannot blame him for he was in a cell. Yet he could cause a wave of hate out of the depth of his own being. That is why it is so important to imagine wisely. There is only one being awakening and that is God, and we were put into this schoolroom in love even though many a night, like the children, we cry. Loving fathers here have sent their unwilling children to school; a loving heavenly father sent you here on earth. You apply it and use the greatest talent in the world, which is himself. That is Imagination.
+
+I cannot begin to tell you the thrill that is in store for you as you begin to live by Imagination. And then you can pass through all these states which were prepared for the return of his banished ones. Not a state but has been fixed before he put his Son into the depth to rise. So as he is the life of man, it is really God who is rising. So we deliver ourselves from states and at the same time deliver others from the same state. No matter what a man has done, he is only in a state and can be lifted out.
+
+When we begin to awaken we will begin to comfort and heal, for whom God afflicts he did it for a sound end, and that was that he might awaken. *"This is my son who was dead and now liveth."* The most monstrous beast that ever walked the earth cannot be lost, for God is also present in him. If one could be lost then God could be lost, for he became his Son that he might awaken that Son as God.
+
+So make your dream and live in it and it will come true. We are told that as the sower sowed, the seed fell on four kinds of soil. The first is not prepared; it is the highway, and no seed took root. These are those who will not listen. Then you will find one who will take this teaching, but it falls on stony ground. They get something new but there is no root. The first thing they say is: *"Oh, it would have happened anyway!"* The third fell among the *"thorns and thistles."* It grows deeper than the one on the rock, but they really believe that it is only with money they can get things and so the teaching was choked by the thorns of their unbelief. Then there is the well-prepared ground, and it roots deeply and produces fifty and a hundre been prepared for your education and that it is all interwoven in the labyrinthine ways of your own mind. And then you learn to walk in the feeling of your wish fulfilled, and you can create states from this heavenly alphabet of God, and then we find how the entire Bible story is a true story as seen through the eyes of those who wrote it. It is the history of the soul of man and some day you will know it is taking place in you, and then it moves rapidly and you will understand the vision you did not understand before. Then you can say: *"The whole Book spoke of me!"*
+
+So, speaking of the one that God is seeking, the one who was lost, who found him? God found him. You find it unfolding within you. And then you see that you cannot from now on use the old bottle or the old frame, for the vision differs and you cannot put new cloth on old garments, or new wine in old bottles, [and] your friends tell you that if you do this you will have no listeners. But you must go blindly on, because you have been given the new wine. You see no one who is important and you do not consider the wise or the foolish to be in supreme states, but you see them passing through these states into which we may all fall as we are being educated, as we move from the state of death to the divine liberty of the sons of God.
+
+So if you get a vision, do not let reason interfere like my friend who lost $50,000 because he allowed reason to interfere and did not follow through on the answer that was given him. Reason divides the natural man of sense from the man of Imagination. Blake says: *"Those who restrain desire do so because theirs is weak enough to be restrained, and the restrainer or reason usurps its place and governs the unwilling. And being restrained, it by degrees becomes passive, till it is only the shadow of desire."* If you desire the recovery of a friend, do not restrain it, for then reason will restrain it. Let no one tell you he is suffering because of the past. You are called on only to forgive him. You are not the judge. Let no one tell you that your father punishes. He seems to do it is for a purpose: *"I kill, I heal, I wound, I make alive,"* etc. Choose life, but there must be the contrary to awaken you. But we may choose from the tree of life, which is truth and error.
+
+So deliver anyone from the state into which he has fallen. [Now] you see what the prophet meant: *"That which is already has been,"* etc., for the schoolroom is prepared for the awakening Son of God.
+
+
+Now let us go into the silence.
+
+
+
+
+## Summary
+
+### The Great Secret of Life
+- The platform is focused on the secret of life, which asserts that the Supreme Power that created and sustains the universe is Divine Imagining, synonymous with human imagination.
+- Imagination has the power to create reality, but persistence and time are required for manifestation at the human level on earth.
+
+### Ecclesiastes 3:15: *"That which is, already has been"*
+- This verse is not addressed to the natural man or the man of reason, but to the man of Imagination.
+- The verse means that what has already happened will happen again, and God seeks what has been driven away.
+
+### The Story of the Banished Man
+- Man was created in the image of God but was driven out and banished from the perfect system.
+- This banishment served as an awakening for man and an opportunity for him to become like God.
+- The physical body is like a garment of skin, a preparation for the spiritual awakening.
+
+### The Purpose of Being on Earth
+- The purpose of being on earth is to learn and become creators like our Father.
+- There is no "original sin" but a decision made by God to send us to school.
+- These physical bodies help us become conscious of our true reality.
+
+### The Power of Imagination
+- Imagination is spiritual sensation and the ability to perceive what is absent from the senses.
+- Through imagination, we can discern and create what is not yet physically present.
+- The intensity of imagination, not facts, determines the truth of a thing.
+
+### The Influence of Imagination
+- Imagination has a powerful influence on others and the world around us.
+- Everyone's imagination affects others, whether they are aware of it or not.
+- By imagining wisely and creating noble concepts, we positively influence the lives of others.
+
+### Living by Imagination
+- Live in a state of imagination and persist in faith to bring about desired changes in reality.
+- Failure does not matter, as mistakes are part of the learning process.
+- The awakening of imagination leads to comfort, healing, and the fulfillment of [[Dreams]].
+
+### The Importance of Reason and Desire
+- Reason can interfere with the power of imagination and should not restrain desire.
+- Forgiveness is essential, and we are not called to judge or punish others.
+- We have the choice of life and can choose from the tree of life, truth, and error.
+
+### The Schoolroom of Life
+- Life on earth is like a schoolroom to awaken and educate the sons of God.
+- The states of existence serve as lessons and stages of awakening.
+- The prophet's words reflect the preparation of the schoolroom for the awakening of the Son of God.e of life, truth, and error.
+
+### The Schoolroom of Life
+- Life on earth is like a schoolroom to awaken and educate the sons of God.
+- The states of existence serve as lessons and stages of awakening.
+- The prophet's words reflect the preparation of the schoolroom for the awakening of the Son of God.of God.
+
+
+#Revision #Dreams

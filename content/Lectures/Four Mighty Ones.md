@@ -1,0 +1,142 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Four Mighty Ones
+keywords: [Assumption, Dreams]
+bible_ref:
+tags: lecture
+topics: [The Riddle of the Four Mighty Ones, The Promises of Knowing the Name, The Name as a Strong Tower, Understanding the Riddle, The Four Mighty Ones Within, The Power of the Name, Testing the Name, Understanding the Personality]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+This morning's subject is *"The Four Mighty Ones"*.  
+  
+The history of humanity is little else than a long struggle with this infinite riddle - the riddle of the Four Mighty Ones. When Origen, one of the early church fathers, was asked why are there four Gospels, why not one, he answered and said because there are four quarters of the Heavens, north, south, east and west and, therefore, four quarters of the human soul. The Bible speaks of this riddle which we will quote from the Book of Proverbs, and I will tell you the promises made to the individual and to the nation who can answer or un-riddle the riddle.  
+  
+It is veiled throughout from Genesis to the Book of Revelations; the four rivers, the four horsemen, the four creatures around the throne of God, the four men loose and walking in the fire; and the form of the fourth was like the Son of God; and they parted his raiment into four parts, and throughout, they speak of the four, but man cannot seem to un-riddle the riddle. This morning I hope to do it, and if I do it to your satisfaction so you walk in it, then certain things should happen to you. Now, let us see what should happen to us.  
+  
+First, let me quote the riddle. It is from the 30th chapter of the Book of Proverbs: *"Who hath gathered the wind in his fist? Who hath bound the waters in a garment? Who hath established all the ends of the earth? What is His name and what is His son's name? Cans't thou tell?"* For that is the riddle. Can we tell it? Do we know the name of the one who did it? Do we know the son's name, and you follow it, closely. The first is Spirit, the second is Water, and the third is Earth. That is the question asked.  
+  
+The first one is about the wind; well, the wind in all languages, in all ages, has been used as a synonym for spirit - the breath.  
+  
+He speaks of water second. The mystic knows water in the Bible, and all scriptures, symbolized psychological truth. The ideas that men entertain as Truth; either true or false, if he accepts it and consents to it, he weaves this into a garment so he wonders who has actually gathered or bound the waters in a garment.  
+  
+And the third, - who has established all the ends of the earth ? Who made it fixed? Who could take this liquid state, that is only a moving state, that is unseen, and objectify it, actually establish a something that is solidly real and make it to others a fact ? Do you know the name ? What is his name and what is his son's name? Canst thou tell?  
+  
+Now, let us now turn to the promises. *"I will set him on high because he hath known my name"*, which you read in the 9lst Psalm, which all of us love to recite. *"I will set him on high."* When I am set on high does it mean I am made a king, a president, a dictator, a great giant of industry? It hasn't a thing to do with such exalted positions on earth, for the real journey of a man is up the ladder of awareness, ever increasing awareness, an awareness of objects of increasing significance; but I am set on high because I know the name. A bird will not be merely a feathered creature. A bird will be to me what it was to Blake, simply a wonderful delight, a heavenly delight, bringing me a message.  
+  
+Birds will talk to me, not as you understand language, but their very flight will reveal to me God's intent. They will speak to me; not only trees, birds; everything in the world is the language of God. When man is lifted up, they cease to be objects - they are expressions of meaning - as a book is lifted up in consciousness from merely an object in space to a series of marks on paper, to finally an expression of meaning. As I ascend in consciousness, I lift an object, but if I am lifted up because I know the name, then every object in space ceases to be objects. They have meaning and they are expressing meaning. So I can read the open book of God. A tree now becomes a message; birds in flight, why two and not three, or why three and not ten? Why in the form in which they did fly; there is no accident - everything is the unfolding pages of God's book to the man who is set on high because he knows the name. The name then becomes, we are told, *"a strong tower and the righteous runeth into it and is saved."*  
+  
+Now, let us take one more promise and you answer whether nations know the name. If our priests and our rabbis and our leaders, who should know the Name, really know the Name: - for this is the promise that the Prophet gives us in the Book of Micah. *"All the people will walk, everyone, in the name of his god, and we will all walk in the name of the Lord our God"*, and in that day all the nations will beat their swords into plowshares and their spears into pruning hooks and no nation shall lift a sword against a nation and they shall learn war no more; and the history of humanity has been the history of war and crime, and these words were penned hundreds and hundreds of years before our era - hundreds of years B.C. Only the individual has found the name and become one who took his own sword and turned it into a plowshare. He escaped from the turmoil, the individual mystic, the individually awakened man or woman who found the Name in the midst of the struggle he goes in and finds a savior in the Name. It is a strong tower to him and now he goes in and he rests. He is lifted up on high and he sees the unfolding of the times.  
+  
+Now, if nations really knew it, if the word uttered by the priests really was the Name, if the rabbi pronouncing the so-called holy word was the Name, we would not have war, so the Name as sounded by the priesthoods of the world cannot be the Name, so what is the Name ?  
+  
+Let us go back now to the riddle. *"Who hath gathered the wind in his fist?"* What imagery! - What is the fist? The fist is the symbol of the first letter in the great mystery name of God. The fist is Jod. Now, what is a fist? The hand is the one organ of the human body that sets him completely apart from the whole of creation; so it begins the name of God, for without a hand, if I were simply an Einstein multiplied by the nth number, I would only be a smart monkey. I could not build, I could not fashion, I could not mold, I could not create; I could have all the ideas in the world but without a hand I would not be a creator.  
+  
+So here that very first question asked is about the creative being, for the wind is spirit - I am speaking now of the creative spirit - and so it puts it into the form of a fist. Who has taken it and gathered all the wind in its fist? So we find the first letter that is, in the language of the mystic, to be aware. Can you conceive of being any place in this world and not being aware ? You may not know who you are, you may not know where you are, you may suffer from total amnesia, but you can never in eternity not know that you are. It is the one thing of which man is sure - I AM. He knows that he is, and he doesn't know who he is and where he is and what he is, but he cannot stop knowing that he is, so that is the very first question asked; that creative spirit which is the JOD, which is simply being aware.  
+  
+The second one, now. Who bound the waters in a garment? When I speak of garments in the scriptures, they symbolize what the mind wears. When a man is clothed in soft raiment, we are told he is in the King's house and the Kingdom is within. He does not have teachings concerning external life. When a man comes clothed in camel's hair or a leather girdle, these are made from external objects, made from skin, made from hair, the most external thing on a man, so that man's teaching is represented by external things, therefore, he speaks externally. He does not speak of the kingdom within, he speaks of the things without that man should do. You have two coats ? Give one to one who has not any. You have more than you can eat? Give some to one who is hungry, but when one comes wearing soft raiment, he doesn't tell you anything to do on the outside, for he is now clothed with the clothing of the King, and the King is in the Kingdom and the Kingdom is within. So we speak now of a garment; a garment simply represents the intelligence of the individual or what the individual has accepted as true.  
+  
+Now where we speak of water - he gathers water into a garment and water is psychological truth. Now, who can take a mere [[Assumption]] and gather it into something that is altogether real to him, that no one sees, as you would take say the cloud and gather it and form it.  
+  
+And then the third one, who can solidify it? Who has established all the ends of the earth. What is His name ? Go back to the name. We found that the hand was JOD and the second letter in the great creative Power, (known as JOD HE VAU HE) is HE. HE is symbolized as a window. The window of the man is his mind. With my mind I see. With my imagination I see in fashion so I will now gather in my imagination, what I want to be in this world, so I will gather it without the aid of any external force. When I see clearly in my mind's eye what I would like to be, I have gathered this state into a garment.  
+  
+Now, how to solidify it! What is the third letter in the name, this mystery name ? The third letter is VAU and VAU is symbolized as a nail. A nail binds together, it joins things together, so I can stand here and first I am aware, just simply aware. Then I become aware of something and I become very discriminating, very selective. There are numberless things of which I am aware but I need not single out one to become identified with it but I will simply let them all pass through the mind, as it were. Then I will hold upon one - I will arrest one - the kind of man that I would like to be. Well, I will fashion that into a garment.  
+  
+The next step is now bringing it into solidity, which is the VAU. But how do I apply the name to the point where I can use the VAU in my name? I will assume that I am that man. When I walk in the [[Assumption]], I am walking in his Name. We are told in this state all will walk in the name of his God. I have found the Name - found it within myself as, first, my awareness, my ability to become aware of something, my ability to become not only aware of it but to become aware of being it, so I walk as though I am the man that I want to be, so I solidify it, and the last letter only bears witness of the internal imagery, for the last letter is another HE, so there are two HE's in the name, a JOD and a VAU. You cannot sound it - Jehovah is not the name - roughly translated it is I AM, but you have got to tear it apart and know what you mean by *"I AM"* for to say *"GO and tell them "*I AM*" has sent you unto them."* When I go to Israel and they ask me who sent you, what is your thought? Just say *"I AM"* has sent me unto you and then complete it and tell them I AM that I AM. What does it mean - I AM That? Yes, that is as it is because I AM as I AM. Were I different that would have to be different, so I am that that mirrors the being that I am, for what I see the world to be is a measure of my own level of consciousness, for whatever it is seen to be is a direct index to the level of consciousness of the observer of the world. It's not the world - I am that - I really am,- and that could not be other than what it is, while I remain as I am.  
+  
+The slightest change in my level of consciousness, the slightest change in the feeling of I am this, results in a corresponding change in that, which is the world round about me. Let me now desire peace and actually walk in the name of peace, that there is peace in my world, and I will look upon a world and I will see peace where others see conflict, for I am only seeing that at all times: so what is my authority? My authority is *"I AM has sent me unto you"* and I AM that I AM. Do I know it? If I know it I will never complain. If I broke my neck I would know you could not have done it unto me: I did it unto myself. If I find myself in any state in the world I could not complain for I have found the Law, I have found the Name by which all these things are gathered together.  
+  
+All the creative spirit in the world is gathered in the Name and the Name is I AM. But the Name must be torn apart and be shown as Four Mighty Ones, and not just the single. It is all one, but there are four distinct functions of the one. There are not four fingers or four separate beings living in man. God is one and his Name is one, but there are four distinct functions, and you can call them the four Gospels, call them the four garments that he wore, call them the four rivers flowing out of Eden, call them the four creatures surrounding the great throne of God; call them four but understand what you mean by the four.  
+  
+So when you walk the earth can you walk in his Name? If I can walk in his Name, then I know what built the world, what keeps it sustained and establishes every end of this fabulous wonderful universe. It is the Name, and the Name is simply I AM. It is not Jehovah, it is not Christ Jesus, it isn't the Lord, it's not a thing you utter, it's a thing you keep in the silence of the heart, because you know you are and you don't have to affirm I AM in order to be. You simply know that you are, and the one sure thing in this world that everyone knows, he knows that he is, but he doesn't know sometimes who he is. He doesn't know sometime where he is and sometimes he doesn't know what he is, but at all times he knows that he is - that is the one deep conviction in the heart of every man, so he walks in that but he has to tear it apart and get understanding of the Four Mighty Ones within him given to us in a symbolical way in the JOD HE VAU HE.  
+  
+Those not understanding it within themselves treat it so sacredly they will even cover the name as they unfold the scroll to read it. Have you ever gone to these wonderful churches and seen them reading a scroll that man himself wrote, for some rabbi wrote that down, yet when he comes to read it he will cover it, because he must not look upon the name of God. It's a holy name. It's not on paper. It's not on the scroll. He can't even utter it. It's within him as his awareness, his ability to become aware of things, his ability to become aware of being the state of which formerly he was only aware of, and he walks as it and then he objectifies it and it becomes that, so I AM that I AM. So when a world is described from observation, it is always, as described, revealing the level of consciousness of the describing being. It is not the world - that changes automatically - if I, in one little way, change within myself.  
+  
+Now, today test it - test the Name. He said I have kept everything you gave me in your Name, and your Name and my Name are one. We have the same Name, so when you spell the son's Name strangely enough you start off JOD HE VAU. When you spell Jesus in Hebrew it begins JOD HE VAU. You don't have to go further - that is the Creative Power - to be aware, to be aware of, and to be aware of being the state decided on and then, but it's not Jesus, you don't sound Jesus, it's simply in the being's own heart - that's the Name.  
+  
+Now, the day we really believe it and are bold enough to walk in that Name, there will be peace in the world. If we turn on the outside to an external God, there will be war in the world. For you have denied me and when you deny the real God there is confusion and conflict in the world. So any man who turns to a power outside of himself and bows before it as some sacred relic or some sacred object, or in any other way turns to it, he worships idols, for the living God is within you. Ye are the temple of the living God. He's not outside and to look on the outside is to be led astray, and when you are led astray, you are led into confusion and nothing but confusion would result and, therefore, conflict and war.  
+  
+When a man finds the Name and answers the riddle he is *"set on high."* I can promise you a thrill beyond your wildest [[Dreams]] when you begin to toy with it and test it, and if you are lifted up even one little level beyond where you now stand, so meaning begins to reveal itself, a world of meaning, there isn't a thing in the world without meaning. There is no accident - not one little thing in the world is without significance and when you lift in consciousness to the level of meaning, where things take on greater and greater significance, what a world into which man then rises.  
+  
+So the whole thing begins in that 4th verse of the 30th chapter of the Book of Proverbs. He asked first who hath ascended into Heaven and who hath descended; then he puts the riddle, and the same being that descended is the one that first ascended, and the one that ascended was the one that descended - so this is the great ladder of life, the ladder of consciousness on which the individual descends here to discover his own being - the Four Mighty Ones within him, and when he finds himself completely shut out from that knowledge and he starts the conflict within himself and discovers within himself the cause of all the phenomena of the world, then he starts to ascend, and the same being that is going to ascend is the one that descended in consciousness to the level of complete and utter confusion.  
+  
+Now, today, to make it practical, as we did in the 2nd chapter of my latest book - I treated it as a drama and the Four Mighty Ones in you - play with it. Call yourself a producer. You are going to produce a play - and the producer in man only suggests the theme. He goes no further. Wouldn't it be wonderful, (and you name it), were I, (and you name it, ) successful, happy, and you name a certain state, but you go no further as the JOD: he only suggests the spirit for he just takes the wind and that he binds in his fist. He only recommends the motive, the little theme.  
+  
+The second one, now, in man that works out that theme is the author, and the author in man is man's wonderful inner creative power that can take the theme of success and work out the last scene, which implies the theme is realized. What would I do were I successful? What would I see ? What would I say? How would I act? Well, then construct one little theme or little scene which implies the fulfillment of my desire. That is now the second mighty one's work.  
+  
+The third Mighty One's work in man is the director. The director in man is man's controlled attention so that my attention must be completely absorbed in the single idea, the idea which implies the fulfillment of my wish.  
+  
+Now, the fourth one is the one whose form is like unto the son of God. Now, who is the fourth one in man that will now do it? Man's Imagination. Man's real being is a splendid Imagination. An Imagination has form but man does not understand it and man doesn't believe it, but the real being is Imagination. It can be anything in this world, and so he puts himself through the paces by simply inwardly enacting the drama that he himself has constructed, and whatever it would be that he has constructed, which drama implies the fulfillment of his theme, he inwardly acts it over and over and over again until it takes on the tones of reality. When inwardly he feels natural in the part that in which he is now se1f-rehearsed, the curtain will rise and he will see it there. He will cast the inner drama on the screen of space and he will see moving on the screen of space all the characters necessary to complete the play.  
+  
+He doesn't have to consciously direct one of them. They become relevant to his theme, and because they are relevant they are drawn into the drama without their knowledge, without their consent. Any change in the drama must take place within him and not them, so he never appeals to one on the outside to change. He leaves them just as they are and he re-writes the play within himself and changes the end. As he changes the end, the whole cast are cast in different roles and have moved back into his world to complete his play.  
+  
+So the Four Mighty Ones in man may be likened to the producer, the author, the director and the actor - the four most important members in the production of a play, and this is a play. The whole vast world is a play - this is a stage - but this actual movement and the actual drama is not taking place out there. It has been conceived, dramatized, rehearsed and completely enacted elsewhere. When you see it here it is as much a screen as when you see a picture on this screen later on today. You cannot appeal to the actress to change, they cannot even hear you. Any change in the script must take place where it first originated, not here. This is only a screen, so as Blake said, *"All that you behold, though it appears without, it is within, in your imagination, of which this world of mortality is but a shadow."*  
+  
+So when you find the Four Mighty Ones, you have found the Name and when you find the Name you will be set on high. You will run into it like a strong tower and be saved and there will be peace in your world. If a nation finds it, there will be complete peace in the world. If the individual finds it, it is peace in his world though the whole vast world rages, in his world there shall be peace. Not a thing will touch him for he has found the Name, and the purpose of this whole vast journey is to find the Name and the son's Name. If I find the Father's Name, His Name is just like mine, so I have found my Name and the Name ceases then to be Neville. It ceases to be John, to be Mary, but you never utter it. It is your sacred trust. You tell it to no one, you keep everything in the Name but you don't tell it. In other words, you will call yourself by some other tag but the real name is covered from sight because you, yourself, cover it. You walk in the Name.  
+  
+Now you can try it and see if I have told you the truth this morning. See if you cannot conceive of things today and identify yourself with it. Remain faithful to that association and see if that association will not result in a corresponding state in the outer world. Boldly assume that you are the one that you want to be. Remain faithful to the [[Assumption]] and see if it will not establish itself and become hardened into fact, and you will know then the one who really establishes all the ends of the earth, for your earth will be anchored down and bearing witness of the man, the woman, that you have conceived yourself to be. Then you will be free of the greatest tyranny in the world, and the greatest tyranny in the world is the belief in the secondary cause. There is no second cause. There is only first cause, and the cause of everything is the Name, but when you don't know it, well then, you blame another and I cannot conceive of a greater tyranny than the belief in a second cause. There is only one God, expressing himself as Four Mighty Ones within the individual.  
+  
+So think now of your personality as something that is informed by this mighty selfhood but informed by it, in respect to its level of consciousness in varying degrees. On one level I am informed as to the language of birds. On another level the language of trees, and on another level the language of the motion of clouds; every little formed cloud is telling me something. Every little ripple is telling me something. On a certain level the language is revealed. On a lower level it is simply an object moving in space. Lift up the object only, any object, and it takes on increasing significance - and what a thrill when man so lifts himself that everything is talking and telling him of the kingdom within himself that not one little thing is by accident - that the bird that seemingly is wild and simply lit in your yard just for a moment, on its way south or north, did not by accident light, it brought a message - and every little thing in the world is telling you something when you rise in consciousness, and you rise in consciousness the day you find the Name and walk in it for *"I will set him on high because he hath found my Name."* He knows my name. The only reason for the lifting up was the knowledge of the Name.  
+  
+So you take this morning's drama, enact it within yourself and see if you, yourself, cannot prove to your own satisfaction, you have found the Name by changes in consciousness not only here but your [[Dreams]] will change, your visions will change, everything will change: for you have changed, and the success or rather the change or the cause of all change is you. No other cause. If you change. everything will change.  
+  
+And now my time is up.
+
+
+## Summary
+
+### The Riddle of the Four Mighty Ones
+
+- Origen explained that there are four Gospels to correspond with the four quarters of the Heavens and the four quarters of the human soul.
+- The Bible mentions the riddle of the Four Mighty Ones through various symbols and occurrences.
+- The riddle from Proverbs asks who can gather the wind, bind the waters in a garment, and establish the ends of the Earth.
+
+### The Promises of Knowing the Name
+
+- The promises include being set on high, having knowledge of God's name, and walking in the name of the Lord.
+- Walking in the name of God means experiencing a higher level of awareness and understanding.
+- Knowing the name allows for a deeper connection with nature and the ability to see God's intent in everything.
+
+### The Name as a Strong Tower
+
+- The name is described as a strong tower that the righteous can run into and be saved.
+- The name provides authority and protection, allowing individuals to find peace and avoid conflict.
+- Nations that truly know the name will beat their swords into plowshares and learn war no more.
+
+### Understanding the Riddle
+
+- The fist symbolizes the creative spirit, represented by the wind, and reflects man's ability to be aware.
+- The garment symbolizes the mind and the ability to gather psychological truths or assumptions.
+- The vaU symbolizes the nail that solidifies the assumptions and establishes them as facts.
+
+### The Four Mighty Ones Within
+
+- The four Mighty Ones are like the producer, author, director, and actor in a play.
+- The producer suggests the theme, the author works out the details, the director focuses attention, and the actor imagines the desired state.
+- When individuals find these Mighty Ones within themselves and act out their desired states, they can manifest them in the outer world.
+
+### The Power of the Name
+
+- The name, represented by JOD HE VAU in Hebrew, reflects the individual's awareness, imagination, and ability to assume a desired state.
+- When individuals understand and walk in the name, they find peace within themselves and can influence their external reality.
+- The name is a sacred trust and is not necessarily an uttered word, but rather an internal knowing and awareness.
+
+### Testing the Name
+
+- Individuals can test the power of the name by conceiving desired states, identifying with them, and remaining faithful to the [[Assumption]].
+- By assuming the desired state and rehearsing it within, individuals can manifest it in the outer world.
+- Finding the name allows individuals to be free from the belief in a secondary cause and take responsibility for their experiences.
+
+### Understanding the Personality
+
+- The individual's personality is informed by the Four Mighty Ones and their levels of consciousness.
+- As individuals rise in consciousness and understand the language of nature and symbolism, everything becomes significant and meaningful.
+- Finding the name brings a shift in consciousness, resulting in changes in [[Dreams]], visions, and overall perception of the world.onsciousness and understand the language of nature and symbolism, everything becomes significant and meaningful.
+- Finding the name brings a shift in consciousness, resulting in changes in [[Dreams]], visions, and overall perception of the world. world.
+
+
+#Assumption #Dreams

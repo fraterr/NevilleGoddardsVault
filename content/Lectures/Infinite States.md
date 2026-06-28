@@ -1,0 +1,115 @@
+---
+book: 
+chapter: Infinite States
+keywords: [Dreams]
+bible_ref:
+tags: lecture
+topics: [States of Consciousness: Attitudes of Mind, Creative Power and States, Unity and Equality of States, Belief and the Power of Thought, Diversity of States and Forgiveness, The Importance of Love and Deliberate Choice]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+dg-publish: true
+---
+Quite often someone will say to me: *"I don't think others understand you."* I was asked this question: 'When you use the word 'state' I don't think others know what you mean, so would you please explain it?'" Tonight I will try.
+
+We are told: 'You are sons of the Most High, all of you.*" (Not just a few, but all of us). "*Nevertheless, you will die like men and fall*"'..into infinite states of consciousness, for states are that into which the sons of the Most High fall. A state is an attitude of mind, a state of experience with a body of beliefs which you live by. Always expressing a state, you identify yourself with it by saying: "*I am poor or I am rich. I am known or I am unknown. I am wanted or I am unwanted." I could go on indefinitely, because there are infinite states into which an individual son of the Most High may fall.
+
+Blake made this statement: *"Eternity Exists and All things in Eternity Independent of Creation which was an act of Mercy. By this it may be seen that I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep which the Soul may fall into in its deadly [[Dreams]] of Good and Evil."* When you find yourself in a state or see a seeming other in a state, do not condemn or praise it, for all states exist and no state is greater than another. Every state is an attitude, a state of experience with a body of beliefs that an individual son of the Most High occupies. And if that an individual son of the Most High, then are we not brothers of the Highest Unity? And are we not also members of the ultimate body who is God the Father? So the states into which we fall cannot mar or in any way deter our immortal self who fell.
+
+Your creative power did not willingly fall. It was your Father's will that you, his creative power, descend into and experience states. In the 8th chapter of Romans, Paul tells us: 'He was made subject unto futility, not willingly, but by reason of the will of him who subjected him in hope. There is unity in God, yet God the Father is made up of gods, the sons. So God's creative power fell into division and passes through states which results in resurrection into unity. As a son of the Most High you can, in the twinkle of an eye, move into any state, but the chances are you will not remain there for a state is made up of a body of beliefs! If you spend the day thinking from a certain base, a certain body of beliefs, the chances are you will fall asleep that night in the same belief. Knowing you can move into another state, another body of beliefs, you may try to move, but you must persist in staying in the new state until it becomes natural.
+
+There are unnumbered states and the occupant of one state is not better than the occupant of another, for each is a brother in the highest unity and all are one in the body of God the Father. But the state, the attitude of mind to which you most constantly return, constitutes your dwelling place. If you dwell in self- pity you will express the state, but by occupying that state you are not less than one who has ambitions to enter the White House, or the Vatican as the Pope. The individual desiring an ambitious state is not greater than or less than the one who doesn't know he is in a state and remains subjected to it. 
+
+How do you get out of a state? Through belief! You must believe in the doctrine. You are told: *"Whatsoever you desire, believe you have received it and you will."* The precepts of Christ must be accepted literally, for they will be fulfilled literally. Can you believe the precept that believing you have already received your desire will bring it forth in your world? If so, then tonight you can change the things that are happening in your world. And if you can believe and persuade yourself that things are as you want them to be to the point of actually moving into the feeling they are true, they will be felt and seen in your world. You must feel your desires are already realized, that they are already true, for the truth of any concept is known by the feeling of certainty that the thought is true.
+
+Assuming you are not the man (or woman) you want to be, you will know that you are really it by the feeling of certainty it inspires in you, for if you feel certain, you will act upon it. If you don't act you are not convinced, for God in you is your own wonderful human imagination and God is always acting! You may be physically incapacitated, but you are forever acting in your imagination, who is God, the Father of your life.
+
+By states I mean attitudes of mind. The New Testament begins: *"The time is fulfilled and the kingdom of heaven is at hand; repent and believe the gospel."* The word 'repent' means 'a radical change of attitude'. Your attitude need not be towards another, but an attitude regarding self. If you feel you have nothing to live for you must repent by changing your attitude radically from that state. Don't condemn yourself for the state into which you have fallen. If you don't like it move into another. Don't feel sorry for yourself, for if you do you will make the state a habit and remain there for the rest of your days on earth. Instead, you can believe this doctrine and move out of any state.
+
+Let me illustrate with this story. A gentleman, who attends the lectures, and his wife moved into their new home at the beach. Wanting some landscaping done, they invited five landscape artists to give them bids. Two wouldn't even bid because of the location of the property but after choosing one, the lawns and gardens as well as several trees were planted. Within six months three trees had died. Now, instead of getting angry and calling the man, demanding the trees be replaced, my friend decided to test his imagination; so while sitting in his car he imagined that he was leaning against the one healthy tree while gazing at the three which had appeared to be dead, but were now healthy and beautiful. Then one day the landscape artist came to the house, inquiring about the garden, especially the trees. It seems his men had used too much nitrogen in the fertilizer, which caused the roots to burn. Upon seeing the trees, he returned the following Tuesday and replaced them free of charge.
+
+This same gentleman shared another experience with me, saying: 'On my way to work the other morning I passed a very prominent building and said to myself, *"I wonder what it would be like to work there?"* Knowing nothing about the company, I played with the idea of them offering me a fantastic salary and even imagined seeing my name on the office door. That very day while at work I received a call from an agency hired to fill the executive positions for the company whose building I had passed, and whose employment I had just imagined. The agency was calling to ask if I would consider working for their client. I was so shocked to realize that the law could work so quickly, but now I know it does!"
+
+You don't have to remain in a state if you have made a mistake. You can change states morning, noon, and night, but the state to which you most constantly return constitutes your dwelling place. It is from there you are going to live and perpetuate until you move in thought. As Blake said: *"The oak is cut down by the ax and the lamb is slain by the knife, but their eternal form remains forever and reproduces its external form by the seed of contemplative thought."*
+
+The being that you really are, descended to the weakness of the flesh, causing you to experience the state you are now in. Contemplate another state, and the same being who brought your present form into being will restore and make alive the other state, the state desired. This he will continue to do until his purpose is fulfilled. That purpose is to follow a certain pattern back into the unity of being. You see, in the beginning we were drafted. We did not volunteer to fall into these states. We were made subject into futility, not willingly but by the will of him who sent us. But when we return we will discover that we are the very being who subjected us. We are now the sons, destined to return as God the Father!
+
+Now let me share with you a word that I use night after night. The word is 'David' and means 'lover; beloved' but specifically 'father's brother'. We are all brothers, yet after my resurrection and return into unity David (father's brother) called me Father. The day will come when David will call you Father too, for he is [the] father's brother. We are all brothers of the highest unity, predestined to resurrect into that unity which was broken in our fall into division. So David's name in the most specific sense is 'uncle". If David is the father's brother and everyone is a brother in the fall into division, when resurrected into unity David is he who reveals everyone as the Father. Unity was broken for a purpose. God's creative might descended to experience states in order to become greater than it was prior to the descent. Having unity in thought, creative power fell into division and will be resurrected back into unity of thought once more.
+
+So when I speak of states I am speaking of states of consciousness, attitudes of mind which create a body of belief. My sister and brothers at home do not believe in the same Christ as I do, even though we were all born in the same family and raised in the same environment. My brothers call themselves Christians but their definition of Christ would differ from mine. From their state of consciousness they believe in a man who lived two thousand years ago, yet I would tell you that Christ is God's creative power and wisdom which descends into states, resurrects, and returns as the being who sent it out. The day will come when you will understand all of these precepts as being literally true. Here is one to be found 1 John, the 3rd chapter, the 2nd verse: *"We are now the children of God; it does not yet appear what we shall be, but we know that when he appears we shall be like him."* How will we know him? By becoming as he is! The preachers of the world will tell you that when he comes, you will be like him in character, in your attitude towards life. You will be kind and considerate and have his fine qualities, but I tell you: you will be like him who is in the depths of your soul meditating you! This I know from experience.
+
+It was in the year 1936 when I saw the rock that scripture claims as the God who gave me birth. One day while quietly sitting in the silence, a rock suddenly appears before my vision. Then it divides itself and just as quickly reassembles itself into a man seated in the lotus posture, meditating deeply. As I looked closer I discovered I was seeing myself meditating me! And then I knew that when he awoke I wouldn't vanish, but rather I would know that I am He! This thing called Neville who stands before you is his emanation. He brought it into being, and although you cut off its head a thousand times he will restore its eternal form by the seed of contemplative thought.
+
+Nothing ceases to be, because all things exist in eternity and can be brought into being by this meditative being, who looks just like you, only raised to the nth degree of majesty. You have never seen your face look so beautiful. You have never seen it contain such majestic power, such strength of character. Looking at himself and knowing there is no other, as he glows like the sun you return to the being he is meditating in this world of mortality. When you have this experience you will have nothing to do with anyone who claims he or she is Christ. You will let no one deter you, for when you see him you will be just like him. Have you ever seen anyone in this world who is exactly like you? Your children may resemble you but if you put a picture of one of them beside yours, you would know they were pictures of different people, would you not? No one has the same fingerprints or the same odor as another. But when you meet the rock that begot you and the God who gave you birth, you will know him because you will be just like him.
+
+When you see this being in the depth of your soul you are seeing the one who descended into these states, meditating himself. You are his emanation, his reflection playing the parts he [[Dreams]]. And when he awakes from his descent and begins to ascend, you are He! No two seeds of contemplative thought in the depths of the soul are identical. We are all brothers, and having been subjected, when we return to unity we are God the Father. Now you see who the word 'David' means - 'the father's brother'. God the Father is my brother, who one day will rise and, taking me back to the unity of being, he will call me Father. That is David! That is the play! That is the mystery of life!
+
+Now to come back to the beginning. Everything is a state. You can be any man, any woman that you want to be when you understand the mystery of states. A state is simply an attitude of mind, a body of belief, a phase of experience. Now, don't be like the moon, which changes from a quarter, to a half, to three quarters, to full - or the earth, which repeats itself over and over again season after season. Have you ever noticed that at certain times of the year, the same set of circumstances happen to you? Every year it is always very hot when it is time for your vacation or you are always broke around Christmas? Or that when you eat strawberries you always break out in a rash? All of these are patterns created in the world of states in which we all live.
+
+There are infinite states and combinations of states into which God, your own wonderful human imagination, falls. Fortunately there is a limit, which comes when infinite mercy (who is within you) steps beyond and awakens himself; and as he does, you - the one he put through the torment - awaken, enhanced by the descent into these states. And as one you return, bringing your gifts which are the result of your experiences traveling through these states. You bring your talents, of which the greatest is the art of forgiveness, the ability to enter into and partake of the opposite. When you see someone in despair can you represent him to yourself as he would like to be seen? And can you persuade yourself that what you see is real? To the degree that you are self-persuaded he will become that man. Then you will have conquered by forgiveness! You will have taken him out of one state and placed him in another. 
+
+Now, every act of kindness is a death in the divine image for in every act you sacrifice yourself. Making alive what you no longer want to see, you die to that and live in what you want to see, so every kindness to another is a death in the divine image. By representing others to myself and persuading myself that they are as I would like them to be, to the degree that I am self-persuaded they will become it, and as they do I die to what I formerly made alive. I lived in what I thought them to be, and then I died to that thought. I did it deliberately so I laid it down myself! I have the power to lay it down and the power to pick it up again. I purposely laid my life down to what I saw and lifted it up to what I wanted to see, thereby resurrecting another (who is myself) into a new state. How often must I do it? Seventy times seven or as long as it takes me to convince myself that it is true. When I lay down my life for another he is my brother, for we have the same Father. As brothers we fall into states and resurrect ourselves into the unity of the Father!
+
+So the greatest talent, the greatest challenge to overcome, is the art of forgiveness. By forgiveness I do not mean a verbal agreement, leaving the memory of what was forgiven. To completely forgive I must completely forget the event. No matter what was said, if you forgive me you can't even remember what I did or said. Only willing to see what you want to see, if you persuade yourself that you are now what you want to be, you have forgotten what you were before. That's forgiveness.
+
+True forgiveness is complete forgetfulness. Blake tells us: *"The art of living is forgetting and forgiving."* If you don't completely forgive you cannot forget, for to forgive is to change your attitude towards another, and as you change you forget what they said or did, thereby no longer keeping them in the state that compels them to do what they did! While in a state, man must play the part the state dictates, and man must play every part. God in his infinite mercy has hidden from us the parts we have played, because the shock would be too great if we were to see the horrors that we have committed as we passed through all these states. You see, when you fall into a state you can't help but act from that premise, and you can fall into any state!
+
+I am not telling you that one state is right and another wrong. I am simply asking you to judge all states with love. If you are ever in doubt always do the loving thing. Then you will know you are doing the right thing. If someone comes to you and tells you they want a job, don't ask him how he lost his previous job; simply hear him tell you he now has a wonderful job. Do that and you have taken him out of the state of unemployment and placed him in the state of the gainfully employed. 
+I urge you to use your own wonderful creative power and deliberately move into the state of your choice. Make it now by occupying the state long enough so that it feels natural. Haven't you had a suit of clothes that felt so new you were conscious of them every moment? I know when I bought my first suit I walked down Fifth Avenue thinking everyone I passed knew my suit was new. People passing paid no attention to me, but I was so aware, so conscious of my new suit. That's exactly that happens when you move into a new state. If the state of affluence is new, you think everyone knows it, but no one knows or cares whether you are rich or poor, so walk in the state until it becomes natural. The moment the feeling is natural, wealth is yours!
+
+I paid thirty dollars for my first suit. Today a suit will cost me $200.00, but regardless of the cost, when the suit is new I am aware of it. But let me wear it long enough for it to feel natural and I will no longer be conscious of it. The same is true for a state. You may desire the state of fame. If you will think you are famous and remain conscious of the state long enough to make it natural, as the thoughts flow from you they become a natural part of your body of beliefs, and the world will proclaim your fame.
+
+
+Now let us go into the silence.
+
+
+## Summary
+
+### States of Consciousness: Attitudes of Mind
+
+- Definition of a state: an attitude of mind, a state of experience with a body of beliefs that an individual identifies with.
+- Infinite states exist for individuals to fall into and identify with, each unique in experience and belief.
+- No state is greater than another; all states exist and should not be condemned or praised.
+
+### Creative Power and States
+
+- The creative power of individuals descends into and experiences states as part of the divine plan.
+- Individuals can move into any state, but chances are they will not remain there as states are composed of a body of beliefs.
+- Moving into a new state requires belief and persistence until it becomes natural.
+
+### Unity and Equality of States
+
+- All individuals are brothers in the highest unity and members of the ultimate body, God the Father.
+- Dwelling in a specific state constitutes one's attitude of mind and identity.
+- Every individual has the ability to change states through belief and the acceptance of Christ's precepts.
+- Change in states requires a radical change of attitude (repentance) towards oneself.
+
+### Belief and the Power of Thought
+
+- Desires can be realized through belief in the doctrine of receiving what is desired.
+- The truth of a concept is known by the feeling of certainty and the conviction that it is true.
+- Recognition of oneself as the desired person inspires certainty and action.
+- The power of belief can change circumstances and actualize desires.
+
+### Diversity of States and Forgiveness
+
+- No two seeds of contemplative thought are identical; there are infinite states and combinations.
+- Art of forgiveness is the greatest talent to overcome; it involves forgetting and complete change of attitude.
+- Forgiveness leads to forgetfulness, abandoning the memory of wrongdoings or past states.
+
+### The Importance of Love and Deliberate Choice
+
+- Judging all states with love is essential; always choose the loving thing when in doubt.
+- Deliberately move into the desired state and make it natural by persistently occupying it.
+- The feeling of newness or consciousness of a state dissipates when it becomes natural.
+- Thought, belief, and persistence lead to the manifestation of desires and attainment of states.
+
+ral by persistently occupying it.
+- The feeling of newness or consciousness of a state dissipates when it becomes natural.
+- Thought, belief, and persistence lead to the manifestation of desires and attainment of states.
+
+ates.
+
+
+
+
+#Dreams

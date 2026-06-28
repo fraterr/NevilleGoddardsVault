@@ -1,0 +1,162 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Moses - Elijah - Jesus
+keywords: []
+bible_ref:
+tags: lecture
+topics: [Introduction, The Book of Genesis and the Seed Plot, The Book of Exodus and Moses, Moses, Elijah, and Jesus, The Name of God, Passage through States of Consciousness, Personal Experience and Revelation, Signs and Wonders, Meeting the Eternal States, Trusting in the Name, Conclusion, Conclusion]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+In Biblical language a man's name reveals his character. His name is an expression of this essential nature of the bearer. As I have said in the past, these characters are not persons; they are eternal states, spiritual states, through which the immortal soul passes to awaken as God. To understand tonight's subject let us go back just for a moment. As you know, I have told you the Bible is God's plan, something to be understood only through revelation. It is revealed, it is true, but seems the most impossible thing in the world, but will prove itself true in time. 
+
+The book of Genesis is the seed plot. As you remember it is the beginning: *"In the beginning God"* and the book ended on the note: *"In a coffin in Egypt."* The one in the coffin was called Joseph. Joseph is human imagination - it is of one tissue with divine imagination, but here it is human imagination, placed in a coffin. He extracted a promise from his brothers that they will not leave his body in Egypt; they will take it up to the land that was promised by God to his forefathers, Abraham, Isaac, and Jacob. That is the end of the book, the seed plot of the Bible. Then we start for the unfoldment of the seed that was planted in the book of Genesis.
+
+The next book is Exodus. That is where Moses comes in for the first time in the Bible. Now, we are told that Pharaoh's daughter found Moses floating on the river and she named him Moses, because she drew him out of the water. I will not deny that - that is part of the name, Moses,*" to draw out, to rescue, to fetch"*. But it has another meaning. She was an Egyptian and the boy was raised in the courts of Pharaoh, and the word *"Moses"* is the root of the Egyptian word (verb) *"to be born"*. That is what it means - to be born. Something is now to be born and he is buried in man in the book of Genesis. It is completely contained in this ark, in this coffin or man, but now it must be awakened, it must be born. We are told he did not volunteer for the task -he was drafted. 
+
+Now let me stop here and tell you: this is not a man as you are, as I am; this is a state of consciousness. All these characters are states of consciousness, and so Moses is playing the part now, leading you - leading me, everyone in the world - out of the state known as Egypt, taking us out of Egypt into the promised land. Moses is true in this sense: in him - in germinal form - is the entire future of Israel. All the visions you read concerning him are contained in us. He was prophet, priest, law giver, shadow of the king (or a foreshadowing of the king), victor, exile, fugitive, man of God - all of these are stated in the state called Moses. Now he is leading us out.
+
+Let us see what he has in common with the other characters named in tonight's subject, Elijah and Jesus. No one knows the burial place of Moses, as we are told in the very last book of the five, called Deuteronomy. Moses died and he was buried. Who buried him? The Lord buried him, and to this day no one in Israel knows the burial place of Moses. (Deuteronomy 34) We are told that Elijah - the word Elijah means *"My God is Jehovah"* - while talking to his disciples, they are parted by this fiery chariot and fiery horses, and he was lifted up into heaven by a whirlwind. Therefore no one knows his burial place, because he wasn't buried - he was transported.
+
+We are told of Jesus that when they came early in the morning and they found the stone rolled away, that his body had been removed, and to this day no one knows where they laid the body: *"Where have they laid the body of my Lord?"* So, here we find in the end there were three - each had the same exit from this world. Here is a progression leading up toward God. Moses means, *"to be born"*. In Hebrew it means, *"to draw out"*. Yes, something is being drawn out, something must be born. Elijah is *"my God is Jehovah"*. And Jesus, *"Jehovah, is savior"*, in keeping with the statement in Isaiah 43: 3,7,11: *"I am the Lord your God, the Holy One of Israel, your Savior."* 
+
+If you read it on the surface it will mean nothing to you, but we go back to find what was the great revelation, as Israel is being moved out in the exodus from Egypt. It took forty years, and forty is the numerical value of the thirteenth letter of the Hebrew alphabet, whose symbol is a womb - something to be born, something is coming out of the womb in so-called forty years. It doesn't mean forty years as you and I measure time, but something is coming out of man, and everything that is coming out is God, moving to the second stage called Elijah, and flowering in its fullness in Christ Jesus.
+
+Moses is the first to have the name of God revealed to him. There are many names for God, but never before was it revealed as it was to him - that state - and you are in it now, I am in it. And the name revealed of God the creator is *"I AM"*. (Exodus 3:13-15) *"When I go to the people of Israel and tell them that the God of their fathers sent me. The God of Abraham, and Isaac, and Jacob, and they ask me, 'What is his name? What shall I say?' The voice answered, 'I AM that I AM.' Say unto them 'I Am hath sent you.'"* It was never revealed before that that was the name of God.
+
+We are told in Psalm 9:10: *"And those who know thy name put their trust in thee."* If you know the name! You and I have heard the name, but if you really know it, you will put your trust in the name, and I tell you the name is *"I AM"*. It's not John, it is not Jesus, it's not God, it's not Lord - it's nothing outside of *"I AM"*. The word translated *"Lord"*, (which is Jehovah) means, *"I AM"*. When I say I am the Lord thy God, I really should say - if you really want to understand it - *"I AM that I AM"*, your creator.*" For the word now translated "*God*" is the word "*Elohim*", the word used in the first chapter of Genesis: "*And God said*" (that is, "*Elohim*" - a plural word): "*Let us make man in our image." 
+
+When you read the words in the sentence: *"I am the Lord thy God"*, the word *"I AM"* is the same word translated [as] *"Lord"*. So, I AM that I AM, the God who created you in his image, and beside me there is no other God, no other creator, no other savior. That is what was revealed in the state known as Moses. If you take the name of Moses, men-shin-he, - and if you turn it backwards it spells *"name"*, *"shem."* (The common word for name in Hebrew is *"shem"*.) If I take the middle letter out [of *"Moses"*], which is a *"shin"* and put it first of the three little letters shin-mem-he, it spells *"heaven"* [correctly: sham-may-im]. So, here the name means so much.
+
+I call everything out, born and reborn, to bring all things within me that are to be born, and I do it in his name. I am drawing it out of myself - that is Moses - Moshe. I turn the name around: I do it in his name (*"shem"*). And where do I draw it from? Shin-mem-he, [pron. *"sham-mah"*] out of heaven [lit. *"from there."*] And where is heaven? Heaven is within you. Out of my own being I am drawing everything, but I draw it in his name. There is no other name under the sun by which this is done. And so, how do I draw anything? I draw it only in his name. We are told he draws it all out - but he cannot enter the kingdom of heaven - the promised land, called Canaan.
+
+The one who will take the Israelites in is Joshua. The word *"Joshua"* is the identical word as Jesus, spelled the same way. He cannot go in; he is only the power that draws it out - Jesus does, whose name is Joshua. Before we reach that state called Joshua (which is Jesus), we pass through the state of Elijah. The word Elijah, *"my God is Jehovah."* If I say my God is Jehovah, I think in terms of some external Lord. If I say *"My God is I AM"* then you might think me arrogant, think me blasphemous, yet that is exactly what the word means. 
+
+His story is told us in the Book of Kings. In the Book of Kings there is nothing but sheer unadulterated power. When a man feels it and knows what he can do, untempered by love, he does everything. That is what Elijah did. He called down the fire and destroyed the sacrificial bull, turning it to ash. Destroyed the children who criticized him and then the 450 prophets of Baal who could not bring down any fire; he did in the twinkle of an eye. He ordered the destruction of all the prophets of Baal. Violence in the extreme. Then we move from this state to the Joshua (which is Jesus) where the same power - infinite power - is tempered with love.
+
+Let me give you my own personal experience concerning these states. When you meet these states they are personified as men. Thirty odd years ago I was taken in the spirit into a divine council, a divine society, and the first one to meet me was the embodiment of infinite might. He was seated (and the symbolism is perfect) in a chariot, and hitched to this chariot was this perfectly marvelous pair of beautifully harnessed horses, and seated in the chariot was infinite might - eyes of steel, not an nth part of love came from that face to mine. As he thought, I heard what he thought. He looked at me eye to eye, but no emotion of feeling concerning love or mercy or tenderness came from his eye to mine - just sheer might, sheer power. No power on earth can compare to the embodiment of that power.
+
+And just as we are told: *"When he ascended in his fiery chariot leaving no trace behind..."* It seems such a stupid statement to make, that not a thing on earth could lead one to believe that it could be literally true. And yet, my mystical experience confirms the truth of that statement, for there is the perfect embodiment of the chariot and the horses, beautifully harnessed, and the charioteer is Elijah himself -infinite power. The horse is always the symbol of the mind; in this case the mind is harnessed, disciplined, and directed by the charioteer, the one who is in control of that disciplined mind, but no feeling, no emotion of love.
+
+Then I was taken into the presence of infinite love, infinite mercy, and here I stood in the presence of Christ Jesus - a state, yes, a living state - and talked and communed with him. He asked me: *"What is the greatest thing in the world?"* And I answered in the words of Paul: *"Faith, hope and love, these three abide, but the greatest of those is love."* At that moment he embraced me and I became one with infinite love. I have never known such joy in my life, never known such peace and mercy, such anything concerning these attributes. While in this embrace came this voice out of space, and I found myself once more in the presence of infinite might - and he is called Elijah. Another name for him in the Bible is Elias, God Almighty. No mercy there as yet, no love, just sheer power, and it was he who sent me back to where I am today with the command: *"Time to act."*
+
+All this was done in the state of Moses, that state that I entered not voluntarily; I was drafted, as I was drafted into God's army without my permission, my consent, for a purpose: to lead me out of Egypt into the promised land. But I have to pass through these states. Everyone passes through these states. So, Moses is the mediator, the state of all the things that happen to him, and he in turn then shares with those for whom it happened. And so, it happened to me, that state of Moses. Then I in turn prepare to share with you the things that happened to me, for they happened because of you, to tell you it is all true. 
+
+You say: *"A little handful like this and three billion of us in the world?"* It doesn't matter if only one came and heard of God's word and the truth of that word; it would be infinitely greater than the three billion who didn't hear of it. For we enter the kingdom of God one by one. We do not enter in pairs. I can't take the dearest soul in this world to me with me into that state. We have to go alone, singly. We are known singly and loved singly and no two can go together. So, it doesn't matter if I speak to a hundred or to one, or speak across the nation on radio to two million - it makes no difference. Do they believe it? The story is: *"Tell the story as you experienced it, in the hope, yes, that they will believe it."* But no one has any assurance that it will be believed, but only as it is believed and accepted by the individual do we start the journey out of Egypt. Egypt is not in the Near East; you are Egypt.
+
+Joseph - which is your own wonderful human imagination - is buried in Egypt, (the body). He contains within himself the whole vast world, and now it has to be led out. It is led out by the true revelation of the true name of God. In the fifty chapters of Genesis the word is not revealed, not used, and then comes the revelation of the 3rd and 6th chapters of Exodus: *"Go and tell them 'I AM' sent you."* All through the entire book, when you read this strange translation, *"I AM the Lord"* is simply *"I AM the I AM."* Why take the second *"I AM"* and then call it 'Lord*"? The average person reading it can't quite understand it, but the identical words that begin the sentence: "*I AM*", which is Yod He Vau He [pron. Yod Hey Vav Hey] is the word that comes just two words removed: "*The Lord*" - "*I AM the I AM*", your God and besides the "*I AM" there is no God. I AM your maker, therefore you are really self-begotten in the true sense of the word.
+
+So, these are three fantastic states through which man moves, and the day will come when you, too, will be taken by a whirlwind into heaven and you will be brought into the presence of a state; but to you it is something completely independent of your perception of it. When you look at him he is a power, I mean a power beyond the wildest dream of man - and it is man. I could paint a picture for you, could I draw. I can see him so clearly and it was thirty-odd years ago. More vividly than anything that happened to me - today it is so indelibly impressed upon my mind - and yet it is a state called Elijah. And one passes through that state where it is nothing but sheer might. 
+
+You see it in the world today. It could be economic power, where there is no feeling whatsoever but simply to get a new power. It could be a military power, social power, intellectual power, or any other kind of power, without feeling or compassion, just sheer might. We see it describing the world in the morning paper. Not a bulletin on the radio or TV that doesn't describe this sheer might. If I can get the better of that nation or nations without feeling it doesn't matter - that's Elijah. Read this story in the Book of Kings, where it passes from that to God himself, and that is Christ Jesus. 
+
+When you stand in his presence, again he is no other than you. He communes with you, he asks you questions and you answer the question, and he embraces you and it all seems so much the two of you - and yet you are told in Zechariah 14:7: *"His name is one."* He seems to be another, he embraces you, but at that moment of the embrace you become one and the Lord - the *"I AM"* - is one and *"His name is one."* Then you find yourself fused with God himself and there aren't two of you - not you and God - you are the very being that you have been seeking, you are he.
+
+And then comes the sentence to recall all the means to be sent, for you are called and then sent to reveal all that has happened to you, in the hope that those who hear it will accept it. We are told many rejected it and many accepted it. That is how it is all singled out. Eventually all will accept it. It is a form of preparation leading up towards the fulfillment of his purpose, which is to give himself to us. For it is God's purpose to give himself to you individually, as though there were no others in the world, just God and you. 
+
+And because God is one and his name is one, there can't be God and you. For you stand in his presence as you answer the questions. You will - you'll answer it automatically: *"What is the greatest thing in the world?"* You say *"love"*. Then you are embraced by love himself and you aren't you and love - you are love. You are the embodiment of love and you never felt such mercy, such compassion, such love, and you are one with it, but there aren't two of you, you are God. And while in the very embodied state of infinite love, you are sent - sent to do what you will be doing right in this world, because everyone must be led out of Egypt. *"Bring my people out of Egypt,"* even though I will harden the heart of Pharaoh and keep them back in Egypt, I will still tell you to bring them out of Egypt.
+
+If the heart is hardened because of what we have to say (because in this audience we are Christians and Jews, undoubtedly all of us) there may be one who does not call himself a Christian or a Jew, who thinks I am neither -I'm an agnostic, or I'm an atheist, or maybe I'm some other creed. But I would say that on a whole as I go across the country I speak to hundreds of Christians and Jews.
+
+The word *"Moses"* to the Jew is a sacred name, the one who was a leader, chosen by God to lead his chosen people out of Egypt into the promised land. And Elijah, the great prophet. To the Christian, what more sacred name than the name of Christ Jesus? I tell you these are infinite states, eternal states, through which the immortal soul passes, and he awakens in the very end and is confronted by God himself, the Ancient of Days. Then you will know. 
+
+On the Mount of Transfiguration these were the three who appeared. There was Moses, Elijah, and Jesus. *"They all shone until their faces were like the sun."* That is true. We are told that when Moses came down from the mountain, they all were afraid because he shone so, and he covered himself with a veil so he could talk to the people while he was veiled. The veil is the human body. This garment is the veil to talk to man, for if you saw him unveiled you couldn't stand the light. But when he went into the presence of God he took off the veil, and he is one with him. He comes down and before he could put on the veil there is a light that dazzles the eye of mortal man.
+
+May I tell you: whether you believe it or not, the morning it first happened to me I was alone in my own room on 49th street in New York City. It was four in the morning. There was no moonlight, no reason for light in my room, no light was on -but here was this unearthly light that filled the room and it did not subside until the sun came out. The room was completely radiant with light but no one could see it but myself. So, I tell you this symbolism is true and it is all about you. Everything in the book is about you. As we are told in the 40th Psalm: *"In the volume of the book"* - some translate it: *"In the volume all about me."* It is'the whole book is about you, and these fantastic characters are the eternal spiritual states through which you move. Everything is planted in you and recorded in that first book of Genesis. Then comes the beginning of Exodus where man is making his exit from the world of slavery, the world of Egypt (and it's not in the Near East) this where I go. This (the body) is the world of Egypt and I am pulling myself out, and there are series of signs which will accompany my exit from Egypt.
+
+One of the signs you are told about only occurred in connection with Israel's departure from Egypt, and that is the serpent. Moses throws the serpent to show you, and no one understood it, no one. Today how many people understand the symbolism? It is true. It is recorded for us in John 3, that it must take place: *"Just as Moses lifted up the serpent in the wilderness so must the Son of Man be lifted up,"* in the same manner. You will find yourself one day actually experiencing the state of being lifted up in serpentine form, lifted up into heaven. Signs follow, as told us in the book of Deuteronomy: *"And Jehovah delivered his people from Egypt by signs and wonders."* Always signs and wonders, everything was a sign, but how to interpret the sign. Wait for it; all these signs will happen.
+
+At the Nativity, the angel gave a sign through the shepherds, and people have completely misunderstood the sign and think it is the event. It is only the sign, which is the deliverance of an individual into heaven from the land of Egypt. Simeon comes into the temple and looks at the Child and tells them: *"This is a sign that is spoken against."*
+
+Now in this audience for the last three years, I would not say there were many, but I have heard personally and through the grape-vine, those who spoke against the sign - some never to return in the interval of three years. So this is a sign that will be spoken against. How true the prophecy! Those who come home today socially - we dine together, but they will not be seen here - and when we are together socially, we never discuss the sign. And so, Simeon comes into the temple and sees the Child and makes the prophecy: *"This is a sign that will be spoken against."* And those who will come - you haven't spoken so far against it - but I know dozens who have spoken against it to the point of never having returned to this auditorium. He gives us signs and wonders as he brings us out of Egypt and the story of Christ Jesus, every event, is only a sign.
+
+Not a thing takes place here on this level. Everything recorded about it, from his birth to the very end - the ascension - is a sign; and everything is going to take place in you. The birth, or the miracle, the fantastic things - yes, and the transfiguration too. And when it does take place, you too will swear those who were present to secrecy. And yet the thing is so fantastic you need not even swear them to secrecy, but you do it automatically, because like Peter, James and John, they were not asleep but they were drowsy. And they look at you and they can't believe the wonder of it all. When they return here to this level they don't remember, or if they remember they only vaguely remember. Peter was filled with sleep, yet he kept awake, but he was drowsy. So he couldn't quite see the glory that was given at that moment to the one called Jesus, because in the end when the whole thing vanished, there was only Jesus.
+
+These states remain behind for all to pass through, and one who is left at the very end - he is Christ Jesus. There is nothing at the end but Jesus, and Jesus means *"Jehovah saved."* He is a savior and he saves you because you are he. You are self-begotten. In the end you come right out and you are one with the being who begot himself as you. These are the states through which you - the immortal you - must pass to awaken as God, and there is none but God.
+
+Moses is sent. It isn't voluntary. He is drafted, and he becomes one with the state and he brings himself out of the confusion of the state of Egypt into the harmony, the peace and the joy that is God. He has to pass the state of Elijah - sheer might and power - and he moves through that out to Jesus. So, in the end everyone is Jesus. Everyone will be Christ-like without losing his definite individuality. I will know you and you will know me, and yet you will be transformed and I will be transformed.
+
+I can't describe what I saw, and I can't find the words to describe what I revealed to the one and swore her to secrecy, but I am quite sure she was in a state of semi-sleep and would not - or could not - remember. Everyone is destined for it. You may take it lightly and think: *"Well, that's silly,"* because that is the whole vast world, and in teaching this story for 2,000 years or beyond that, they don't see the mystery. It is all a mystery. I have been asked from this auditorium: *"Is it right to tell it."* Certainly it's right to tell it, you can't restrain yourself, but it is something difficult to describe because it is mysterious in character. Not a thing to be hidden from the world, for you are destined to be Christ Jesus; but you will not become aware of your heavenly inheritance so long as you still wear this garment, which is a veil. But you will continue to do the work and tell your story to all who will listen.
+
+So, Moses begins the great exodus. It really is the beginning of the birth of Israel. He not only attains the birth; in him the state called Israel is born. Then he is pulled out to the flower that is Christ Jesus. But he passes through that mighty state, Elijah. Then you go past him, taken by the wind, into the presence of the Ancient of Days. Then comes the most glorious thing in the world, love. All states, granted, but you will meet them, and meet them in this holy assemblage, and each will be identified, and they are all taught [in] the story of the scripture. So, I tell you: these are not characters. The names signify the eternal states through which you and I pass. Everyone is destined to meet the same end, and the end is - God. We all awaken as God.
+
+So, *"Let us make man in our image"* is true, and that is Elohim. But the name isn't really revealed until the journey starts. If you believe the name, read Psalm 9:10: *"And those who know thy name put their trust in thee, for thou, O Lord, hast not forsaken those who seek thee."* It should not be *"O Lord"* for again you get off the beat. The word *"O Lord"* is Yod He Vau He. He is addressing himself, and we found the name *"I AM"*. And your name is *"I AM"* for *"I AM"* would not forsake myself. That's really what it means. Read it carefully.
+
+Do you believe the name I told you this night? That is the name of God. If you really do, you'll put your trust in him. If you go out of here tonight hoping that something other than *"the name"* will draw you out of sickness, or poverty, or being unknown, or anything else in the world, you have not put your trust in him. If you really believe him, put your trust in his name, and trusting in his name you are moving out of Egypt into the land that was promised. For you rise into a land completely subject to your imaginative power.
+
+Every man needs a state to express him. Moses is a state, Elijah is a state, but it can't express itself, it needs an agent, and the agent is always man. So man, the pilgrim, moves into a state and then the state becomes animated, and if you saw it, it is personified - that's man, because you occupy it. Man is the operant power. *"Where man is not, nature is barren."* There is no state beyond this drama, which is Christ Jesus. *"In many and various ways God spoke of old to our fathers by the prophets; but in these last days he has spoken to us by his Son, whom he has appointed the heir of all things, through whom he also created the world"* Hebrews 1:1.
+
+Now let us go into the silence.
+
+
+
+
+
+## Summary
+
+### Introduction
+- Biblical names reveal the character and nature of the bearer.
+- Characters in the Bible are eternal states of consciousness.
+- The Bible is a plan to be understood through revelation.
+
+### The Book of Genesis and the Seed Plot
+- The book of Genesis is the seed plot of the Bible.
+- Joseph, representing human imagination, is in a coffin in Egypt.
+- Joseph's body is to be taken to the promised land.
+
+### The Book of Exodus and Moses
+- Moses is found by Pharaoh's daughter and named Moses.
+- Moses means "to draw out" or "to be born".
+- Moses is a state of consciousness leading people out of Egypt.
+
+### Moses, Elijah, and Jesus
+- The burial places of Moses, Elijah, and Jesus are unknown.
+- Moses means "to be born", Elijah means "my God is Jehovah", and Jesus means "Jehovah is savior".
+- Moses, Elijah, and Jesus represent different stages of spiritual awakening.
+
+### The Name of God
+- Moses is the first to have the name of God revealed to him.
+- The name revealed is "I AM", meaning self-begotten and creator.
+- The word "Lord" in Hebrew also means "I AM".
+
+### Passage through States of Consciousness
+- The journey of awakening involves passing through the states of Moses, Elijah, and Jesus.
+- Moses represents birth or being drawn out of Egypt.
+- Elijah represents sheer might and power.
+- Jesus represents love and compassion.
+
+### Personal Experience and Revelation
+- The author had a personal experience in different states of consciousness.
+- The author encountered infinite might, infinite love, and the command to act.
+- Everyone is destined to pass through these states and awaken as God.
+
+### Signs and Wonders
+- Signs and wonders accompany the exodus from Egypt.
+- Signs represent the deliverance of individuals into heaven.
+- The signs in the story of Christ Jesus are also symbolic.
+
+### Meeting the Eternal States
+- Everyone is destined to meet the eternal states mentioned.
+- An individual will be transformed and become like Christ Jesus.
+- Everyone will awaken as God.
+
+### Trusting in the Name
+- Trusting in the name "I AM" is necessary for the journey.
+- Putting trust in the name leads to the promised land.
+- Every man needs a state to express him, and man is the operant power.
+
+### Conclusion
+- The Bible is a plan to be understood through revelation.
+- Everyone is destined to awaken as God by passing through different stages of consciousness.t in the name leads to the promised land.
+- Every man needs a state to express him, and man is the operant power.
+
+### Conclusion
+- The Bible is a plan to be understood through revelation.
+- Everyone is destined to awaken as God by passing through different stages of consciousness.usness.
+
+
+#

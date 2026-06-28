@@ -1,0 +1,112 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Story Of Judas
+keywords: []
+bible_ref:
+tags: lecture
+topics: [The Power of Imagination, All the World's a Stage, The Character of Judas, Misuse of the Power of Imagination, The Purpose of the Play, Playing the Role of Judas, The Word of God, Discovering the Identity of God, The Power of Imagining, The Power of Imagining]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+We tell you here that we believe you can be what you want to be in this world and that it is my purpose to tell you. If I have moments in my life I regret it, not in the sense of a change of mind as in the word repent, still I must tell you. I may have moments of regret that you have misused this power for any purpose, yet it is better that you misuse it, rather than not to use it. How many times one feels concerned at the misuse of this principle. Yet it is better to misuse it than to bury it, for even by the misuse we learn, though painfully. In the story of the talents it was only the one who did not use it that was condemned.
+
+We are living in a world that is like a play and some seem from birth to be cast in a difficult role, and yet you tell him that God is Infinite Love. But he is the playwright and the casting director, for this is a play. As Shakespeare says, *"All the world’s a stage and all the men and women merely players. We have our exits and our entrances and one man in his time plays many parts.” But that "*time” is not three-score and ten; it is the time it takes to awaken that man, the perfect actor, or God. So I play every part, but playing every part does not mean I play every man or woman in the world. There are billions of actors but only so many parts, and every part you and I must play. The central figure, the star, is Christ, and the whole play is about Christ from Genesis to Revelation, but there are many parts that reveal it. There are twelve main characters (the 12 disciples), and the four-and-twenty elders, and the High Priest Caiaphas and his political opponent, Pilate. These are in every age and every time. The purpose of the play is to awaken in us the actor, God. These characters of the Bible are not people: they never walked the earth as people. We play all the characters, but they do not live any more than Hamlet lived. When Olivier plays Hamlet, Hamlet can do nothing but what Olivier does, and then Olivier can if he wishes play another character altogether. The characters are the eternal states of the Soul, but we must learn to distinguish the man from the characters he is playing. The characters are real in eternity and we assume the character and play it on this sphere. To say that everything in this world is a play does disturb, but I want you to believe it.
+
+Tonight I want to discuss the most difficult of all the characters, and if asked you would refuse to play that role, but it is the most important, for until it is played, Christ cannot awaken within you. It is the character of Judas. People say he is the betrayer, but to be able to betray I must first hold the secret. So I betray you into the hands of your enemies. I reveal you, for that is what *"betray” means. Only he who knows God could reveal God. Only Judas did not leave Jesus in the garden. The others left him, but Judas remained to reveal Him, or betray Him, and then Judas commits suicide. But we are told, "*No man takes away my life, but I lay it down myself.” So, who is Judas? Until that character is played, Christ is not awakened in the mind of man. He reveals God. Then he repented when he found that those to whom he revealed the Lord spat at him and reviled him and condemned him. It does not mean upon a man; it is a symbol. But I say the time will come when you will not repent, even though you will be concerned as to the consequences of your act. The word is only translated six times in this form. Paul wrote a bitter letter to the Corinthians and he said, *"I do not repent or change my attitude toward you.” And another time when Jesus is made a member of the order of Melchizedek he says, "*I do not repent.” But in this case when Judas reveals the Lord to the world he repents, for he sees what they did with the knowledge. Not something done to a man, for Christ is invisible, for he is the Lord and the Lord is spirit and spirit is without form. You tell the world who He is, as man’s Invisible Reality, and then when you see that they spit in his face – figuratively – then you are concerned for the consequences of your betrayal of the identity of God.
+
+Judas is not a man any more than Christ is a man. Christ is the Invisible Reality, and all the others are states, and we move into states. But when you are cast in the role of Judas you are at the end of the play and the play is over. You betray the identity of the Creative Power of the universe and then you "commit suicide,” you hang yourself upon a tree. As he betrays Him he becomes the very being that he betrays.
+
+Now Judas comes from the same form as the word Judah. It means the hand. It is the first symbol in the name of God, or the Hebrew symbol *"Yod,” the hand of worship, the hand of the Creator. Then the second name of Judas is Iscariot. "*Is: means *"Man”; "*Cariot” means *"to lay timber,” or the carpenter. So Judas betrays the Lord, for no one knew him, but Judas told them, "*when I kiss him you will know him.” And yet Jesus had said to them, *"I have been with you three years and you do not know me?” The others ran when he was arrested, but the one who knew him kissed him and said, "*Do not let him go,” and that is your Imagination, for that is Christ. There is no other. Christ in Man is man’s own wonderful human Imagination, and with Christ all things are possible.
+
+So you can take this revelation and go out and be anything you want to be. If using this power I go out and take advantage of another, it means my misuse of what I have just heard. But the one who tells you and then sees what you do with it often repents. So the story is told you that they spat on him – not a man, for who can spit on Imagination – not knowing there is no other: we are all one. This is spitting on Christ or putting stripes upon him. Not on his body for He is invisible, for my Father is spirit and spirit is invisible.
+
+So the most difficult to play is that of Judas, or the betrayer, and if the playwright were casting the play no one would volunteer to play it. But one has to go out and "betray” God by telling his identity, and to the degree that you can do it you will prove it by the behavior of those to whom you tell it. For all the characters of the Bible are true as states and they live forever. God sends his sons through these characters as actors that at the end of time He may awaken these actors as Himself.
+
+You are infinitely greater than any character in the Bible, for they are states, but there is another one that is not a state and that is Christ, and he is being awakened in you. Christ is God and He is awakening in every being in the world. He has prepared a play to awaken every child born of woman, and to create like his Father he has to go through every experience, and they are all written in the Bible. So there are the twelve, and the four-and-twenty, and there is always the political power, and the religious power, and the wise men, called the Sadducees, and those who conform to that which they think will make them important in the eyes of men – the Pharisees. Then there are those who have mechanical talents; you can take from the inspired works of a Shakespeare or a Blake and write many books, but they could not write one thought that is original, and they are the Scribes. Then there is "the multitude,” who hail the hero today and then stone him the next.
+
+So the eleven could not commit suicide or, in other words, let go of everything they had ever heard regarding causation. That is everything that you previously thought you must let go of and die to and live only to the Christ. And so you read the statement of Paul that he comes to teach only one thing, and he got it from revelation. It is true: it comes by a vision, but then the Sadducees will laugh at you. We have this now in our midst as they talk about evolution, and the world has accepted it, yet I am told that God created all things and called them good, and wondrous. All were distinct acts of creation. I have nothing to do with anything less than man, but everything less than man only bears witness to what I Am. I did not evolve through all the animals. That is true only as related to human affairs. I see it move from the canoe to the ocean liner; from the plow to the tractor, from the cave to the palace. Evolution is only in the affairs of men. The bird builds its nest as it first built it and it is fixed and perfect, but the things of form evolve. But this is not man – this body – this is only the mask (Persona). I am all Imagination and I wear this mask until I go through all the parts, and then I am He, for the purpose of the play is to awaken us, "for God alone acts in all existing beings and men.” The purpose of the play is to make us actors, even bad ones. If we are bad ones the one who reveals the secret repents, yet he would not change it.
+
+We are told that when Judas came and kissed Jesus that Jesus said to him, *"Friend, why are you here?” The translators could not bring themselves to believe the actual translation so they have put it in the footnote; "*What you have to do, do it.” The actual translation is, *"What you must do, do it quickly.” You have to do it. You have to tell the world who God is and that He is Imagination, but the translator used the sentence, "*Why are you here?”
+
+Everyone is an actor awakening, so I say to everyone, you are playing all the parts, and I hope you will start to play the part of Judas. You did not come to play just one part. Everyone plays many parts. You can, if you will, slip into this part of Judas. You could play Caiaphas or Pilate forever, and think that causation is external, or is in the hands of the political or the religious powers, or the great universities. Until it comes (Ed. Note: the understanding of true causation), you do not know it, but I know who I am and who you are. Every being is God in different states, all playing these wonderful parts, but when he awakens he is God, and no matter what he has ever done he is forgiven. When he awakes he is white as snow, no matter how scarlet things were.
+
+I ask you to take this revelation of God, who is your own wonderful human Imagination. That is what Judas tells you, and I am playing his part. He is not a man but a state into which I have entered deliberately and consciously, for no one can betray God unless he knows the secret. We are told in Corinthians, *"Who knows the thoughts of a man but the spirit of man who dwells in him.” Who could reveal or betray God, but he who knows His secret? But if you know it and you test and prove it, then you are commissioned to go out and betray God. You go out and betray the secret of creation. "*Then he went and hanged himself to a tree.” This body is a tree. He comes to do it and he had to do it, but then he stands aghast at the use to which they put this secret about which he came to tell.
+
+Then the next stage is to awaken completely as Christ. "We do not yet know what we shall be like, but when we see him we will know him, for we will be like him.” You will be like the very Being you were sent to betray. Everyone here will play every character in eternity. I do not mean people. They will go through all the characters, for the characters are eternal states. Distinguish man, who is all Imagination, from his present state. You can forgive him anything knowing he is playing a part written for him by God. We are all players in God’s play. You can go back and see the parts you have been playing from the cradle until now. If you were given a vision you would now, this moment, see in human form the state that I am playing. You would see it and yet it is not a man but only a state. I have seen people in argument and over them you see figures in contention. They are only playing states and as they forgive and shake hands these would vanish.
+
+A gentleman sat here the other night and he wrote to me; "As you began to speak I saw over your shoulder a patriarch: who wore the black hat and robes of a priest. I do not know who he was but I feel he is a great inspiration to you.” This is true, for I entered a certain state (I was speaking about the foundation stone) and that state was personified as a man. I was telling you that the foundation stone of everything is Imagining and not to leave that and go in search of another foundation. And here this gentleman saw a being who was to him a patriarch expressing what I was talking about. I know it is true, for I am never alone. But you are infinitely greater than the state, for you are a living Center of Imagining. You can move through all the states; you are not the state.
+
+They build churches to Peter, or to John, etc. They are being built only to states, and the states are eternally dead until the Son of God gives them life. When you enter the state of contention it is then alive, but if you are not in the state of contention it is dead. They do not build churches to Judas. I lived on a little island and they divided it into eleven parishes, named for the disciples, but there is no Judas. My forefathers did not know he was the most important, for only he could discover God and betray him. They call one who betrays a friend a Judas. But in Matthew 26, Jesus calls him, *"Friend” and then he said, "*What you have to do, do quickly.” He did not call the others friend. He called Peter, *"Satan”, but to Judas he said, "*Betray me!”
+
+And then often those to whom the secret is revealed begin to use it wrongly. They discover Imagination creates Reality, and disliking someone they will imagine something bad and by their very intensity, bring it to pass. You can use this in a horrible way, so we are told he repented or was deeply concerned as to the consequences of his act.
+
+You can be what you want to be in this world, and those who recoil from this Truth are its enemies and do not know it. Millions will recoil from it, but that is all right for they have not yet reached the point where they can be cast in the role where they will take it and go out and betray God. You can betray God only by revealing Him. You will not know Him by anything the scribes or the Pharisees will tell you, but only by inner revelation. And when you are fully persuaded you will go and tell it. Then whenever the day comes to close this eye and take off this mask, you will awake among the giants of those who are awakened. But none will fail, for everyone in eternity will finally awaken. So if I have to play a part over and over until I am buried in the part, I will be buried until I learn I am the actor and not the part I am playing.
+
+Isaiah 40:6-8 – it seems so strange that the book that forms the foundation of the play should make this statement: *"All flesh is grass, and all its beauty is like the flower of the field. The grass withers, the flower fades but the word of our God will stand forever.” And the "*Word” is the play from Genesis to Revelation. If you took all the Bibles and burned them, the play remains in spite of the written record.
+
+We hear so much about goodness; few can define it since no two ages have the same concept. I do not teach you to be *"good”, but to be creative in expressing this great talent. Do not bury it even if, in using it, you make mistakes. Prove it in your own life and then go out and tell others. No priesthood could send you or have the power to send you out. No holy water will send you out. You are sent by God and God is spirit. So if you feel moved to do it do not hesitate, and if you make mistakes and I hear of them I may feel for a moment that I wish you had not, but I will not really regret that I told you of the identity of God. Your human Imagination is God and is one with that which sustains the Universe. When you see it you go out and betray, or reveal it. Judas means "*hand” and that becomes the first letter of the name of the creator. (Yod He Vau He)
+
+We are told that Judas betrayed his Lord for thirty pieces of silver and then he was said to have turned it back to the priest. They bought the potter’s field. It means *"maker”. It appears 62 times as "*maker”: It is used only a few times as *"potter”. It means "*maker” in the sense of one that is a craftsman, as a goldsmith or a silversmith. It means that the individual is a maker. So he took the fullness of the price of God – for 30 means *"fullness”. He went through every furnace, for no one playing Judas could skip one. So he paid the price. And then he threw it to the potter. He should have thrown it to the silversmith. But the same word translated as silversmith is also translated potter. I pay the full price to discover that my Imagination is God and then I die to all I formerly believed and then tell it to the populace, and then have them deny it and "*spit” on him, etc. It has nothing to do with anything taking place on earth. Go out, think about it and determine to make yourself the person you want to be. Then betray this secret and tell others what you have discovered.
+
+Imagine the loveliest things in this world for yourself or for another. So let us go now into the silence and when you break it, knowing that Imagining is God, let no one persuade you there is any other cause for phenomena. Go through these doors knowing it is so and then you will not be impatient, but you will let it be so, for God creates Reality. The Father walks through the world with me and I do not know it. I do not know that the Imaginal activity is the cause of what appears in my world.
+
+
+
+Now let us go into the silence.
+
+
+## Summary
+
+### The Power of Imagination
+- We have the power to be what we want in this world
+- It is better to misuse this power than to not use it at all
+- The story of the talents teaches us that not using our power is a condemnation
+
+### All the World's a Stage
+- The world is like a play and we are all actors
+- The central figure is Christ, and the play is about awakening the actor within us
+- The characters in the Bible are not people, but eternal states of the soul
+
+### The Character of Judas
+- Judas is the most difficult character to play, but the most important
+- Judas reveals the identity of God by betraying Him
+- Judas repents when he sees the consequences of his act
+
+### Misuse of the Power of Imagination
+- Some people use the power of imagination wrongly, imagining bad things for others
+- The story tells us that others may condemn or reject us for revealing the truth about God
+
+### The Purpose of the Play
+- The purpose is to awaken the actor within us, to realize that we are God
+- We are greater than any character in the Bible, as we are a living Center of Imagination
+- We go through different states and experiences to awaken as Christ
+
+### Playing the Role of Judas
+- We are encouraged to play the role of Judas, to betray and reveal the identity of God
+- Everyone plays multiple roles in eternity, distinguishing the man from the characters
+- We are forgiven and awakened as Christ, no matter what we have done
+
+### The Word of God
+- The Bible is the foundation of the play, even if all physical copies were destroyed
+- We are not taught to be "good," but to be creative in expressing our talents
+- No priesthood or ritual can send us out, we are sent by God
+
+### Discovering the Identity of God
+- Judas means "hand," symbolizing the Creator
+- Judas betrayed for thirty pieces of silver, paid the full price, and threw it to the potter
+- We should die to our former beliefs and tell others about the power of imagination
+
+### The Power of Imagining
+- Before breaking the silence, we should know that Imagining is God, the cause of our reality
+- We should not be impatient, but let God create reality through our imaginal activityt the power of imagination
+
+### The Power of Imagining
+- Before breaking the silence, we should know that Imagining is God, the cause of our reality
+- We should not be impatient, but let God create reality through our imaginal activityctivity
+
+
+#

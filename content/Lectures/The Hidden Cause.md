@@ -1,0 +1,121 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Hidden Cause
+keywords: [Assumption, Dreams]
+bible_ref:
+tags: lecture
+topics: [The Hidden Cause, The Ambitious Elite, The Power of Imagination, The Influence of Imagining, The Ancestral Self, The Power of Imagination, The Eternal Self, The Fulfillment of Imaginal Acts, Personal Journey and Awakening, The Slavery of the Body, The Immortality of the Soul, The Immortality of the Soul]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+The dream of life unfolds on this level, as well as on a higher one. On this level we see things happen and are given reasons for wars and revolutions, as well as the geological causes for the convulsions of nature. But we do not know and cannot perceive their hidden cause, for it lies in the imagination of man. All things spring, not from the ostensible causes to which they are attributed, but from that which is hidden - man's own wonderful human imagination!
+
+In the April issue of the Atlantic Monthly, there is an article by General David M. Shoop, retired commandant of the Marine Corps. In this article, he claims that there is an ambitious elite of high-ranking officers who are turning this country into a militaristic and aggressive nation. They are promoting war in the belief that through it they will receive the promotions and glory they desire and cannot achieve while serving in a peacetime army. They dream of a war they can command in glory. Where? In their own wonderful human imagination, the hidden cause of all life! Imagination can be used infernally - as these men are doing - or towards the kingdom of heaven. This is done by thinking of a friend and hearing him tell you his good news. You can watch his facial expression change as he speaks to you. You can see him stand erect, wearing clothes he is proud of, as you feel the thrill of his change. And if you will believe that what you are now seeing is real, you can relax in the knowledge that one day your friend will conform to what have you done in your imagination!
+
+Do you know that you can take that same individual and hear him tell you sad news? You can see him dirty and ashamed, and he will conform to that image which you have created in your imagination? Your creative power, which is Christ, can be used infernally or in a heavenly way. Its use is entirely up to you. General Shoop claimed that our involvement in Vietnam was a direct result of the ambition of an elite group of high-ranking officers who prefer war to peace, in order to receive glory and prestige in their chosen field! You and I are now burdened with the enormous task of continuing their effort, which began in the imagination of a small group of men.
+
+The prophets and poets, inspired by the same voice, have told us this throughout the centuries. Yeats said: *"I will never be certain that it was not some woman treading in the winepress who started that subtle change in men's mind. Or the passion, from which so many countries have been put to the sword, did not begin in the mind of some poor shepherd boy, lighting up his eyes for a moment before he ran upon his way."* Who knows who is treading in the winepress this night? Who knows what a person in solitary confinement is imagining? Is he using this only power in the universe infernally or blissfully? I hope you use your imagination in the state of bliss, for the outside world is alive because of this hidden power within you. I know that a man, imagining intensely can influence millions. He can act through many men and speak with many voices. This little group of men, imagining their promotions, are influencing millions and moving through unnumbered men toward their goal. Those who cover their costumes with medals, like the Stalins and the Hitlers of the world, are displaying their complete misunderstanding of God's power of imagination.
+
+I ask you to believe me, for I am speaking from a level of one who has awakened from the dream of life. I have experienced scripture and know it is a true story from beginning to end. The gospel tells us of a pattern which repeats itself in everyone, for every child born of woman has within him an ancestral self, a heavenly being who supports him. This is the one who said: *"I will never leave you or forsake you."* A child is alive because a son of God - who is the emanation of that ancestral self - is in it. We are told that bounds have been set to the peoples of the earth according to the number of the sons of God. You were given the gift of awareness because of the immortal son of the ancestral you who will never forsake you, not in eternity. See how precious you are in the eyes of he who is the power of powers?
+
+Now, do not misuse this power, but use it only in love. Every person you meet, regardless of his pigment of skin, the nation behind him, or the so-called sect he is associated with, is alive because your ancestral being who has no beginning and no end is behind his mask, as he is behind yours. That one is taking him through the necessary experiences to make him one with himself, as the ancestral you is taking you through the necessary experiences to make you one with himself. Eventually you and he will return to that one being who sent you out in the first place. That is your destiny.
+
+Now, in the gospels we are told that the Risen Christ turned to his apostles and said: *"There are those standing here who will not taste of death until they see the kingdom of God."* Scholars claim this prophecy failed because they do not know what or where the kingdom of God is. It is not a realm, but a body. And it is not out there, but within. If, as Luke tells us, the kingdom of heaven is within you, who would know you entered it but yourself? And if you told your friends and it was not what they expected, would they believe you? No! They would continue to claim the promise was not fulfilled, yet I say the promises of God will not be broken. There are some standing here who will not taste of death before they enter the kingdom of God.
+
+The kingdom, being within, is entered when the curtain is split. Only then can you see the blood of your ancestral being who died to become as you are. Recognition causes you to fuse with it, and rising like a fiery serpent, you enter that holy sepulcher where the drama began. Matthew knew that the violent took the holy sepulcher by force. The word translated 'violent' here means life; to press oneself into; to find a place within.
+
+Life is in the blood. Contemplating the blood of God Himself, you fuse with it and become life itself. The Father, having life in himself, has granted you his emanation to be life itself. Becoming one with your ancestral being, you are no longer the emanated, but the Godhead through which the emanation occurred. So the statement is true: there are some standing here who will not taste of death before they enter the kingdom of God. But the only ones who will know it are those who experience it. This goes on forever and ever. If you are looking for the kingdom of God on the outside you will look in vain, for the kingdom is within and cannot be entered from without. In his 16th chapter, Matthew claims they will see the Son of man entering his kingdom, but in the 9th chapter of Mark and Luke, it is called the kingdom of God.
+
+Now, after making the statement that some standing here will not taste death before they enter the kingdom of God, Peter, James, and John are taken into a high mountain where his countenance is completely altered before them. You may think this took place on the outside, but it takes place within. The evangelists took this appearance of resurrection and recorded it as Jesus' external ministry; just as when I tell you what happened in me I speak externally, yet the three people who witnessed my transformation appeared within.
+
+Recently a lady wrote telling of finding herself in a cage, observing three men etched in gold, and a woman holding an infant. This is a perfect adumbration. The three first appeared to Abraham in the Book of Genesis, and were confirmed in Peter's second letter, where he remembers when Peter, James, and John were formed to witness the majesty of the one who was born. There are always three. The cage in which this lady found herself is the holy sepulcher, her immortal skull - where the drama began, and where it comes to its fulfillment. She saw the sign of her approaching birth from above, in the form of a woman holding a child and the three witnesses to this event. She - the emanation of her ancestral being - will awaken in that cage to return to her ancestral being, enhanced by becoming one with her celestial self.
+
+While in this world of Caesar, seemingly detached and lost, you are not, for your human imagination is a wonderful power. It is yours to use lovingly, or as unlovingly as those men did with their [[Dreams]] of wars, in order to get a little medal and be promoted. So what if they do? Eventually they will all be buried, and two generations later no one will know they ever existed. Our cemeteries are filled with monuments to those who thought themselves so important, yet no one recalls who they were. So I say: what does it matter if you own the world and lose your life?
+
+I urge you to seek the kingdom of God, for when you do, you come into a power unknown to mortal man. All of the atom bombs in the world cannot compare to the power you are destined to fall heir to. You will possess a power that can still the world. But you will never know this power without love. With this power, unrestrained, you would still a nation, face its inhabitants toward the ocean, and put the idea of entering it in their mind. Then when you release this power they would all march into the ocean. But you will never know a power greater than you know love. The power known to earthly man is nothing compared to the power of love. With that power you can stop the thought process of another, change it completely, and when you allow that energy to flow once more, he will move in a different direction, not even realizing that a change had taken place within him.
+
+When the embodiment of reason asked the Risen Lord: *"Do you not know that I have the power to crucify you and the power to set you free?"* Imagination replied: *"You have no power over me were it not given you from above."* Just imagine knowing you have that kind of power! You came to play a part called Man, and when you have experienced it, you will play the part called Jesus Christ. His play takes place in heaven, which is within. And when you tell your story, those who hear your words on the outside will either believe or disbelieve you, and you will have no power to persuade them otherwise. Those who do not believe sit in darkness, breathing war as recorded in this month's Atlantic Monthly. Although the salaries of these men come from the pockets of civilians, they are believing our country into a militaristic and aggressive nation, in order to become more glorious in their own little minds.
+
+But I tell you, your ancestral being called the son of God shed his blood for you that you may have life in yourself. I know, for when my body was torn in two from top to bottom, I saw that blood of God as my own wonderful ancestral self. I am an extension of that self, not another - for that would imply there was a greater creative power than I am. I have seen this body of love. I wore it when we embraced. I will return to it and wear it forever when I leave this body of death for the last time. Then we will not be two, for I - an extension of myself - will return to myself, adding to God's glory, His luminosity, and translucency, giving him a greater creative power by reason of the part I played, called Neville.
+
+I urge you to use your imagination lovingly on behalf of everyone, and believe in the reality of your imaginal acts. If you have a friend who would like to be gainfully employed, listen carefully until you hear his voice tell you of his new position. Feel his hand clasp yours. See the smile on his lips. Use every sense you can possibly bring to bear into the imaginal scene. Persist until you feel the thrill of reality, then drop it and let that scene fulfill itself on the outside. We are told that the kingdom of heaven is like a mustard seed. Your imaginal act created for your friend in the kingdom of heaven is that seed. Don't pick it up to see if it is growing; just leave it alone, and it will grow and bloom as a solid fact in your world. Then you will have found this hidden cause within you called Christ.
+
+Christ, the power and wisdom of God, is in you as your own wonderful eternal being. He will never leave you or forsake you as told us in the 13th chapter of Hebrews. If, perchance, one day you are swept into an unlovely state and go through hell, remember: there is that in you who will not leave you or forsake you; and if you know this principle you can detach yourself from the state and it will vanish, as you move into a more desirable one.
+
+There is truly nothing new under the sun. That which was recently recorded in the Atlantic Monthly is the same as that which was recorded in Genesis as the first frightful act, when Cain slew his brother Abel. This same act is taking place over and over again, and if a man knows how to detach himself he need not be pulled into that state. While in the army I was told I could not get out, but I dared to assume I was out. I acted, in my imagination, as I would act were I free to come and go as I chose. I persisted in this [[Assumption]] for nine days. Then the one who first denied my request granted my freedom, and that day I was honorably discharged.
+
+People plan a depression for personal gain. There are those who sell short for a personal gain. All kinds of things are done in order to be known as a billionaire; yet in time they die, to leave their billions behind for those who can't even remember their names. Leaving this little section of time, he who was known as a billionaire here, moves into another section of time to once more seek his fortune. So the words are true: there are some standing here who will not taste of death.
+
+May I tell you: no one can leave this earth until he awakens, because the earth does not terminate at the point where the senses cease to register it. When you shed your little garment, you will still be on this earth in a body like the one you left behind, only young, vital, and wonderful - but your environment will change. You may leave this world a billionaire to find yourself shining shoes, if that is to be your lot to fulfill. Your ancestral being knows what it will take to weave you into the likeness of himself, for you must be perfect as he is perfect. You will not be brought to the end until you can actually be superimposed upon his image and fit it perfectly. Then you are one!
+
+No one ever leaves this age of death until he awakens. This earth stretches for a length of time long beyond the three score and ten. The world remains terrestrial, with all of its struggles. We continue to marry and die, to know sickness and health, sorrow and joy, just as we do here, as we go from one little section of time into another and then another until - in the eyes of our ancestral self - we are as He is. So you see that statement is true: *"There are those standing here who will not taste of death."* The apostles who are called will not taste of death. No power can sweep them away from this section of time, until they go up that spiral roadway into the sepulcher where their drama began.
+
+No mortal eye can see the kingdom of heaven, and it cannot be entered from without, but must be taken violently. This I know from experience. When I went up, it was with such force I felt a tremendous pressure in my head where I was pressed in, just a little bit left of center. I tried my very best to go beyond it, but I could not. It was so crowded I pressed myself right into the kingdom as a living mural, having entered it with a force akin to violence. I have now fulfilled the 11th chapter of the Book of Matthew: *"The kingdom of heaven is taken by violence and the violent take it by force."* The old age of the law and the promise up until John the Baptist is behind us now. There is no need to do violence against your body in order to get into the kingdom. No diet or suppression of the normal urges of life will get you in. Only when you are one with your eternal self so that you can be superimposed upon him and fit perfectly will you find yourself split in two to be absorbed by the life of the being who kept you alive here as something on the outside and, like a sponge, you become one with it. Then, having life in yourself, you will return to your skull where the dream began, arriving with such force your head reverberates like thunder. But, knowing that there are people in this world who plot and plan violence, don't try to compensate; rather plot and plan things of love and affection. Do that and you cannot be drawn into another's circle.
+
+I tell you: you are an immortal being. You were the Son of God long before the universe came into being. It was you who brought it into appearance for this great experiment. You are a ray of the being you really are, one with He who is radiating you. And He will not forsake you, but will continue to put you through the paces as He fashions you into his likeness. Then He receives unto himself all of the experiences through which you will have passed, and is enhanced and glorified by them. He is afflicted as you are afflicted. He suffers as you suffer, and when you return you and He are one, for the being radiating is one with the ray.
+
+Take me seriously! Know what you want and then claim you have it. Tell a friend about it and feel his excitement for you. Persuade yourself that what you are imagining is true. Believe in its reality and it will come to pass as an objective fact on this level, I promise you. Then when the image is perfect, you will return to your ancestral self, and time will no longer be necessary between the imaginal act and the fact.
+
+There are many levels: a level here, a dream level, and a level of spirit waking, where every thought is a fact and is known. From that level you return through various barriers to this, the lowest level, where everything is completely concentrated and limited in these little garments of flesh. Here we are slaves to our mortal bodies, serving them morning, noon and night as we feed, clothe, and shelter them. When you feed your body you must assimilate what it eats. Then you must eliminate its waste and care for it.
+
+Every child born of woman is a slave to the body he wears. There is no slavery comparable to the slavery of the body. If I were a slave to one who had purchased me and I must feed and clothe him, though he has millions and I have nothing, he is as much a slave to his body as I am to mine, for he and he alone must assimilate and eliminate for himself. No matter how many slaves he may have, he cannot command them to perform the functions of his body for him. He must perform them all for himself. Everyone who comes into this world becomes a slave to the body he wears. 
+
+We are told in Philippians: *"He emptied himself of all that was his and became obedient unto death, even death upon the cross."* When God came here he found himself a slave and was born in the likeness of men, thereby entering slavery. And I can't conceive of any slavery comparable to the slavery of the body. Just imagine: you must wash it, shave it, bathe it, and do everything for it. And when it begins to wear out, you must get glasses for its eyes, false teeth, hearing aides and heart transplants - to name but a few. You must continue to patch it up while remaining its slave to the very end. Do you know of any greater form of slavery? While in our teens and twenties we never think that our body might get old and wear out, yet one day we turn a little corner of time and it becomes so obvious. Although the body wears out and becomes weaker and weaker, you are still its slave. I cannot conceive of any greater slavery.
+
+But try to live a noble life, for you are immortal and cannot die. He who radiates you will never in eternity forsake you. He could not, for you and He are one; and when you return from your journey, you will be with the one who radiated you, just as you were before the journey began.
+
+
+Now let us go into the silence.
+
+
+
+
+## Summary
+### The Hidden Cause
+- Life unfolds on multiple levels, with hidden causes in the imagination of man.
+### The Ambitious Elite
+- An article claims that high-ranking officers are promoting war for personal glory, using their imagination.
+- Imagination can also be used positively, in the kingdom of heaven.
+### The Power of Imagination
+- Imagination can influence reality and shape outcomes.
+- Your creative power can be used lovingly or destructively.
+### The Influence of Imagining
+- The ambitions of a small group of men can influence and affect millions of people.
+- Those who seek personal gain through war misunderstand the power of imagination.
+### The Ancestral Self
+- Every person has an ancestral self who supports and guides them.
+- All individuals are connected and influenced by their ancestral beings.
+- The kingdom of heaven is within, and its entry is a personal experience.
+### The Power of Imagination
+- Imagination can lead to transformation and entry into the kingdom of God.
+- The violent take the kingdom of heaven by force, with a powerful inner drive.
+### The Eternal Self
+- Everyone is immortal and connected to God, the source of all power and wisdom.
+- The experiences and lessons of life contribute to the perfection of the eternal self.
+- Time is not an obstacle to the fulfillment of the promises of God.
+### The Fulfillment of Imaginal Acts
+- Imagining lovingly and persistently can manifest desires on the outside.
+- The kingdom of heaven is like a mustard seed, growing into solid facts.
+- Christ, the power and wisdom of God, resides within each individual.
+### Personal Journey and Awakening
+- Individuals must awaken to their true nature before leaving the earthly realm.
+- Detachment from negative states is key to maintaining personal freedom.
+- Violence and negativity can be avoided by focusing on love and affection.
+### The Slavery of the Body
+- The body is a source of slavery as it requires constant care and maintenance.
+- Everyone becomes a slave to their body, serving its needs throughout life.
+- The body eventually wears out, but the immortal self remains unchanging.
+### The Immortality of the Soul
+- Individuals are immortal and cannot die, as they are connected to the eternal self.
+- The journey of life ultimately leads back to the source of their being. its needs throughout life.
+- The body eventually wears out, but the immortal self remains unchanging.
+### The Immortality of the Soul
+- Individuals are immortal and cannot die, as they are connected to the eternal self.
+- The journey of life ultimately leads back to the source of their being. being.
+
+
+#Assumption #Dreams

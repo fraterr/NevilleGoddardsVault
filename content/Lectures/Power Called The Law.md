@@ -1,0 +1,122 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Power Called "The Law"
+keywords: [Revision]
+bible_ref:
+tags: lecture
+topics: [The Power of "The Law", Stories of Manifestation, The Importance of Imagination, Understanding Jesus, Testing the Law and the Promise, The Transformative Power of Imagination, Encouragement to Test the Power of Imagination, The Continuation of Life and the Promise, The Power of Faith and the Unseen Reality, The Gathering in the Head, The Gathering in the Head]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+Any presentation of a doctrine must show that it has specific reference to life now, as well as hereafter, for secularized man is far more concerned with the present than with the future. So, if you would interest anyone in the truth, you must first appeal to the power they can experience here and now; for the promise is so fantastic that if they heard it first they might turn away in disgust. Show them what they can do right here and now. Get their interest in the power called *"The Law,"* and then perhaps they will desire to know of the promise.
+
+Let me share with you now a couple of stories a gentleman shared with me this week. He said: *"About ten days ago my wife told me of a little girl only fourteen months old who had developed lumps on her neck [in] which - when the doctor removed and tested a lump - there were signs of cancer. Three specialists had been brought in and each separately had declared the child had cancer. Only one doctor, looking at the results questioned the verdict, but they were keeping the child in the hospital for further examination. As I listened to her story I cued my wife's voice out to the point that I couldn't even hear what she was saying, but hearing her voice, I reconstructed the story and heard its [[Revision]] in my minds eye. That night as I fell asleep I listened again and heard my wife tell me the revised story. A few days later the doctors made another test from another lump and the vote was unanimous, the child did not have cancer. And since they had performed no remedial treatment in the hospital, they determined she never did have cancer, for without treatment the child could not have overcome the condition. When my wife heard the new verdict she told the grandmother and the mother what I had done, but they could not believe that an imaginal act has any power of causation."*
+
+To the world it is the height of insanity to believe that imagining creates reality, yet every mystic knows that every natural effect has a spiritual cause. A natural cause only seems to be. It is a delusion of this world, as man's memory is so poor he cannot relate what is taking place now to a former imaginal act. Always looking for physical causation, man cannot believe he imagined anything that could have produced such a physical effect; yet I tell you: as you sit alone and imagine you are setting a cause in motion, and when you see its effects you may deny the imaginal state, but your *"now"* is alive and real to you because of an imaginal act on your part and for no other reason. Your imagination sets everything in motion, but your memory is faulty; therefore you may look upon one who claims life is caused by imagination as a fool - yet Blake would call you an idiot reasoner, not a man of imagination. Now, my friend continued, saying: *"Driving home from work the other night I was thinking I could use a little more cash, as Uncle Sam would be making demands upon my income. Then I began to imagine lovely, green, crisp currency raining down on me. For about one minute I lost myself in a little shower of green currency. Then the traffic demanded my attention and I assumed my normal, alert state and forgot all about my imaginal act until the morning of the fifteenth of April. At that time my boss entered the office and said: 'You will receive a ten per cent raise in salary retroactive to April first,' and handed me a check."*
+
+Now, let me warn you tonight, wait until you get home to try it. It's much better to imagine the crisp currency falling on your bed than on the freeway! But do it, for I tell you everything is an imaginal act. There is no such thing as physical causation. It's all imaginal, but the world will not accept it. They laugh at the man of imagination but they cannot disprove it. A man may physically strike another. That was the physical cause while the blow he received was the effect; therefore the whole thing appeared to be constructed physically, but I ask you: what preceded the impulse to strike? That impulse was the unseen cause, which was an imaginal act. The world is brought into being by imagination and sustained by imagination, and when imagination no longer sustains it, it dissolves and leaves not a trace behind. One must approach the gospel on this level first. If one's interest is aroused on this level and it is proved to be true in the testing, then they may be interested in hearing about the promise.
+
+Now I go back to the little girl. Judged by human standards the garment she wears is only fourteen months old, but the wearer of that garment is as old as God himself, and God has no beginning and no end. He chose us in him, not when we came out from our mother's womb, but before the foundation of the world. Before physical creation you and I were chosen in him for a purpose, for without purpose what would anything matter if death was final? Many tyrants believe that, and with those kinds of thoughts you cannot blame them for being a tyrant. If you believed death ended it all you would no doubt do as they do. You would agree with Macbeth, when Shakespeare had him say: *"It is a tale told by an idiot, full of sound and fury signifying nothing."* That's what the world would have to be if there was no promise, no purpose or meaning behind it. But if you can get their interest in the law enough to test it and it proves itself in performance, then you can tell them the greatest story in the world in the hope that they will believe or begin to believe it.
+
+Not a thing said of Jesus can be proved outwardly. He can only be known by the visionaries. While living in this mortal body and known only by the mask I wear, the incredible story called Jesus Christ has unfolded in me. I have taken you, my friends, into my confidence and shared my experiences with you in the hope that you will believe me. You see me as alive and well, yet I know what it is to be crucified, buried, and resurrected. While in my heavenly body I chose one among you to give my immortal eyes that have been turned inward, not outward, that confirmation of my words may come from her. She has seen me nailed on a cross, which was burned to the ground leaving golden, liquid light at its base, just as I told her it had happened to me. No one can persuade her that she did not have that experience, any more than someone could persuade me that I did not have the experience.
+
+Now this lady knows who Jesus is. Knowing me as a man with all of the weaknesses of the flesh and its limitations, she had gone beyond the mask through vision and seen who Jesus really is. He has made known unto me the mystery of his will according to his purpose which he set forth in Christ as a plan for the fullness of time, that he may unite all things in him - things in heaven and things on earth. Jesus is God's plan of salvation which is in you. That plan has erupted in me and I have shared my experiences with you who come here, and also in my book, Resurrection.
+
+Now, only the visionary, only he who has the immortal eyes, will actually know who Jesus is, for he is from above and is not of this world at all. It was he who said: *"You are from below and I am from above. You are of this world and I am not of this world"*; yet, throughout history, man has been looking for Jesus in the Near East. Those who have not had the visions claim they know the spot where he was crucified and buried, the road he walked, and even claim to have a little piece of wood from the cross upon which he was nailed. They perpetuate a tradition, making void the word of God as told us in the 15th chapter of Matthew. Keeping the traditions of a physical Jesus alive, the truth has been made void, as Jesus is not a physical being but a pattern buried in every one. When this pattern erupted in me, I was as surprised as anyone could be, and although I still remain in this weak little garment of flesh and continue to suffer through all the temptations of the world, I cannot deny my visions.
+
+Now I have given my immortal eyes to one who in turn gave them to another, who will in turn give them to another, that they may all become eyewitnesses, as Luke speaks of in the beginning of his story, saying: *"Inasmuch as many have undertaken to compile a narrative of the things which have been accomplished among us, just as they were presented to us by those who from the beginning were eyewitnesses..."* Then he added this thought: "'and ministers of the word, it seemed good to me also, to write a narrative, most excellent Theophilus, concerning the things which have been accomplished among us.' Luke was able to tell all who loved God (called Theophilus) the truth because of the eyewitnesses. But when the eyewitnesses depart this world the ministers multiply. They are men without vision who never knew the one who, while walking in the flesh, gave his eyes to those who bore witness to his story. Having witnessed the drama as it unfolded within him, they depart this world and leave only the ministers of the word, who build organizations and make a little god out of the man who - while like all other men - experienced God's plan of salvation in him. They say nothing of the pattern's eruption, but only of the external man - when there is no external Jesus.
+
+You could look from now until the end of time and never find any convincing evidence of the historicity of one called Jesus - yet he is real. He is your true being, your hope of glory. Do you not realize that Jesus Christ is in you? Unless, of course, you fail to meet the test. Test him on his level. Test your creative power, called the law. Imitate my friend and allow a gentle shower of currency to fall upon you. Believe you have received them and you will. Then share your knowledge with others and show them that scripture has a specific reference to life, now! Do not start with the hereafter. You can tell them of the promise later. And remember: nothing is impossible to imagination and the world is created in the imagination.
+
+As a reasoning being you are not responsible to make anything happen. But as a man of imagination you simply imagine it is! My friend knows nothing about cancer. If he saw a cancer cell under a microscope he wouldn't recognize it. He is not a doctor and knows no more about the human body than I do, but he does know what his wife would tell him if the verdict was reversed and the child was well. When his wife told her friend of her husband's imaginal act, the friend (as the world) dismissed the idea, for she could not believe that causation was mental. To her everything has a physical cause and must be cured physically, yet I tell you: life itself is an imaginal journey. My friend heard his wife tell him of the child and then, knowing what he wanted to hear, he changed her words in his imagination. That is all he did. And those words could not return unto him void, but had to accomplish that which he purposed on the inside. He did nothing on the outside to bring it to pass. He simply remained faithful to his imaginal act and it was fulfilled.
+
+I ask you to try it, and then turn to your neighbors and say: *"Did it ever occur to you that your world is caused - not by the obvious, but by an unseen imaginal act?"* You may interest them that way and if you do, ask them to try it. If they do, and it comes to pass then you can present them with the promise. You can tell them how their weak little garment is transformed as they rise from the dead into life everlasting. I tell you: you will be a completely transformed being with a human face, human hands and voice; but the form you wear cannot be described other than light.
+
+The one thing that separates man from all other creation is his hand. The monkey doesn't have a hand. It cannot fashion, but with a hand you can become a builder. The first word in the name YOD HEY VAV HEY means *"hand."* It is the hand of the creator that fashions. If you could not fashion a suit of clothes for your body you would have to go nude, but given a hand you can turn yourself into the Father's image, which is a fiery being that you will awaken and know yourself to be.
+
+The majority of the people you speak to will not listen to you. They would rather remain the same little being they know themselves to be and to continue to wear a garment of flesh and blood which must be taken to the bathroom several times a day to perform its normal functions. Can you imagine the hell you would experience if restoration were perpetuated forever? But this is not the body you wear when you know yourself to be God. It is entirely different. It is a heavenly body - a body of fire and air that you are destined to awaken as, for that is the one body we will all know ourselves to be. But while you are here, don't neglect the law. Use it every moment of time. Nothing is beyond your ability to imagine it. You are not responsible for making it so, you simply imagine it is so and let it be so! That is how the world in which we live came into being.
+
+Before you judge me I ask you to test my words. It would be foolish to pass judgment on something you haven't tested. I have known those who claim they do not like something even though they have never tried it, but I tell you: you can acquire a taste for anything. I remember the first time I had an oyster. I was about eleven years old when mother and I visited the little island of St. Croix. In those days there were no hotels, only rooming houses and we all sat at the same common table. Everyone there spoke Danish and I couldn't understand one word they were saying, so I watched and did as they were doing. On the plate before me sat a dish with six little things in shells placed on it. Since I had never seen anything like it before, I watched the hostess. She picked up a little fork, stuck it into one of the things, and as she placed it in her mouth her face burst into a wonderful smile. Expecting the same thing, I picked up my fork, stuck it in the thing and put it in my mouth. Well, it wouldn't go down and I couldn't spit it out. Paralyzed, I realized that if I died in the attempt I had to swallow that thing, and when I did I looked down and turned green as I realized I had five more to go. But I did it, and now I love oysters in any form.
+
+So I say: you can acquire a taste for anything in this world as well as the heavenly world. Start with the law. Learn how it works, and after proving it in performance you may desire to discover who Jesus really is. You may have been taught that a woman called Mary was impregnated by God and brought forth a physical son who was named Jesus; yet I tell you: I am a normal person, not formerly educated, married, once divorced, with two children - but I have experienced everything said of Jesus Christ in the gospel. And I gave my immortal eyes to a friend (who, married twice, with children from two different men) that she may see me 
+hanging on a cross which was set aflame and reduced to molten, golden liquid light. Seeing the body that sleeps on the bed placed on a pallet, and then on a cross, she has seen the body I wear at night, and now knows who Jesus really is. No, he is not the little garment of flesh you wear, but an eternal pattern of redemption who sleeps in it. He awoke in a garment the world knows as Neville. Having awakened, I know I am He who became humanity that humanity may become God.
+
+God now sleeps in you. He will awake and you will experience the identical drama as recorded in the gospels by one called Jesus Christ, for there is no other and there never will be another being. Those who have been enriched by the law you have taught them may turn from you, because it takes quite a while for traditions to die - as told us in the 15th chapter of the Book of Matthew: *"For the sake of your traditions you have made void the word of God."* Keeping traditions alive by wearing all these silly little red and purple robes on the outside, the unthinking millions consider themselves blessed if - as he walks by - they touch his garment, or attend a service where the great one is conducting mass. But because of those traditional beliefs the word of God is made void.
+
+I am telling you what I know from experience. Take me seriously, because I must soon depart and those of you with the incurrent eyes will see as I have told you that you would. Then you will depart to leave behind only the ministers, who will turn my experiences into their institutional concept and once again void the word of God.
+
+Tonight use the law and prove its power by becoming the man you imagine yourself to be. But don't forget the promise, for without the promise what would it matter if you owned the earth? I recently read the book Stalin's daughter wrote about her father. In it she told of being present when he died. She said that he was paralyzed on one side, his brain was gone, and he was physically blind; yet he saw something that caused him to raise his good hand and motion with, it as an expression of extreme hate covered his face. It was as though he were defying the devil himself who stood before him. He could have seen a composite picture of the twenty million lives he destroyed, personified as one man, causing his little hand to be raised in defiance as he departed. He didn't believe in life hereafter. He didn't believe he would be restored to life, therefore he felt free to do everything and anything he wanted to. Standing on the balcony watching thousands cheer him, he would say: *"Fools!"* He saw them as the chaff of life, yet today these trivial people balloon Stalin as an important figure in history. But, he has to face himself now. No longer playing the part of Stalin, the same being is now a young man, healthy and strong, continuing his life, doing something that is consistent with his life to bring out that plan of salvation called Jesus, which - hidden in him - he denied while he was here.
+
+I ask you to use this power called the law. Simply determine what you want and imagine a scene which would imply you have realized it. Enter into the spirit of the scene. Participate in it by giving it sensory vividness. Then relax as you feel its reality. Don't consider the means. Know your desire is already an accomplished fact and you are now reveling in it. Then have faith, for faith is loyalty to your unseen reality. Your imaginal act, although unseen, is reality for God did it. If I asked you who is imagining it, you would respond: *"I am"* and that is God's name forever and forever.
+
+Learn to live in your imagination morning, noon, and night. This gentleman whose experiences I shared with you tonight told me that when he first heard me he thought I was crazy; but he tried it, and although it didn't make sense it worked. I know the law and the promise do not make sense from a worldly point of view, yet I tell you: there is a plan of redemption buried in you which will erupt in the fullness of time and you will experience all that is said of a man called Jesus in scripture. Then you will know he was never a physical being, but the name of a plan. Jesus is Jehovah, who is your own wonderful I AM.
+
+The root of the Greek word translated *"gather"* in the expression used in the first chapter of Ephesians is *"head."* That is where we will all gather together, for that is where we were all crucified and buried. And it is from the head that we resurrect. Returning from this external world, we gather all together into the one state which is in the head. James Dean once said: *"The creator of this infinite unity resembles an infinite brain and we but brain cells in the mind of the dreamer."* And now the brain cell is expanding within the one brain!
+
+Now let us go into the silence.
+
+
+## Summary
+
+### The Power of "The Law"
+
+- The presentation of a doctrine must show its relevance to both present and future life.
+- To interest people in the truth, appeal to the power they can experience in the present.
+- The power called "The Law" is a force that can be used to bring about desired outcomes.
+
+### Stories of Manifestation
+- A man's imaginal act helped reverse the diagnosis of cancer in a 14-month-old girl.
+- Another man imagined money raining down on him and later received a raise.
+- These stories illustrate the power of imagination and the law to create physical outcomes.
+
+### The Importance of Imagination
+- Imagination is the source of all natural effects.
+- The physical world is sustained by imagination, and when imagination stops sustaining it, it dissolves.
+- The impulse to strike someone is an imaginal act that precedes the physical action.
+- Imagination is the force behind the creation of the world.
+
+### Understanding Jesus
+- Jesus cannot be proven outwardly but can only be known through visionary experiences.
+- Jesus is a pattern of redemption buried within every individual.
+- Through awakening and vision, one can understand the mystery of Jesus.
+
+### Testing the Law and the Promise
+- Start by using the law to manifest desires in the physical world.
+- Then share the knowledge of the law and the promise with others.
+- Realize that Jesus Christ is within each individual, waiting to be awakened.
+
+### The Transformative Power of Imagination
+- Imagination is the key to creating and transforming reality.
+- The body one wears in the awakened state is a heavenly body of light.
+- By using the law, one can become the divine image of the Creator.
+
+### Encouragement to Test the Power of Imagination
+- Do not dismiss the power of imagination without testing it.
+- Acquiring a taste for something requires experiencing it firsthand.
+- Use the law to create desired outcomes and prove its power.
+
+### The Continuation of Life and the Promise
+- Life continues after death, and individuals will experience the same drama as Jesus Christ.
+- The story of Jesus has been misconstrued through tradition and external focus.
+- The true understanding of Jesus comes from the inward awakening.
+
+### The Power of Faith and the Unseen Reality
+- Faith is loyalty to one's unseen reality.
+- The imaginal act is the unseen reality, brought into being by God.
+- God's name is "I am," and every individual is a reflection of God's imaginative power.
+
+### The Gathering in the Head
+- All individuals will gather together in the head, where they were crucified and buried.
+- The expansion of the brain cells within the one brain is the process of awakening.inal act is the unseen reality, brought into being by God.
+- God's name is "I am," and every individual is a reflection of God's imaginative power.
+
+### The Gathering in the Head
+- All individuals will gather together in the head, where they were crucified and buried.
+- The expansion of the brain cells within the one brain is the process of awakening.kening.
+
+
+#Revision

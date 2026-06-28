@@ -1,0 +1,105 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Perfect Image
+keywords: [Assumption, Sabbath, Dreams]
+bible_ref:
+tags: lecture
+topics: [The Perfect Image, Dreams and Visions, The Promise and Resurrection, Occupying States and Using the Law, Mystical Experiences and Universal Oneness]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+"He is our peace, who will make us both one by breaking down the wall of hostility, that he may create in himself one new man in place of the two, so bringing peace.' This being of peace is a person, not a doctrine or philosophy. He is a person who breaks down the wall of hostility between you who are seated here and your true identity, who is a son of God, one with his Father. 
+
+Now, a lady wrote, saying: *"I saw myself in vision as radiantly perfect, yet I knew that we were two. Remembering the words 'Be ye perfect,' I knew that at one time I was not, but now my present reflection is one of perfection. Then I awoke, got out of bed and stumbled into the door, then lost my temper and yelled at my children for pouring soap on my nice clean carpet. So it must have happened in some other dimension of my being, for I certainly am not perfect here."* She is right. While we wear these garments of flesh and blood, we lose our temper; we run into doors and do all the things people do here. Did not the perfect one, who was the pattern man, call Herod *"that fox,"* and the scribes and Pharisees *"Whited sepulchers, outwardly beautiful and inwardly full of hypocrisy and iniquity"*? While you are here, encased in your body of flesh and blood, certainly you will lose your temper. Maybe not as you did before you were perfect, but you will to some degree as long as you remain here. 
+
+Now, how does he who is our peace, break down the wall of perdition and make the two of us one? By fulfilling his primal wish, which was: *"Let us make man in our image, after our likeness."* God fell asleep to his true awareness and began a good work in you, which he will bring to completion on the day of Jesus Christ - who is described as being the perfect image of God, one who reflects and radiates God's glory. When his good work is finished, in you, then you - the image - will be superimposed upon him, and you will know yourself to be the Father. There is only God in the world. Having taken upon himself the limitation of man (as you are) he is working you into his image from within. And when you - the made, are as perfect as he - the Maker, you rise as one man, enhanced by reason of the experience of making an image which radiates and reflects your glory. So her vision was perfect, all based upon scripture. 
+
+Here is another beautiful one. This lady said, *"I found myself in a forest, sitting on the ground leaning against a tree, when I heard a voice calling, 'Father, Father,' but I did not answer, because I did not want to be discovered. Suddenly you appeared, dressed as a shepherd boy, and said to me: 'Why did you not answer me? I have been searching for you.' And I replied: 'You are always searching and finding me, in spite of the fact that the Good Book says I can rest on the [[Sabbath]] day.' Then you looked at me and smiled the smile of an indulgent father; yet strangely enough, I - very female - felt I was the father."* 
+
+In the 4th chapter of Galatians it is said: *"When the time had fully come, God sent forth the Spirit of his Son into our hearts, crying: 'Abba! Father!' But the Father, sound asleep in Man, doesn't want to be found, although the Son is always calling: "*Rouse thyself, why sleepest thou, O Lord! Awake!*" And when one who is called the Son of God awakens to Fatherhood, he is sent into the world to awaken his brothers, but finds they still want to postpone the day of waking, still wanting to hold onto these little garments of flesh and blood. But I will always find you and will not let you rest, for "*Truly, truly I say unto you, the dead will hear the voice of the son of God and those who hear it will live." This lady heard the voice and recognized it, so she is not far from waking. Sent as a shepherd boy, the son of God does the Father's will by calling the Father (in Man) to awaken and rise from the dead. 
+
+God entered this world for the sole purpose of making you perfect as he is perfect. When his work is finished, he will superimpose himself upon that image and they will be perfectly one. This lady knew she was perfect. She recalled the words: *"Be ye perfect."* The completed sentence is: *"as your Father in heaven is perfect."* Yes, be ye perfect for then you become one with your Maker; awake from this dream of life and resurrect from this world of death into a world of eternal life. Without the resurrection you would know infinite circuitry, repeating the same states over and over again. But, after moving around the circle unnumbered times, the perfect image is formed, removing you from the circle to enter a spiral and move up as the person who created it all. 
+
+You can join every doctrine, sign every contract between people and nations; yet you will not know perfection until He (in you) finds you perfect and the two of you become one. So, he who is your peace will make you one with him by breaking down the dividing wall of hostility. Then, without telling others you walk knowing who you really are. If you tell the world, they will only laugh at you because - while in this world, like my friend who had the vision - you will run into a door and lose your temper. Everyone is here for a definite purpose, which is revealed through revelations, thereby giving purpose to the whole of life. Without purpose, what does the world have to offer? If you owned everything that you could buy with money, if you had all the money necessary to live comfortably - and your soul is called, what would it matter? 
+
+The world may call you dead, cremate your body and scatter your ashes, but you are immortal and cannot die. Rather than being dead, you are in a world just like this one, mentally walking the same tracks over again and again. Oh, maybe you will not experience the same situations, but your world will be just as solidly real. You will return to a lovely twenty-year-old form, to marry, and age, and lose your temper as you bump into a door - until your image is so perfect it is superimposed upon its Maker. Then up you go to know yourself to be the one body, one Spirit, one Lord, one God and Father of all. That is the great living body of the Risen Lord. It seems incredible, but it is true. You are destined to know yourself to be the creator of the world. You are destined to share in the unity of that one body, that one Spirit, that one Lord, that one God and Father of all. I know, for I have experienced it. I was sent back to tell my experiences in the hope that those who are on the verge of moving into the same body, as the same Spirit, may hear my words and be encouraged by them. 
+
+Paul makes the statement: *"I stand before you on trial for the hope in that promise that God made to our fathers. O King Agrippa, why should it seem incredible to any of you that God raised the dead? Is this not the promise to our fathers?"* Search the scriptures and you will find that the promise was made in the 46th chapter of Genesis. *"The Lord spoke to Israel in visions of the night saying, 'Jacob, Jacob.'"* (As you know, Jacob's name was changed to Israel which means, a man who rules as God because he knows he is God.) Jacob answers: *"Here I am"* and the Lord said: *"I am God, the God of your father. Fear not to go down into Egypt, for there I will make of you a great nation. I will go down with you into Egypt and I will also bring you out again."* Egypt is not a little place in North Africa; this world of death is Egypt, where everything appears, waxes, wanes, and vanishes. I have gone down into Egypt with you and I will keep my promise and bring you up. When this world was coming to its end, Paul stood in chains before the prince whose kingdom was fading; but he could not let go of it, and said: *"Why do you think it incredible that God raises the dead?"* and the king could not answer. 
+
+I tell you: God literally assumed the weaknesses and limitations of the flesh, in order to know you and to make you into his image. And when that image is perfect as He is perfect, you are no longer two, but one. Then you awake from the dream of life and ascend into your true being, called the kingdom of heaven. Our commonwealth is in heaven and we are sojourners in this strange land where we are enslaved. But have faith and set your hope fully upon that moment in time when the image is perfect. Then it will be unveiled within you to reveal you as the being who made it. Though you are the made, you are the Maker; for the Maker breaks down the wall of hostility between you, making you and He one. Then you return to your heavenly state as the one who came down, but greatly enhanced because of your journey into Egypt. 
+
+Having purposely imposed this limitation upon myself, I felt as though I were speaking to another, making requests of him and thanking him for their fulfillment. Now I have no sense of another. I feel only as the one who formed me into his likeness; for when I awoke He and I were not two any more, but one. This lady saw me clothed as a shepherd boy. She saw correctly; for although the Father and the son are one, it is the Spirit of his son who is sent into the heart, crying: *"Father, Father."* She heard the cry and knew herself to be not only Man, but a father; yet in this world she is very much a lady. She heard my call, yet not wanting to be disturbed she did not respond; but may I tell you, the son of God will never let the Father rest. He is forever calling: *"Awake you sleeper! Why sleepest thou, O Lord?"* But the Father in you cannot awaken until he has completed his work. He began it in you and will bring it to completion at the day of Jesus Christ. 
+
+That day, the image of God himself is formed in you, and you awake to express that image by radiating and reflecting God's glory. Night after night I am crying and crying to the Father in all; and those who hear my voice will begin to awaken from the dream of life and start their journey back to the being they were before that the world was, to find themselves to be more glorious, more wonderful, than they were when they descended. 
+
+Tonight some friends are here who haven't heard me speak in a number of years. When they were last with me I was speaking only of the law, as the promise had not fulfilled itself in me. So for their sake let me say: the promise is the law on a higher level, and the law is very simple. 
+
+There are infinite number of states. The state of health, the state of sickness, the state of wealth, the state of poverty, the state of being known, the state of being unknown - all are only states and everyone is always in a state. We all have one state in which we are very comfortable, so we return to it moment after moment. That state constitutes our dwelling place. If it is not a pleasant state, we can always get out of it. How this is done is the secret I will now share with you. All states are mental. You cannot remove yourself from your present state by pulling strings on the outside. You must mentally adjust your thoughts to proceed from the desired state, all within yourself. You fell into your present state either deliberately or unwittingly; and because you are its life, the state became alive and grew like a tree, bearing its fruit which you do not like. Its fruit may be that of poverty, or distress, heartache, or pain. 
+
+There are all kinds of unlovely fruit. But you can detach yourself from your unlovely harvest by making an adjustment in your human imagination. Ask yourself what you would like to harvest. When you know what it is, ask yourself how you would feel if your desire was ready to harvest right now. When you know the feeling, try to catch it. In my own case I find it easier to catch the feeling by imagining I am with people I know well and they are seeing me as they would if my desire were now a fact. And when the feeling of reality possesses me, I fall asleep in that [[Assumption]]. At that moment I have entered a state. Now, I must make that state as natural as I have made my present state. I must consciously return to my new state constantly. I must feel its naturalness, like my own bed at night. At first the new state seems unnatural, like wearing a new suit or hat. Although no one knows your suit is new, you are so conscious of it you think everyone is looking at you. You are aware of its fit and its feeling until it becomes comfortable. So it is with your new state. At first you are conscious of its strangeness; but with regular wearing, the new state becomes comfortable, and its naturalness causes you to constantly return to it, thereby making it real. 
+
+Now most of us, knowing what we want, construct it in our minds eye, but never occupy it. We never move into the state and remain there. I call this perpetual construction, deferred occupancy. I could dream of owning a lovely home and hope to go there one day; but if I do not occupy it now, in my imagination, I postpone it to another day. I may wish my friend had a better job. I may have imagined him having it; but if I don't occupy that state by believing he is already there, I have merely constructed the state for him but not occupied it. All day long I can wish he or she were different; but if I don't go into the state and view him from it, I don't occupy the state, so he remains in the unlovely state relative to me. This is the world in which we live. 
+
+You can't conceive of a thing that is not part of a state, but the life of any state is in the individual who occupies it. Life cannot be given to a state from without, because God's name is *"I am."* It is not *"You are"* or *"They are."* God's eternal name is I Am! That is the life of the world. If you would make a state alive, you must be in it. If you are in a lovely, gentle, kind state, you are seeing another as lovely, living graciously, and enjoying life to the utmost. 
+Now, to make that state natural, you must see everyone in your world as lovely, kind, and gentle. Others may not see them in that light, but it doesn't really matter what they think. I am quite sure if I took a survey of what people think of me, no two would agree. Some would say I am a deceiver, while others I am the nearest thing to God. I would find a range stretching from the devil to God, all based upon the state in which the person is in when called upon to define me. 
+
+You can be what you want to be if you know and apply this principle, but you are the operant power. It does not operate itself. You may know the law from A to Z, but knowing is not enough. Knowledge must be acted upon. *"I am"* is the operant power in you. Put your awareness in the center of your desire. Persist, and your desire will be objectified. Learn to use the law, because there is a long interval between the law and the promise. Those who heard me prior to 1959 are unfamiliar with my experiences since that time, and my words may seem strange to you. I cannot deny the law, for I came not to destroy the law and the prophets, but to fulfill them. This I have done. 
+
+I have told you that in the resurrection, Man is above the organization of sex, and that Man can change his sex at will. This week I received a letter telling of a vision which testifies to the truth of this statement. This gentleman is married to a lovely girl and is every bit a man, yet this is his experience. He said, *"I found myself lying on a bed feeling as though I am a woman. Desiring a man of oriental descent and olive skin, I assumed I had found him. Instantly he appeared and, although no act was performed, I felt the thrill of imagining and instant fulfillment of my imaginal act. Then I awoke."* This man's vision verifies what I have been telling you: that in the resurrection Man changes his sexual garments at will, and being above the organization of sex, he does not need the divine image of male/female to create. I think his vision is marvelous. When he returned to this world, he was surprised at the experience; but I say to all: you are destined to know you are every being in the world, bar none! 
+
+Like the lady who is so feminine, responding when a shepherd boy called her "father'. Although she would not answer my call, she knew I would always find her. I always will, for I - the Word of God - was sent as the son of God, and I shall not return to my father void. I must bring back that purpose for which he sent me. I stirred the feeling of the fatherhood of God in her, and I will take back with me those that my father gave me. 
+
+But while you are in this world of Caesar, it is important that you master the law. Think of everyone as representing a state. There is no such thing as a good man or a bad man, only good or bad states as you conceive them to be; but the occupant of every state is God. Blake said in his *"Vision Of The Last Judgment': "*On this it will be seen that I do not consider either the just or the wicked to be in a supreme state, but to everyone of them states of the sleep which the soul may fail into in its deadly [[Dreams]] of good and evil when it leaves Paradise following the serpent." Identify yourself with a state and you are pronounced by others to be either good or evil; but you are only in a state. Tonight if you are unemployed, or find it difficult to get a promotion in your present employment, remember: the solution to your present state is still a state! 
+
+I hope I have made it clear how to move into states. It is done through the act of [[Assumption]] with feeling and persistence. Assume health. Stand in its center and clothe yourself with its feeling. Persist in claiming a healthy body and a healthy mind, and your [[Assumption]] will harden into fact as you move into and objectify the state of health. 
+
+Now let us go into the silence.
+
+
+## Summary:
+
+### The Perfect Image
+- The person of peace is not a doctrine or philosophy, but a person who breaks down the wall of hostility.
+- While in physical form, people will still experience imperfections, but ultimately they will become perfect.
+- God's primal wish was to create man in his image and likeness, and he is working to fulfill that wish in each individual.
+- The process of becoming perfect is a journey that involves awakening to one's true identity as the Father.
+- The son of God awakens the Father within individuals to move them towards their divine state.
+
+### [[Dreams]] and Visions
+- [[Dreams]] and visions reveal hidden truths about one's identity and purpose.
+- The dream of being perfect in another dimension can be a glimpse of one's divine nature.
+- The dream of being a father while being female highlights the potential for transformation and awakening.
+- The Son of God calls upon the Father to awaken and rise from the dead.
+
+### The Promise and Resurrection
+- God entered the world to make individuals perfect and unite them with himself.
+- Through the process of resurrection, individuals awaken to their true being and enter the kingdom of heaven.
+- The world is a place of limitations and enslavement, but individuals can have faith and hope in the promise of perfection.
+- The purpose of life is revealed through revelations and leads to the recognition of one's creative power.
+
+### Occupying States and Using the Law
+- All experiences and states are mental constructs.
+- To move out of a current state, one must mentally adjust their thoughts and occupy the desired state.
+- Occupying a state makes it alive, and life cannot be given to a state from the outside.
+- Persistence and belief in the desired state are essential for its manifestation.
+- Identifying oneself with a state determines how others perceive them.
+
+### Mystical Experiences and Universal Oneness
+- Divine experiences confirm the notion that individuals are destined to know themselves as every being in the world.
+- The purpose of the son of God is to evoke the feeling of the fatherhood of God within individuals.
+- Every person represents a state, and there is no inherently good or bad person, only good or bad states.
+- The solution to a present state lies in identifying and assuming the desired state.
+
+esents a state, and there is no inherently good or bad person, only good or bad states.
+- The solution to a present state lies in identifying and assuming the desired state.
+
+tate.
+
+
+
+
+#Assumption #Sabbath #Dreams

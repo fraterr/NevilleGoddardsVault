@@ -1,0 +1,100 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Gospel
+keywords: []
+bible_ref:
+tags: lecture
+topics: [The Gospel in the Letters of Paul, Personal Experiences]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+When you hear the word *"gospel"* you usually think in terms of Matthew, Mark, Luke, and John, but tonight I want to introduce you to the gospel as found in the letters of Paul.
+
+Listen to these words carefully: *"I am astonished that you are so quickly deserting him who called you in the grace of Christ and turning to a different gospel, not that there is another gospel, but there are some who trouble you and want to pervert the gospel of Christ. But even if we, or any who hear him, should preach a gospel that is contradictory to that which we preached to you, let him be accursed."* Then he repeats this saying: *"I have said before so now I say again. If anyone teaches a gospel that is contrary to the gospel we preach, let him be accursed."* You will notice that Paul includes himself in that statement, because it is possible under the threat of death or pain or torture for man to confess that he was wrong. (The churches made Galileo confess, under the threat of Cain, that the earth was stationary and not moving around the sun, even though today we know Galileo was right.)
+
+The churches still teach a Christ that never existed, but Paul taught what he had received through revelation, saying: *"Paul, an apostle, not from men nor through man, but through a revelation of Jesus Christ and God the Father who raised him from the dead. I will have you know that this gospel, which I preach is not man's gospel. I did not receive it from a man, nor was I taught it, but it came through a revelation of Jesus Christ."* Then he tells us who Jesus Christ is, saying: *"From now on I regard no one from a human point of view; even though I once regarded Christ from a human point of view, I regard him thus no longer."*
+
+Now, the word *"Christ"* and *"Messiah"* are the same in scripture. Confessing *"I am a child of Abraham of the tribe of Benjamin,"* Paul was a master in the law of Israel. Looking for some physical descendant of Jehovah to come as a messiah and destroy the enemies of Israel, the mystery unfolded in him, and he said: *"I want you to know how greatly I strive for you that you will have an assured understanding and knowledge of God's mystery of Christ in whom are hid all the treasures of wisdom and knowledge."*
+
+To Paul, the wisdom and power and knowledge of God which suddenly erupted in him was Christ, for when the visions came he understood who the messiah really was. Paul realized that God, called *"the Word"*, was buried in man and had three stages to its history: its planting, its death, and its resurrection. First the Word is sown (or imparted). Entering the world of death, it is forgotten in the struggle for food and clothing, rent and taxes. Then the Word is heard with understanding, quickened, and as it erupts all the promises of God to Abraham unfold from within the individual. When it erupts in you, you will no longer search for a physical Christ, for you will know Christ as the wisdom and power of God in you! Like Paul, you will then say: *"I no longer regard anyone from the human point of view. Even though I once regarded Christ from the human point of view I regard him thus no longer."* Knowing that flesh and blood cannot inherit the kingdom of God, you discover who can!
+
+Paul, speaking to the Thessalonians, said: *"When you received the Word of God that we preach to you, you accepted it not as the word of men, but as it really is, the Word of God that works in you, the believers."* In this statement Paul is speaking to those who hear God's eternal story and believe it. They are the ones who, when the world calls their dear ones dead, persist in believing they are not dead but alive, and that God will fulfill his promise in them. They believe, not in the words of men, but in the Word of God buried within.
+
+Now, here is a story I received last Friday night. This will illustrate how you will know when the Word is quickened in you. This lady found herself, in dream, in a huge crowd, seated on a grassy hillside. A man was standing on a small, raised platform speaking into a microphone. In his hands he held an open Bible. Then a gentleman stood up and said: *"I challenge anyone to disprove my knowledge of the Bible."* (This lady, in keeping with the character that she really is - and she certainly is not lukewarm in anything that she does) rose, and quoting the 22nd chapter of the Book of Matthew, the 42nd, 43rd, and 45th verses (she omitted the 44th verse which is a quote from the 110th Psalm) said: *"Question, please! What think ye of the Christ? Whose son is he? They answered, 'The son of David' Then he said to them, 'Why then did David in the Spirit call him Lord? If David thus calls him Lord how can he be David's son?'"* Completing the quote, she continued to explain to the crowd the relationship between Christ and David, saying: *"Christ is the Father and David the Son in fulfillment of scripture."* Then in the dead silence that followed the statement, she awoke. The Word has become so quickened in her that it is only a matter of moments before it will erupt and the story of Jesus Christ will be her story.
+
+No individual called Jesus Christ was ever crucified on a wooden cross. When Paul said: *"I have been crucified with Christ"* he was speaking of the Cosmic Christ who is crucified on humanity that humanity may become a living soul. It's the wisdom of God and the power of God that is crucified, died, and is buried in you. And it is that same power and wisdom which awakens to reveal you as God's power and wisdom.
+
+In the state of Paul you, too, will say: *"I have been crucified with Christ; it is not I who live, but Christ who lives in me and the life I now live in the flesh, I live by the faith of the Son of God who loved me and gave himself for me."* You may think a person is speaking but it is God himself, who so loved you he gave you his power and wisdom called Christ, that in time you would awaken to the realization that you are God.
+
+In Paul's letter to the Galatians, he asks this question: *"O foolish Galatians! Who has bewitched you, before whose eyes Jesus Christ was publicly portrayed as crucified? Let me ask you only this: Did you receive the Spirit by works of the law or by hearing with faith? Are you so foolish? Having begun with the Spirit, are you now ending with the flesh?"* Now I am going to ask you: Are you going to think of a physical man called Jesus Christ? An external savior who will come through the loins of the descendants of David? Or are you going to think of the Christ-Spirit that is buried in you when I speak of the Christ? Will you accept the idea that the Spirit of Christ is crucified on you and buried in you? Will rise in you as you? Or are you going to continue to see a physical being called Christ as God's power and wisdom?
+
+Paul confesses: *"I did not receive this from men, nor was I taught it by man. It came through a revelation of Jesus Christ, which is God in the act of self-revelation!"* Then he continues, *"When it pleased God to reveal his Son in me I did not confer with flesh and blood."* How could you ask another to explain a revelation, which came from within you? They could tell you all kinds of things about the outside, but they cannot tell you a thing about this great mystery until it has unfolded in them. In the 2nd chapter of Colossians Paul says: *"I want you to have the assured understanding and knowledge of God's mystery of Christ."* He tells you Christ is a mystery, as all the treasures of the wisdom and the knowledge of God are hid in him.
+
+Christ was never a single little man who walked the earth. The Christ-Spirit, God's very own power and wisdom, is crucified and buried in you, and one day that power will rise in you and you will know that you are He. *"Let any one who teaches another gospel be accursed."* Well, the whole vast world teaches another gospel. They tell you that a little man was physically born from the womb of a woman who was spiritually impregnated, and that's not the story at all! Everyone will give birth to Christ! This will be a sign unto you when you hold that babe in your own arms, for at that moment you will be holding the sign of your birth into life itself!
+
+Let me share with you a vision of George Russell (known to us all as AE) from his book, The Candle of Vision, which he begins by quoting from Proverbs and Job, saying: *"The Spirit of man is that candle of the Lord and when his candle shines upon my head, by its light I walk through darkness."* His vision begins: *"Where I saw this I will not say. There was a hall vaster than any cathedral, with pillars that seemed built out of living and trembling opal. High between the pillars were thrones upon which sat Divine Kings, all fire-crested. One wore the crest of the serpent, another plumed with feathers of flame. At the end of the hall sat one greater than the rest who radiated light as the sun. Below on the floor lay a dark figure, and two of the Divine Kings made motions with their hands above it over head and body. Where their hands waved, sparkles of fire like flashing jewels broke out. Then out of this body rose a being as tall, as glorious and majestic as those seated on the thrones. As he woke to the hall and became aware of his brothers, he lifted up his hands in greeting, and the tall golden figures leaped up from their thrones, raised their hands in greeting, and quickly faded into the light where the great one sat."* AE had eavesdropped upon a god who was awakening from his passage through darkness into light.
+
+Now so entranced in this world, you have forgotten that vast hall where you laid yourself down to dream this world into being; but one day you too will awaken, and your brothers, all vested kings, will be there to greet you. One by one everyone will awaken in that same manner to be incorporated into that single body which was at the end, waiting for the return of all.
+
+You and I agreed to dream in concert and this world is our dream. It is a world of darkness, a world that is a nightmare, but in the end you too will return enriched by the dream. You will awaken to find yourself glorified by it, glorious and majestic because of your experience in this world of darkness, this world of death.
+
+Now, another lady gave me a letter on Friday, saying: "I have been having the strangest thing happening to me. I have been having double vision. While in my living room doing the normal housewife chores I see a roadway there, bathed in living light, with a light of greater intensity at its end. All day long the two worlds converged to remain with me, yet one world did not seem to disturb the other.
+
+*"The first night of the double vision, as I lay down to sleep I saw a tall being robed in white. He was so magnificent I felt that I must be at his feet, yet I knew I was on my bed. Standing erect with his arms raised above his head, I see he is holding a lamp which illuminates everything round about him. Then I am looking through his eyes and seeing my husband sleeping on the bed. Suddenly I realized that I am the being having the experience and the one who is conveying it."* Then she asked this question: *"Could I be this glorious being I saw?"*
+
+May I say to her: You are infinitely greater than you think you are, for you are the being looking through the eye and the one stretched out on the bed called your husband, as you are the invisible cause of all! You are awake, really home, and it's only a matter of moments before you will be completely awake from this dream of life. Oh, you will have many fantastic experiences, which may frighten your friends and disturb relatives, but you cannot help it, for you have arrived.
+
+Now, Paul wrote his Gospel to the Galatians before 52 AD. All of his letters were written before the four gospels came into existence. Mark, the earliest gospel, was written in the year 70 A.D. and John, the last, was written in 90 A.D. Read the Book of John and you will see that it has drawn heavily on the story of Paul. All of the promises of God awoke in Paul. Telling the story as it unfolded in him, he said: *"Anyone who tells another gospel, let him be accursed."* Any other gospel destroys the truth and keeps men as slaves. Even today, after 2,000 years, men are still led astray by being taught the historicity of Christ, for it is a mystery.
+
+When Paul read the Old Testament without its revelation, he believed that Abraham was a being of flesh and blood. In the Book of Galatians he tells the story of Abraham and his two wives: Hagar, who bears children into slavery, and Sarah, who bears children into freedom. Then he said: *"This is an allegory."* Now, an allegory is a story that is told as if it were true, leaving the one who hears it to discover its fictitious character and extract its meaning. If the story of Abraham as stated in the 4th chapter of Galatians is an allegory, and the New Testament begins: *"This is the genealogy of Jesus Christ, the son of David, the son of Abraham"* - is the story of Jesus Christ not an allegory, written for us to learn its message? This doesn't mean the story is a lie, but because man cannot grasp the mystery of God, it is told in the form of a tale. Unfortunately, man has accepted the story instead of its message. The story of Jesus is an allegory, yet it is truer than anything known to man, for the wisdom of man is foolishness in the eyes of God, who wrote the story.
+
+In 1929 at the age of twenty-four, I stood in the presence of the Risen Lord, and when he asked me a simple question I answered in the words of Paul: *"Faith, hope, and love, these three, but the greatest of these is love."* When I came back to this world I must confess I wondered why I used the words of Paul rather than one of the evangelists. I am not saying that which is recorded in the four gospels is not true. It is all true, but the experiences recorded there were built from this original gospel, and any teaching contrary to it is a lie. There is no historical Jesus Christ. There never was one and there never will be.
+
+Paul was looking for the Messiah to come from the outside, and when he came from within, Paul was honest enough to record what happened to him, and for that he was condemned by the Sanhedrin, his own earthly brothers. They imprisoned him, chained him, and wanted his death because he dared to bring a translation of the prophecies of God that differed from what they expected.
+
+They wanted an external Messiah, but Christ does not come that way. He awakens from within, for it is He who is playing all the parts. So the Word, having been received by man, awakens to discover himself! It has been him all along, and when he returns from his passage through darkness into the heavenly guild, all of his kingly brothers will be waiting for him. Arriving there, he will contribute to the wisdom and the power and the glory of God, for everyone returns with his gift!
+
+Read Paul's thirteen letters carefully and you will realize that the system of the Christian faith was fully matured before Matthew, Mark, Luke, and John came into existence. Paul calls his system the Gospel of God, the message of salvation.
+
+Having fulfilled scripture, I know that everything said there is non-historical and yet true. One story is told of the feeding of the five thousand. Calling himself the bread of life that came down from heaven and referred to as the great fish, he tells us all that we must eat his body and drink his blood, so in this story the five thousand are spiritually fed. This is my experience of that story.
+
+In the year 1946 I was sailing through the Caribbean toward Mobile, Alabama, when suddenly I was lifted up on high in one spiral motion. As I rose, a heavenly chorus began to sing over and over again: *"Neville is Risen"* and I felt as though I had been encased in a conflict with death and I was its victor. Clothed in a body of fire, I was a fiery being dwelling in a body of air. Before my eyes I could see an infinite seat of human imperfection and I knew they were waiting for me. Knowing that if I be lifted up to a state of perfection, I lift all men unto me, I glide by them completely undisturbed and unconcerned. And as I do, each and every person was made perfect, as missing members of their bodies appeared out of the nowhere and remolded themselves into the bodies. All this time the heavenly chorus accompanied me, singing: *"Neville is Risen."* When everyone was made perfect the chorus exulted: *"It is finished,"* and then - for the first time since I left eternity - I knew the cramped stage of being here, for at that moment I felt myself come down and condense once more into the straightjacket of this body on the bunk of a freighter coming into Mobile, Alabama.
+
+In that vivid experience I fed the thousands - not a little bread, but myself. Having conquered death, I was perfect as my Father in heaven is perfect, and I fed them what they wanted. The one who wanted the eye got it, he who wanted that arm got the arm. Whatever they wanted they got in its fullness, and when everyone was made perfect the chorus exulted: *"It is finished,"* and I was crystallized into this little thing called Neville, where I have remained since 1946. Now I know what is in store for me when I break the bonds of this straightjacket and return to the heavenly guild, as I know my brothers are waiting for my return from this journey through darkness into light.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### The Gospel in the Letters of Paul
+- The concept of the gospel is not limited to the four books of Matthew, Mark, Luke, and John, but can also be found in the letters of Paul.
+- Paul expresses his astonishment at people deserting the true gospel and turning to a different one.
+- Paul identifies himself as an apostle who received the gospel through revelation from Jesus Christ, not from human sources.
+- Paul comes to understand that Christ is not simply a physical descendant of David, but the wisdom and power of God.
+- The Word of God, referred to as Christ, is buried within humans and has three stages of history: planting, death, and resurrection.
+- When the Word is quickened in individuals, they no longer search for a physical Christ but recognize Christ as the wisdom and power of God within them.
+- Paul emphasizes the importance of accepting the Word of God and not being led astray by other teachings.
+- The story of Jesus Christ is an allegory that represents a deeper message, and it is not necessary to believe in a historical Jesus Christ.
+- Paul's gospel was fully developed before the four gospels, and it is called the Gospel of God or the message of salvation.
+- The feeding of the five thousand story represents spiritual nourishment and the idea of becoming perfect and fulfilling one's purpose.
+
+### Personal Experiences
+- The speaker shares a personal vision of being lifted up and told that he has risen.
+- In the vision, he sees the imperfections of humanity and realizes that if he becomes perfect, he can lift others up as well.
+- Through his perfection, he feeds the thousands, giving them what they desire to become whole.
+- The experience represents conquering death and aligning with the divine perfection of the Father.
+- The speaker understands that his return to the heavenly realm is awaited by his brothers.
+
+urn to the heavenly realm is awaited by his brothers.
+
+hers.
+
+
+
+
+#

@@ -1,0 +1,84 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Spiritual Cause
+keywords: [Assumption]
+bible_ref:
+tags: lecture
+topics: []
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+All cause is spiritual! Although a natural cause seems to be, it is a delusion of the vanishing vegetable memory. Unable to remember the moment a state was imagined, when it takes form and is seen by the outer eye its harvest is not recognized, and therefore denied. 
+
+*"There is a moment in each day that Satan cannot find, nor can his watch fiends find it, but the industrious find this moment and it multiplies. And when it once is found, it renovates every moment of the day if rightly placed."* (William Blake) The word Satan means doubt. Desiring a certain state, reason may tell you it will be difficult to attain, and your friends may say it is impossible. If you listen to them and doubt your desire's fulfillment, Satan has made himself known to you. Your protractors - God and Satan - are always with you, for one is faith and the other doubt. Can you imagine you are the one you would like to be, and remain faithful to that [[Assumption]]? If you can and do, it will appear, and you will realize that its spiritual cause was the moment of [[Assumption]]. 
+
+Now let me share a letter from a friend. It seems that when he first met him, his barber was the fourth man in a four-man shop. (In case you are not familiar with a barber shop, the owner always has the first chair and, if it is a slow day he gets the customer. If he has finished when the second man comes in, the owner takes the second one also. If three more should come in, they will go to the different chairs, with the fourth barber being the last to receive a customer.) One day my friend sat in his chair. As they talked, he discovered that the man was proud of his profession and desired to be the best barber in town. Hearing the desire expressed, my friend imagined the man had reached the top of his profession. Within a year the barber had bought the shop and had moved to the first chair! 
+
+Last month this barber told my friend of his desire to attend a hair styling contest in San Francisco. Realizing that no one goes to a contest unless he wants to win, my friend saw a trophy on the shelf near the door and heard the gentleman say he had won it. Last weekend three of the four men in the shop went to the contest and returned with four of the nine trophies given in the competition. The owner won a first and second place prize, with the two men who went with him each taking second. *"Now"* he said to me, *"I have often heard you say from the platform: `I will tell you before it takes place that when it does, you will believe me.' Now I am going to tell you, Neville, before it takes place, that he has already won the contest to be held in Southern California, for I have seen his trophy. Then he will go to Miami and win another trophy which will enable him to enter the international contest in Brussels, of which I have placed him as the winner."* I know he will win, for every natural effect has a spiritual cause. My friend's imaginal act is the cause, and he will remember what he did and be blessed because of it. 
+
+In this same letter, my friend shared a dream which repeated itself the same night. He said: *"I saw a man who looked like a cartoonist's concept of Father Time. Wearing a white robe, he was holding an open, gilt-edged book in one hand and a quill in the other. Insisting that I was born on a certain day, I became equally forceful in stating that I was not. I knew my birthday to be the 19th of September, 1927; yet he persisted, regardless of my protest. Then I awoke."* 
+
+The 87th Psalm speaks, not of a physical birth, but of a spiritual one, saying; "The Lord records as he registers the peoples, saying: `This one was born there.' My friend did the perfect job in challenging the recording angel, for to sin by silence when we should protest makes cowards of us all, and no coward can be in the Lord's stable of studs. I am convinced from the way he worded his letter that he has been born from above. He has had other experiences which would imply adumbrations, but this vision denotes the past, not the present or future. He knew his physical birthdate, yet that date was denied as the day he was born into the Spirit world, for the man represented not the physical, but the spiritual world. 
+
+I urge everyone to think of time as precious! Use each and every moment to plant a seed of thought you want to experience. Then, when your thoughtful seed is harvested, remember the moment of planting; for every natural effect has a spiritual cause which happens the moment you dare to assume your desire is real. The cause of the barber's success was an [[Assumption]] on the part of my friend. The effect is seen, but the cause is unseen. Start now to consciously use your precious moments and try to remember what you did when your harvest arrives. Nothing appears by accident! Everything is the result of an idea, either wittingly or unwittingly planted. You did it knowing what you were doing, or while lost in an emotional state. Feeling intense, a lovely or unlovely seed is planted, and must be harvested; for you always reap the thoughts you sow. This is the law of life. 
+
+Now, another lady wrote, saying: *"I found myself in a glorious mansion surrounded by beautifully kept grounds. Looking out of the window I saw you, Neville, and a lady, leave in a white car; yet I knew you were going to return. Then I awoke, saying: "*Now I know that I have experienced what Neville said I would.' My throat was parched as though aflame, so I drank a glass of water, returned to bed, and had this dream: I am in a department store looking at brides' Bibles. Several brides, dressed in long white gowns, were being married by proxy, with the department store providing grooms so they could have their picture taken. One bride turned to me and said: `I am going to Paris,' and I replied, `I'm getting married next month.' " 
+
+This is a beautiful vision. We are told in the Book of Isaiah: *"Your Maker is your husband, the Lord of Hosts is his name."* Her husband was revealed in the depth of her being. She will have union with him and, like an egg, God's plan of salvation will be fertilized. Then, in time it will erupt and everything said of Jesus Christ will unfold, and she will know she is God, the Father of all life. 
+
+Another lady wrote, saying: *"I took my son into the back yard to show him our new pond, which contained about twelve inches of clear water and a small shaggy white dog. I took the dog out of the water, dried him off and allowed him to run and play. Then I noticed he had returned to the pond, and knew I should leave him there, so I did."* 
+
+Scripture speaks of the stone, the water, and the wine. The stone is the literal story, the allegory. When man discovers the fictitious nature and character of the story by turning within, he has struck the rock and - like Moses - water flows from it. The first miracle, or sign, is recorded in the Book of John, as turning water into wine. The story comes first. That's the stone. If you accept the story as literally true, you have accepted the stone. When you discover the fictitious character and extract the true meaning of the story, you have found the psychological water. A dog is the symbol of faith. Her faith is now in the psychological meaning of these great truths, and as she applies them she will convert them into wine. 
+
+Believing that imagining creates reality, dare to imagine you are now what you would like to be. Do that and you are turning the water into wine. 
+
+We are told that when Jacob brought his flock into the field, the well was covered with a stone. He rolled it away, watered his flock and replaced the stone. Jacob did not turn the water into wine, but removed the stone which covered the tomb of water. This is an allegory. You must use your imagination to extract the water (meaning) and feed your flock. Every scriptural story has a psychological meaning. Find the meaning and you are extracting water from stone. 
+
+In the parable of Isaac and his two sons, Esau and Jacob, Isaac is blind. Desiring to be felt as his brother Esau was, Jacob clothed himself with the skins of a goat. Clothed so that his blind father could feel him through the sense of touch, Jacob deceived his father into giving him his blessing. Let us extract the psychological meaning from this story. Reason says you are not the man you want to be. Closing your eyes to the obvious facts of life, you deny everything reason dictates by mentally clothing yourself in your desired state. Let people see you there. Imagine until you are actually standing where you want to stand. Actually doing the things you would do if your desire was now an obvious fact. Do this, and you are clothing yourself in the outer garment of naturalness. 
+
+When you open your eyes to the facts of life, they will deny everything you have done - but you know what you did. You caught a precious moment which doubt cannot find, or his help-mates find. You have become one of the industrious, for you found the moment and clothed yourself with the feeling of fulfilled desire and - like Isaac - you have given your blessing to the moment and cannot take it back. Isaac would not retract his blessing; so when Esau (the reasonable, rational mind) returned, its right to live had been taken away by Jacob (the smooth-skinned desire). Jacob was rightly named, for the word means *"the supplanter."* Isaac explained to Esau that, even though Jacob deceived him, the moment could not be called back. It was on its way toward fulfillment. And when it appears, its suddenness is only the emergence of a hidden continuity. 
+
+I have told you the story of how Moses did not cross into the promised land, but Joshua did. You may not be familiar with scripture, but Joshua's original name was Hoshea (Numbers 13:16) The word *"Hoshea"* means *"savior or salvation."* Put the prefix *"Je"* before Hoshea and the meaning changes to *"he by whom Jehovah is saved."* Moses represents the pattern man, and Hoshea - creative power. When that power is fertilized, Joshua - the pattern - unfolds, and the individual occupying the state enters the promised land. 
+
+What you saw in the beginning was the perfect egg, but it was not fertilized. A sperm must penetrate the surface of an egg in order to fertilize it; yet no hole appears in this perfect egg either before or after penetration, because it is all imagination. Being all imagination, you do not need to go through any door to put yourself into a closed room, or break down any wall when you depart. Having entered without the use of a hole, you can depart without leaving any breakage relative to your entrance or departure. So it is with a little sperm. It penetrates the surface of an egg and it leaves no hole either before or after penetration; but unless it penetrates, that egg remains just a perfect pattern of what could be. It takes the sperm to penetrate and make it alive. 
+
+I urge you to test your creative power on this level. Take every moment you can and clothe yourself in the feeling that your wish is fulfilled. Feel its reality and do not forget that moment, for it is productive. In its own good time, that moment will appear in this world, properly clothed as an objective fact. No matter who it takes to aid the birth of your imaginal act, he will appear. If it takes an army to bring it to pass, an army of men will do it. You do not have to determine the way, all you need do is imagine. Just as you would plant a seed in the ground, confident that it will grow, so you can drop your fulfilled desire into your mind, confident that it will appear as an objective fact. 
+
+If you want to be a man of wealth, assume that you are. You see: the man of wealth and the poor man are the same being. The individual who occupies the poor state is God's emanation who has fallen into the state of poverty. He does not differ, however, from the individual who occupies the state of wealth. The man in the state of wealth may have lots of money, but he is the same being, in a spiritual sense, as the man who is poor. The only difference is that the poor man does not know he can leave the state of poverty. 
+
+This world is made up of infinite states which you may clothe yourself with. If you do not like the state you are in, you can get out of it by taking a heavenly moment and assuming you have moved. You can put yourself into any state, be it wealth or poverty. If you don't enjoy poverty, don't get into the state. I have no desire for fabulous wealth. I do not want the responsibility connected with it. I can't see how anyone who is fabulously wealthy has any time for spiritual awareness. Morning, noon, and night he must watch his portfolio. The first thing he does in the morning is read the financial section of the newspaper. He reads it as some ladies read the social section - as though it really matters. 
+
+There are those who read the obituaries first and make their living from it. My father-in-law was a very prominent man in New York City when he died. Shortly after his death, his wife received hundreds of letters from people claiming he had ordered something from them and had promised to pay, and many of the writers had misspelled his name! Her lawyer told her to forget the letters, as many people made their living that way. 
+
+You can't conceive of anything that someone is not already doing. Everything is possible because imagining creates reality. And don't think you can imagine quietly, because your world is a record of your imaginal acts. Nothing appears by accident. You may not remember the moment you imagined it, so you cannot relate your spiritual cause to its natural effect; but every natural effect has a spiritual cause. All causes are spiritual, all imaginal, for *"Man is all imagination and God is man and exists in us and we in him. The eternal Body of man is the imagination and that is God Himself."* (William Blake) 
+
+God is the only source and there is no other. In the 87th Psalm it is said that when this one is born, the Lord registers his people, and the singers and dancers alike say: *"You are my springs."* There is no other spring! No other cause! No other source! Whether you are dancing or singing here, you are asleep and your own wonderful human imagination is causing your life to be what it is. 
+
+Do not blame another for the events in your life. There is no one you can turn to as its cause, and don't let anyone blame you, as they are creating their own world by what they are imagining. If one imagines unlovely things for another, they are going to produce them - not in the other, but in themselves. 
+
+Now let us go into the silence.
+
+
+## Summary:
+
+- All cause is spiritual, even if it appears to be natural.
+- Doubt, represented by the term Satan, can hinder the fulfillment of desires.
+- The story of a friend's barber illustrates the power of [[Assumption]] in achieving success.
+- A dream shared by the friend suggests a spiritual birth into a new consciousness.
+- Time should be valued and used to plant positive thoughts.
+- The story of a lady's dream symbolizes her union with the divine and the unfolding of her true identity.
+- Another lady's dream represents the process of extracting the true meaning from stories and converting it into personal growth.
+- Belief in the creative power of imagination is necessary for manifesting desires.
+- The story of Jacob and Esau highlights the importance of imagining oneself in the desired state.
+- The story of Moses and Joshua symbolizes the transformation of creative power into manifestation.
+- The importance of nurturing imagined desires in order for them to come to fruition is emphasized.
+- Every individual has the power to change their state and imagine a new reality.
+- The significance of imagination in creating reality is emphasized, and every individual is responsible for their own experiences.
+- God is man's imagination, and all causes are spiritual in nature..in nature..ature..
+
+
+#Assumption

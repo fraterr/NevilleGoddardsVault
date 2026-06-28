@@ -1,0 +1,114 @@
+---
+book: 
+chapter: North Of The Strip
+keywords: [Dreams]
+bible_ref:
+tags: lecture
+topics: [Belief in Imagination and Creation, "Case History 1: Selling and Buying a House", "Case History 2: Getting Unusual Glasses", Everyone Can Get What They Want, The Power of Imagination and Creation, Understanding Biblical Metaphors, Proving the Power of Imagination]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+dg-publish: true
+---
+On this platform we believe that God is all Imagination and God is man (spiritual man, not the garment of skin he wears). Therefore man is all Imagination. We believe also that God, being the only creator, and God being man, then we are creators, that life itself is an activity of Imagination. The whole world in which we live is a world of Imagination. Tonight we hope to show it in such a manner that you will be encouraged to go out and prove it. Everyone can become what he or she desires to be, yet the real being is invisible and you see only its manifestation, for God is spirit, therefore man is spirit, and when we speak of spirit we mean imagining.
+
+Here are two wonderful case histories, so follow closely and try to duplicate the technique. The lady who gave these to me does not differ from anyone here, for God is man. We are that man. I do not mean male/female, for these are the garments woven for man (generic man, which is God) to wear.
+
+This lady says: "A year ago my husband decided to sell our home. I did not concern myself about it, for I knew from past experience (having sold two and bought two) that my home could not be sold until I stopped mentally sleeping in it. But I allowed him to exercise his right to sell it, for it is our home. For four months several real estate operators tried to sell it. It was not sold and they gave up. Soon after that we decided we would sell the house and get a bigger one really two units under one roof so that my mother and my aunt could stay with us, and there would be only one tax bill. I decided he was right and then I began to sleep in Imagination in the area of West Hollywood, and I slept thus for four successive nights. On the fifth day my husband stopped in to see a friend and met a stranger who wanted a home in the hills, and he brought him back to see our house. He walked through it once and bought it and paid our price. In ten days we had to get out and move in with my mother.
+
+My husband likes to do things immediately and so he wanted a new house at once, but now there were four adults and we wanted a home with two separate living rooms, and yet within one area, and with space so no neighbor would be breathing down our necks. We also have ten cats, three dogs, and a parakeet. We needed a fenced place to protect the dogs. We made our wants known to all the real estate operators on the Strip, for I wanted to live north of the Strip. Everyone told us we were mad. The lady realtors laughed outright, and the men just looked sad. They said that such a place as we wanted did not exist in that area, and if it did they could get five times the price we offered, a price they said was ridiculous, I did not listen to their ridicule. I said: You have not heard me. That is the house we want, and the price. I also want it completely paneled on the inside. Now they knew we were mad!
+
+This lady began sleeping in her Imagination in such a house. Then one day one of the agents said to another: Show her the place on King's Road. (That was the area where she wanted her house.) The other said: You know the old lady would never split it. So then this lady said: Then lets go see it for laughs. The agents were reluctant, but they went. They turned into the private road and then the lady of the house took them through the place. There was this huge twenty-five foot room. It was paneled in redwood and the lady who wanted to buy said: I have never seen a more beautiful [room], even in a dream. The house was on two acres and was like two houses under one roof. There was a pool, but this lady didnt want a pool, only the house. After looking at the grounds and going back into the house, she stood on a balcony opening out of the dining room and looked down into the living room and saw her husband standing there by the fireplace with his pipe and with a look of complete satisfaction on his face. Then they all returned to the agents office, and the ladys husband said: Lets make them an offer. One lady agent said: I will lose my lunch! and the other said: Forget it! And then this ladys husband grew angry (which he seldom did) and hit the desk and said: Is it not your business to make the offer we suggest? Then make it! A third agent spoke up and said: Go slowly, for I have known that old womans husband to make a real estate operator wish he was dead.
+
+However, they agreed to make the offer, the lady continued. We returned home and that night after we went to bed, having seen the house in Imagination, I stood on this same balcony above the living room and held onto its railing and looked again at my husband standing by the fireplace. And then she fell asleep in that imaginary act. Next day the phone rang and the agent said: You have bought yourself a house! The owners split the property in the middle and they got the house and one acre, just what they wanted and they got it at the price they had offered. She says: After twelve days of sleeping in a dream house we bought it, and are now going to live in a home that the realtors said did not exist. Our first house was sold after four days of sleeping elsewhere and we sold it without an agent and kept the five per cent commission in the family. A total stranger walked through it once and bought it.
+
+That is how God creates. That is how you create if you know who you are, for you are God. You are not some little worm. They are now meeting in Chicago at this convention to tell us how we came from a worm, and that we are now evolving. God is not evolving. He creates out of nothing. He does not make something and hope He had the intelligence to make it better. Read it in the revealing word of God, the Bible. It is all created and what we call the animal world (which we say preceded us) is man himself pushed out, and as man is changing, so do the animals of the world change.
+
+The whole vast world on the outside is dead, and man makes it alive. I know from my mystical experiences. I know that when I freeze an activity within me, it freezes outwardly, and when I started it again within me, it started. This lady did not sell the first house until she had stopped sleeping in it. And then, when she decided on a larger house (in spite of her problem of four adults, cats and dogs, and special privacy and north of the strip) she found it. I say you can be what you want to be and you need no preparation other than your desire. This lady was a better agent than the real estate men who could not sell her house in four months, and she kept the five per cent. She wanted to do so [and] she did it, because she is all Imagination. But you will not know it until you prove it as she did.
+
+I tell her there is nothing impossible to her, and there is nothing impossible to you, for God became man that man may become God. God is the only actor. God alone acts in all existing beings and men. (Blake) If I re-act, that is the passive or negative side, called Satan, but if I act that is called God or Christ. If I go home tonight and conceive a scene that implies the fulfillment of my dream and then lose myself in it, I know that no power in the world can stop its coming into being.
+
+Today brought me a letter asking for help. I do not need to be next door to help another. There is no separation or time without consent. You make this work for another, no matter where they are. This letter was from New York, telling me about a fine doctor there. He got these growths on his face and feared they might be malignant, and then it was found that he had Parkinsons disease. This friend wrote me to tell me about it, and he said: Can you do anything when you are so far away? I am not 3,000 miles away, for everything is within me. I brought this doctor, in Imagination, before me and I put my hand on his face. I put it on a face that had no lumps. I felt only smooth skin. And then he and I walked together and he did not stumble; he walked like a well man would walk. That is what I did.
+
+Now comes this letter telling me that me that something has happened within him. These lumps are gone and he is no longer shaking and he now can go to his office again. Yet as a doctor he knows his condition is incurable. It is not unless he thinks so. If I had seemingly failed with him it would not matter, for I would still be exercising my wonderful talent. If that next letter had said if he had died it still would not mean I failed, for there are worlds within worlds, and God cannot fail. All we are called on to do, is to imagine and then let it be true. I cannot concern myself with what the doctors say. We are not little worms; we are of God, for God became his image and made [it] alive and it became a living soul, and then he transformed it into a life-giving spirit. But if you do not become a life-giving spirit, you do not know you are the cause of the livingness of your world. And then you cannot change it.
+
+Here is another story from the lady who bought the house: Going into a certain restaurant she saw some unusual rose-colored water glasses, and she asked if she could buy them. Both the waiter and the hostess said it would be impossible for her to do business with the person who did the buying for the restaurant, as she was such an unpleasant person. Also, they said the glasses were manufactured in the east and the supply was very limited. The lady went home, but every day she saw those glasses on her table eight of them. A month later she and her mother were again in the restaurant, and there was [a] new hostess, who introduced herself and then brought up the subject of the glasses and said she had heard the buyer would not sell any of them. And then she smiled and excused herself, returning in a moment with a box, which she gave to this lady. In it were not only eight glasses but twice that number. And they were without charge. Jehovahs gifts are without price. She was willing to pay even an excessive price for the glasses, but she got them as a gift.
+
+If you know what you want in this world you can get it. And let no one tell you that you are acquisitive. Those who tell you that would not mind having the same thing for themselves. So be completely disinterested in what people say and go out and live a full, wonderful, rich life, for what you want to do you can do if you know who you are. You are all Imagination and Imagination is God, and only God creates.
+
+This lady learned to use the Western Gate closed in most of us which is touch. That was her secret. She saw what her husband looked like standing by the fireplace the night she recreated the scene but she held onto the balcony with her hand to prove it to herself that she was there.
+
+So what would you desire? I cannot stress too much the use of touch or the Western Gate. I have seen people take imaginary paychecks and touch them. They had brought the other senses of seeing, and hearing comments, etc. but when they had brought the sense of touch it worked like a charm, for when you bring touch you open the closed Western Gate and then nothing seems impossible. If I could snuggle into a bed 10,000 miles away and then view my world from that place, I would gravitate there. For I am all Imagination, so I must be where I am in Imagination. Though I am physically here, if I view my world from that other place I am there, and if anyone is a sensitive they will be able to see me there. I have [been] seen in points of space when I was physically here but desired to be seen there. I am where I am in Imagination, so if I imagine I am the person I want to be and walk in that state as though it were true, then everything in the world will rush to make it so. If I would only live in Imagination as I desire to live in the flesh, then everything that seems detached will be joined to make it real.
+
+Try it in your office, and if things are not right or as they ought to be, then you assume that this person is acting as he should and you hear the conversation and what they would say if they were now the kind of individual you want them to be. And if they act tomorrow as you imagined they are acting, then where is reality? It will come to you some day.
+
+When weary man enters his cave
+then he meets his Savior in the grave.
+Some find a female garment there
+and some a male woven with care.
+(Blake)
+
+But that is not man. God is the reality, and male and female is the garment. This (the body) is the cave, and this is also the grave of which Blake speaks. This is where God laid himself down. I am crucified with Christ, nevertheless I live, yet not I but Christ liveth in me, and the life I now live by the faith of the Son of God who loved me and gave Himself for me. So it is all woven within me, for God is the eternal man and I am he. He weaves himself into us for educative purposes and in my case it is male, but that is not man. He wears garments of male and female, but that is not man. And then Blake turns to Satan:
+
+Oh Satan, true thou art a dunce;
+thou canst not tell the garment from the man.
+
+The day will come when you will see this fabulous world of garments frozen, but the man you do not see, for you are that man. And you become aware of what you want and then you see the whole world is infinite response to you. So, whatever you activate, you get the response. The world has to respond after I start the action within me.
+
+Tonight you take your dream and make it a noble one, and create a scene that would imply its fulfillment of your dream, and open that Western Gate, which is touch. There is one man here who made deposits (mental ones) at his bank. You know the story of Archie Franklin. He mentally went into two different banks and asked for his balance and heard what was said to him. He did it three times a day for two months. Then he went to Caliente and returned with $32,000. What he won was $3.00 more than the bank deposit he had mentally added up. I do not say go to Caliente, but I say put yourselves in that same state and do not let someone tell you it is not spiritual, for while they are saying that, they are already wondering if they can borrow some of that check when you get it.
+
+Everything in this world is God's creation and God is all Imagination. Even the clothes we wear, the chairs we are sitting on, were once imagined and then brought into being. Let no one tell you this is wrong. Those who tell you to kill out desire have not gone far enough, for if I wanted to kill desire I would have to start with the desire not to desire, and where would [I] go? How far?
+
+So, go out and do what you want to do and fulfill your [[Dreams]]. Someone without academic background is telling you this. I am going out on a limb to tell you that everything in the Bible is true on a higher level, but it is revealed figuratively, and man confused literal truth with metaphor. I do not crawl on my belly and no little serpent spoke to me, as it says in Genesis; yet what is meant is true in metaphor. The serpent was called the most subtle of all the creatures and it represents the wisdom of man, who takes all his arts and religions for his own glamour and dedicates them to the creator. And then comes one who never went to any school (Blake) and shows them reality. And now those who thought themselves so wise are figuratively crawling on their bellies in the presence of such as he. In the Bible things are told on a higher level and told in metaphor, but I know from mystical experience things I could not have found in any book.
+
+The statement: You must be born from above or you cannot enter the Kingdom of Heaven is an example. It is literally true, but it is told in metaphor. The rich young man said: How is it possible to again enter my mothers womb and be born a second time? But the womb is below and not above. It is speaking of the birth of the second man, the spiritual man. From Genesis right to the end of the Book, it says that God created all things and that he said: It is good. Seven times he repeats: It is good − the perfect number. One day you will see the whole vast world, and you will say: It is good! And you will animate it. I know everything depends on the activity taking place in MAN − and spell it with large letters, for the garments are male-female. You are MAN, this generic man that is God. The whole vast world is man pushed out. Not a man, but MAN. All that you behold though it seems to be without, it is within, in your own wonderful Imagination of which this vegetative world is but a shadow. It is hard at this stage to think that your world is a shadow, and it is cast by you and you are activating it.
+
+When you dream, do not think that because there seems not a fact to support it, it cannot come. It will come, so dream nobly. If you want fame, have it. But I would suggest that you suggest to yourself that you are awakening and can see this frozen wonderful world and you as the activator. I hope many of you have the desire to do what I am doing and will go out and tell this. First prove it to yourselves. Learn the art of repentance, which means a change of mind. Try it, and try it again, and prove that a change in you will produce an outer change. Go out and prove it and then tell others. Imagine what you want to imagine and continue to imagine until you are confronted with it. It does not matter what your senses tell you; if you learn to live by this you will not fail.
+
+Bear in mind that this, the body, is only a garment and one day you will take it off. But you are invisible, and when you [are] completely awakened, you join the Divine Society and become one of the Gods who create. Remember that every moment of time God is begetting himself in us and you cannot fail.
+
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Belief in Imagination and Creation
+- God is all Imagination and God is man, therefore man is all Imagination.
+- Life itself is an activity of Imagination, and the whole world is a world of Imagination.
+- Everyone can become what they desire to be, as man is spirit and spirit is imagining.
+
+### Case History 1: Selling and Buying a House
+- The lady's husband decided to sell their home, and she knew that it couldn't be sold until she stopped mentally sleeping in it.
+- Despite several real estate operators trying to sell it, the house wasn't sold until the lady started sleeping in Imagination in the area she desired to move to.
+- Her husband met a stranger who wanted a home in the hills, and they ended up selling their house to him.
+- They then found a new house with two separate living rooms within the desired area, despite being told it didn't exist.
+
+### Case History 2: Getting Unusual Glasses
+- The lady saw unusual rose-colored water glasses in a restaurant and was told it would be impossible to buy them.
+- She started imagining the glasses on her table every day, and a month later, the new hostess gave her twice the number of glasses as a gift.
+
+### Everyone Can Get What They Want
+- If you know what you want in this world, you can get it.
+- Don't be concerned with what others say, and live a rich life based on your desires.
+- Use touch to open the closed Western Gate and make your desires feel real.
+
+### The Power of Imagination and Creation
+- The whole world is God's creation, and God is all Imagination.
+- Ignore those who tell you to kill desire, as desire is the starting point for creation.
+- You can fulfill your [[Dreams]] if you know that you are all Imagination and create like God.
+
+### Understanding Biblical Metaphors
+- The Bible contains truths told through metaphor, and Blake reveals a higher level of reality.
+- You must be born from above to enter the Kingdom of Heaven, referring to the birth of the second, spiritual man.
+- God is the creator of all things, and you are the activator of your world.
+
+### Proving the Power of Imagination
+- Dream nobly and persistently, and your desires will manifest.
+- Learn the art of repentance, which means changing your mind and seeing outer changes as you change within.
+- Prove the power of imagination in your own life and then share it with others. Imagination
+- Dream nobly and persistently, and your desires will manifest.
+- Learn the art of repentance, which means changing your mind and seeing outer changes as you change within.
+- Prove the power of imagination in your own life and then share it with others.others.
+
+
+#Dreams

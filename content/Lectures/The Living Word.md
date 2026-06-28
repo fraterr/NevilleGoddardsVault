@@ -1,0 +1,120 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: The Living Word
+keywords: []
+bible_ref:
+tags: lecture
+topics: [Discovering the Bible is All About You, The Living Word and the Dead Letter, Experiencing the Bible Within Yourself, Fulfilling Scripture and Unfolding the Word, The Awakening and Erupting of God Within You, The Power of Words, Becoming God and Discovering the Truth, Becoming God and Discovering the Truth]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+In all the revelations that await you, there is none so fundamental and so filled with ecstasy, as when you discover that the Bible is all about you. What joy will be yours, when the word of God as recorded in the books of Genesis to Revelation is revealed, and you - an individual - become the living Word and the interpreter of the Bible. The day is coming when you will discover that you are the one who was sent; that you are the Word of God who cannot return empty, but must accomplish that which God purposed, and prosper in the thing for which you were sent. I was thrilled beyond measure when I realized that I was the Word which became flesh. Now clad in a robe dipped in blood, I am (as you are) the Word of God, who was in the beginning with God and was God.
+
+I tell you: you were sent for a divine purpose, which is to fulfill - thereby making alive - the word we call scripture. There is no other purpose for being here. You did not come to be rich, famous, known, strong, or weak, but to fulfill this fantastic play in a living way. The word in the written form is dead. The letter kills, but the Spirit makes alive. You, all Spirit, are the living word which interprets the seeming dead letter. You are destined to discover that the story of Jesus - from his conception by the Holy Spirit to his ascension into heaven - is a sign granted by God to those who will receive it.
+
+Today you may think of Jesus as someone external to yourself, and the Bible as records of events which took place thousands of years ago, recorded by prophets who were servants of a God unknown by you; but when the revelation unfolds within you, you will know you are the Word made flesh. You will discover that you are the Jesus of scripture, and will say within yourself: *"I am Mary, and birth to Christ must give, if I in blessedness for now evermore would live,"* as you bring forth yourself as the Word which was in the beginning with God and was God.
+
+One day you will see the entire Bible unfold within yourself - yet outwardly there will be no change. You will remain a little man (or woman), as you were prior to the unfolding of the Word within you; yet everything said of Jesus, the pattern man, you will experience in the first person, present tense. I, individually, have experienced everything said of Jesus Christ in the New Testament. Now I know that in the volume of the book it is written of me, and I can't tell you the thrill that will be yours when it happens to you. Your concept of the world will change, as you know that no matter what a person achieves here, it means nothing. You will grant everyone's wishes, knowing that no matter what their desires may be, they will fade into nothing. If they owned the earth and enslaved all, it would still be as nothing, for it will vanish like smoke or wear out like a garment. But the individual, who is the Word, cannot and will not return void. The Word did not come to own the earth, but to fulfill scripture. Scripture must be fulfilled in every individual. I have interpreted scripture to you in all the things concerning myself. They were written of me and I have shared their meaning, from experience.
+
+We are the Word spoken by God; but remember: God Himself is the Word. The author of this play is playing all the parts, for there was no one else to play them. God had to actually become the actor in this drama called life, and he cannot return empty, but must and will play every part completely and perfectly. Then the final revelation will be played, and God - the Word - will unfold.
+
+Today people seem so shocked to discover that one of our judges has turned aside from his ethical code, yet what man can cast a stone? No one who has ever walked this earth can claim he is innocent of a similar experience, for scripture tells us that to want it, is to have committed the act. *"You have heard it said, 'Thou shalt not commit adultery,' but I say unto you that anyone who lusts after a woman has already committed the act with her in his heart."* The drama of life is psychological, and everyone is guilty of lust for personal gain. Why should we be shocked and offended when we see injustice in high places? All of our officials are guilty, for - by example of those above them - they are encouraged to use their vocation for personal gain. This very night there are those earning a fortune, giving lectures on subjects they know nothing of, and the halls will be filled, because they have publicized themselves. Everyone wants to go see, touch, and hear, one who is known in the world of Caesar.
+
+When I brought out my first book in 1941, I went to see a man who was an agent for such speakers as Mrs. Roosevelt and Mr. Churchill. The gentleman explained to me that he could not sell me, because I was unknown. He told me that if I would go out and shoot someone and get off with lots of publicity, he could sell me night after night for hundreds of dollars. He said: *"I could sell Mrs. Roosevelt every week for $1200 per lecture. She is a mother of many children, yet I could sell her if her subject was: 'What it feels like never to have known a man,' for the public would come to hear and see Mrs. Roosevelt. Go out and get yourself publicized and I will sell you across the country, because I sell names."* Today someone in Congress will get up and make an outrageous statement. It will be carried on tonight's television and tomorrow's press, as they build up his name and he makes more money for them. This goes on over and over again in this world.
+
+But that is not the play, for the real play is sacred. It is written in scripture and the Book is sealed. Revelation breaks the seal, as that which was a dead word begins to unfold from within. You will not observe events taking place on the outside. There was never any physical virgin birth. You must be born from within. Now housed in your own wonderful skull - which is the Mary of scripture - it is from that Holy Mother that you must be born. As Mary, I gave birth to Christ; and now, forever in blessedness, I live and share my experiences with those who have not yet brought him forth - for the Word cannot return empty. It has to fulfill this pattern. Jesus is the pattern man, and no one can change that pattern. It begins with the resurrection, when God awakes and leaves his tomb. Three witnesses appear - three wise men - to see the sign as a child wrapped in swaddling clothes. As you fulfill this pattern, your awareness grows in wisdom and power, and you become a witness to the truth of scripture which, prior to your awakening, was never understood. Now, another act in the play is recorded as: *"In the fullness of time he sends forth his son into the heart of man, crying 'Father.'"* This will happen to you as it did to me. God's only son, David, called me *"Father,"* revealing my true identity to myself.
+
+To the mortal eye I am a little man, but when this garment which I purposely assumed is taken off, I will be seen only with the eyes of the spirit. As long as I wear this robe dipped in blood you do not know my name is the Word of God; but I was sent forth from the mouth of God and he only sends himself, so he who sees me sees him who sent me. My Father sent me to do his will, which is to fulfill scripture. Now I can say: *"Father, I have accomplished the work which thou gavest me to do. Now return unto me the glory that was mine, the glory that I had with thee before that the world was."* I ask for no other glory, just the return of what I emptied myself of when I and my Father were one. There was no one to go, so God's Word was sent, knowing it could not return to its place of origin void. It had to bring back that for which it had been purposed. I have fulfilled that purpose. My work is finished. Now glorify me with the very self that was mine before that the world was. I return now to my own being, who is the Word that was with God and was God.
+
+You are God's Word, destined to reach the fullness of time, and erupt. As the Word unveils itself within you, you will know the truth of the 40th Psalm: *"In the volume of the book it is written of me."* I can't tell you the thrill you will experience when you discover that the book the world calls the sacred word of God, is contemporary. The Bible is all about you and must unfold within you; and when it does, you - now the Living Word - will interpret the written word, for the word is dead until it is made alive and given meaning through the act of unfoldment. Then - as the Living Word - you return as a witness to the truth of God's word.
+
+You do not add to or take from God's word; you simply fulfill it within yourself and everyone who hears your words will either accept them or reject them. You hope they will believe you, but you must go on anyway. There will always be a remnant of those who are near the point of acceptance. When Elijah pleaded with God, he said: *"Go back, Elijah, for I have saved a remnant for you. There are seven thousand in that city ready to hear what you can tell them."* There will always be a circle whose seed (which is God) has reached the point of breaking through. The very first eruption, which is the cornerstone of the entire mystery, is your awakening. And who is the sleeper? God. *"Rouse thyself, why sleepest thou, O Lord? Awake! Do not cast us off forever."* So it is the Lord whose name is I AM who awakes; and the moment the Lord awakes in you, you will feel yourself awaken.
+
+When I awoke I was alone. There was no other, so it was God who awoke and came out of my skull to see that the word God prophesied would be seen. I saw witnesses observing the sign of my birth. The world thinks the sign is the event, but it is not. A child signifies that something was born. *"This shall be a sign unto you. You shall find a babe."* The babe is a sign that God has been born. It is a birth wherein God returns to himself. God came into the world to fulfill his word, and in order to depart the world he must be born from above, otherwise he will remain here. He cannot return to his heavenly state, which is the kingdom of God, until his word is fulfilled. I am returning now to God's kingdom, leaving behind my record. I ask no one to judge me, for no earthly person is capable of such judgment. Now the Living Word, I can testify to the truth of scripture from experience. When two come together and agree in testimony, it is conclusive. 
+
+Have you experienced what is written in the Bible? You can't fool the watchers from above, for they see not the outer man nor hear his words; they see only the inner man, and know if he bears the marks of Jesus or not. You return as a witness to the word of God by making alive within yourself that which is written in scripture as a dead written code. When you agree to those words, in testament, you will enter into the kingdom, into the joy of the Lord. There is no other way to enter other than to resurrect, which is God's mightiest act; be born from above; discover the fatherhood of God by having his son call you Father. Then to have the curtain of the temple (which is your own body) split in two from top to bottom, and you - in the fulfillment of Exodus - rise into heaven like a fiery serpent. And finally, to have the seal of approval placed upon you in the form of a descending dove which smothers you with love.
+
+In the interval, all the other passages of scripture take place within you night after night, as every part of the word of God fulfills itself in you. Then you will tell of your experiences; and, having told them, you will depart the world knowing that those who came to you could not have come unless the Father within you (who is yourself) drew them. Your remnant will come, hear you, and be encouraged by it. You will tell them of the resurrection of their True Self, called Jesus Christ. *"I am born anew"* said he, *"through the resurrection of Jesus Christ. Born to a hope."* What is the hope? *"Set your hope fully upon the grace that is coming to you at the revelation of Jesus Christ."* This revelation is the hope that makes it wisdom to accept the burden of this long, dark night of time.
+
+This world truly is a night of terror, where horrors take place every moment in time. Murder and stealing need not be violent. You can underpay a man, thereby inviting him into an embarrassing state - not realizing what you are doing to yourself. In underpaying him, you are sucking his blood; and those who live on blood are, in a sense, the termites of the world. The fleas that live on dogs produce nothing; they only live on the blood of another. Well, in our language, money is the life-blood of the world. When you underpay a man for his services you are taking his blood.
+
+If you could see yourself as the awakened Man sees you, you would be horrified to know what you look like, or smell like. All of the perfumes of Arabia could not stifle the odor which comes from you. To the awakened Man you are a monstrous flea, clothed in human form that people are so proud to touch; and - because it is well known - they will pay $5,000 to hear it speak. It gets everything because it is publicized; but if it took off its mask, those who paid to hear it speak would run for their lives when they saw its true identity.
+
+I tell you: we are here, and will remain in this world of educative darkness until he who sent us, as us, erupts and fulfills scripture. So do not criticize those who want to live on the blood of others; just leave them alone and let them do it. You have played these horrible parts, or you would not be in this room tonight. You are drawn here because the one speaking to you has fulfilled scripture. No one comes unto me save my Father calls him, and I and my Father are one. I am the Living Word which He sent into the world to fulfill his external word. This I have done. I now return bearing witness to his word, and can now say the words in the 17th [chapter] of John: *"I have accomplished the work which thou gavest me to do. Now return unto me the glory that was mine, the glory which I had with thee before that the world was."*
+
+Let everyone be as he is, and if it comes within your code of decency, pray for him. If he wants money or happiness, grant his wishes; but if he wants to violate your code of decency - like murdering someone - send him elsewhere. May I tell you: if he is so bent, he will find someone who will take his money and pray for the life of another. But you go about your Father's business, and set your hope fully upon the grace that is coming to you at the unveiling of the word of God within you. When the word unfolded itself within me I jumped off my bed, hardly believing what I had experienced. To think that all that was said of Jesus Christ was taking place within me, was a shock - yet the greatest thrill possible. Now I know that scripture is not the recordation of events which happened in the past, but a contemporary story which repeats itself over and over again. Jesus Christ has unfolded himself within me, revealing himself to me, as me. I have experienced everything Jesus said in scripture. I did not observe someone experiencing these events; I was the central actor in the drama. I let the world say what they will about the mythology of scripture and inwardly smile, for I know that the wisdom of this world is foolishness in the eyes of God.
+
+Let the world become wiser and wiser in their own stupidity. Let them feel themselves very famous and wonderful. Don't join them; just set your heart fully upon this grace that is coming to you. Then you will know that if blows come tonight, at some time in your blindness you planted their seed, for as a man sows, so shall he reap. You may not recognize your harvest because you do not remember the sowing, but the blow could not appear in your world had you not caused it. So reap it and rejoice in the fact that you recognize your planting, even in a little way. Then remember the words of Paul when he said: *"I consider the sufferings of the present time not worth comparing to the glory that is to be revealed in me,"* for when that glory is revealed, the word is unfolding, and it all unfolds within you.
+
+You are not only the Word sent into being, but the power to fulfill the pattern of redemption, for you are the instrument of God's creation. Through you God created it all, because He and you are one. He sent himself as the being speaking to you now; so when you see me after your experiences, you will see the one who sent me, for I am one with the sender. My Father is he who you call God. I know my Father, for he and I are one; but you know not your God.
+
+Oh, how I wish I could share with you the joy that is to be yours when the Bible becomes your biography. Every day I open that Book to realize it was I who inspired the prophets. Many times vision is spoken of as only coming through the audio, as in the beginning of the Books of Obadiah, Amos, and Isaiah; but when Christ reveals himself in you, the vision is not audio alone, but as real and alive as this room. And when the moment comes for you to depart this world, you will leave it never to return again. Those who leave, having not reached the point of the eruption, will find themselves restored to life in a world as solid and real as this. Their bodies will be young and their problems and challenges just as great as they are here. The veil - may I tell you - is not there, but right here, and so very, very thin. It is opaque to the mortal eye, however; and because of a different vibration, they are not touched or felt by us and we are not seen or touched by them.
+
+There are worlds within worlds into which you go until the word erupts in you. When you are told in the 19th [chapter] of Revelation that his robe was dipped in blood, don't think of one like the cardinal wears. Your little garment of flesh and blood is that robe God wears. In the 37th chapter of the Book of Ezekiel, the Lord speaks, saying: *"O dry bones, I will lay sinews upon you and cause flesh to come upon you and cover you with skin."* Now clothed in a robe dipped in blood, you are Spirit, and the name by which you are known is the Word of God. You are he who was with God in the beginning, and was God. You became flesh and are now dwelling in your robe dipped in blood. You came forth from the mouth of God and cannot return void, but must accomplish that which you purposed, and prosper in the thing for which you were sent. Your awareness, your I amness, is God.
+
+On this level, you can use the word you are by assuming things are as you would like them to be. As you persuade yourself that they are, you will carry on little unheard conversations. These are words, too. That's why Blake said: Oh, what have I said, what have I done? Oh all powerful human words." In the course of a day, you carry on mental conversations which no one hears, but everyone on the outside responds to. You may wonder why someone acts the way they do towards you, but they have to because of the words you are inwardly speaking. Your internal conversations are sent out into the world, and they will not return unto you void; rather, the world will respond in keeping with the word you sent out.
+
+You cannot think without the use of words, for words clothe thought. If you meet someone, you may think he looks remarkably well. It is a thought, being said without using audible words. Believe he does look well and you have sent your word. Think of the good news you just heard about your friend. That he is making so much money he doesn't even know what to do with it. You may hear his laughter in your mind's eye, but feel the reality of your words and let them happen. Don't try to determine how it will come to pass; simply assume it is already a physical fact. Do that and you will know the power of your word, for God became man, clothed in these mortal garments of flesh and blood, that man may become God.
+
+When you see a disturbance in your world you may question why, but it appeared because you did not control your imagination. You may enjoy carrying on arguments with your children, your parents, or friends, from premises that are stupid and need not be; but if you know that all things must come to pass, why are you doing it? If you believe that every thought produces what it implies, then stop a negative, undesirable thought, and change the record by putting on a new one. 
+Then one day this fundamental revelation of the unfolding of the word within you will come to pass, and the sacred word of God will unfold and cast you as the actor in the central role. Then you will know who Jesus really is.
+
+Now let us go into the silence.
+
+
+## Summary
+
+### Discovering the Bible is All About You
+
+- The revelation that the Bible is all about you is fundamental and ecstatic.
+- You are the living Word and the interpreter of the Bible.
+- You are the one who was sent to fulfill the divine purpose of scripture.
+
+### The Living Word and the Dead Letter
+
+- The written form of the word is dead, but you are the living word that interprets it.
+- The story of Jesus in the Bible is a sign granted by God to those who receive it.
+- Jesus and the Bible are not external to you, but are within you.
+
+### Experiencing the Bible Within Yourself
+
+- The entire Bible will unfold within you, while outwardly there may be no change.
+- Everything said of Jesus in the New Testament, you will experience in the first person.
+- The Bible is contemporary and repeats itself within you.
+
+### Fulfilling Scripture and Unfolding the Word
+
+- You are the Word spoken by God and have the power to fulfill scripture.
+- The fulfillment of scripture unfolds within you and reveals the truth of God's word.
+- You fulfill the pattern of redemption and become a witness to the word of God.
+
+### The Awakening and Erupting of God Within You
+
+- As the Word reveals itself within you, you awaken to your true identity.
+- You are God's instrument of creation and fulfill scripture by erupting and leaving this world.
+- The world is educative darkness until God fulfills scripture through you.
+
+### The Power of Words
+
+- Your words have the power to create and influence your reality.
+- Your internal conversations are sent out into the world and shape your experiences.
+- Control your imagination and choose your words wisely to manifest your desires.
+
+### Becoming God and Discovering the Truth
+
+- God became man so that man may become God.
+- Understand your power as the living Word and co-creator of your reality.
+- Through the unfolding of the word within you, you will discover the true identity of Jesus.esires.
+
+### Becoming God and Discovering the Truth
+
+- God became man so that man may become God.
+- Understand your power as the living Word and co-creator of your reality.
+- Through the unfolding of the word within you, you will discover the true identity of Jesus. Jesus.
+
+
+#

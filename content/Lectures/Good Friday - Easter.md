@@ -1,0 +1,100 @@
+---
+dg-publish: true
+---
+
+---
+book: 
+chapter: Good Friday - Easter
+keywords: [Assumption]
+bible_ref:
+tags: lecture
+topics: [The Drama in the Garden, The Technique of Awakening, Applying the Technique, The Art of Dying and Living, Knowledge and Action, The Wine-Colored Robe, The Mystery of Easter, The Daily Opportunity, Personal Application, Conclusion, Conclusion]
+banner: Handles/img/banner lectures.png
+sticker: emoji//1f4e3
+---
+You know the story of Good Friday. A man is in a garden. Its night time. And one called Judas comes in search of him, seemingly to betray him. He comes into the garden, and its dark, so he asks the simple question, *"Where is Jesus?"* Then the voice in the dark answered, *"I AM HE."* We are told in the story they all fell to the ground. When they regained their composure they asked the same question, *"Where is Jesus?"* Again the voice answered, *"I have told you that I AM HE."* This time Judas kisses him and the voice said to him, *"Now that you have found me, let all else go, but do not let Me go, and what you have to do, do quickly."* Then Judas goes out and commits suicide.
+
+Now when you read the story you might think that that drama took place in a garden. No. That drama must TAKE place in the mind of man. For this is all about re-birth. It takes a man, a normal man, a man of sense, but hidden in that man and bound hand and foot is the second man that rebirth loosens and lifts up, and that second man is God. So the mystery is all self, and he uses the word *"mystery"* no less than 18 times. He asked those in the Corinthians to esteem him as a steward of mystery. Then he said, *"Great is the mystery, God was manifest in the flesh."* Then he spoke of the greatest of all mysteries, the one hidden from the foundation of the world, *"Christ in you is the hope of glory."* Christ IN man. Not Christ in the pages of history, but God IN man must be awakened, and this is the technique by which he is awakened.
+
+Now come closely with me and let me take you into the garden of your own mind. Right now just imagine you are in a sick room of some wonderful hospital, a ward. You see the case history. You heard the verdict of the doctor, and the man, seemingly, is dying. What would save that man from such a verdict? What would save him? A state of health by which he would rise from that bed and become a normal, healthy person in this world; that would save him. Now, look into your minds eye and define carefully the solution of a particular problem. When you define the solution to the problem, do you know what you are actually seeing? You are seeing Jesus, for Jesus means *"to save."* So the state that would save that man from what he is, is the state of health. That is his savior.
+
+The story is, *"Now that you have found ME, let all else go, but do not let ME go."* In other words, let go of everything you have ever believed, but do not let go of this concept -- that the man is well in spite of the evidence of your senses to the contrary. No matter what reason dictates, you hold onto Jesus, Jesus being that the man is healthy. You hold onto it, and you touch it by becoming intensely aware of it; thats the only way to touch a thing.
+
+Let me tell you of something that happened only last Friday. I have a friend in this City who I met recently and he gave me a very sad story. He was up against it. He had borrowed money, and he cant pay it back. Things are just going from bad to worse. While shaving you dont have to go into some church to find Him while shaving, I thought of him and I instantly, while in the act of shaving, imagined I was speaking to my wife, and I said to her, *"Isnt it wonderful, the good news concerning George."* Then I allowed her, in my imagination, to say, *"Yes, isnt it wonderful."* Three hours later, he called me to tell me its so good he doesnt know what, really, to take. He said that in the immediate present two, wonderful jobs are offered to him. Jobs he can do and do well. Both are great and he doesnt know which one to take. Now he has another problem. I will now assume that he has taken the right one, the best one, and I know that in the immediate future, George will again call me and tell me that, on reflection, he could not have chosen more wisely.
+
+So, you look into your own minds eye and know exactly what you want in this world. When you know what you want in place of what you are, then you are seeing your savior, your Jesus. The story is, dont let Him go, but let all else go. Disengage yourself from the whole vast belief that you formerly entertained, and hold on in your imagination to the concept that you ARE the man that you want to be. That will lead you toward Calvary. Calvary means fixing in your own minds eye that state, and that will lead towards Easter or this wonderful day that we speak of as the Resurrection. For you will resurrect and make alive the state that began only as a concept. If you remain faithful to the concept you will be led right into the fulfillment of that state. It is called, in the Bible, re-birth.
+
+Now here is the story. He said, *"Except you be born again, you cannot enter the kingdom of heaven."* The wise man said, *"How is it possible a man my age may once again enter my mothers womb and be born again?"* He said, *"You, a master of Israel and you do not know? Except you be born of water and the spirit, ye can in no wise enter the kingdom of heaven."* Then he gives this clue, *"As Moses lifted up the serpent in the wilderness, even so must the son of man be lifted up."* As Moses lifted up the serpent do you think a man lifted up a brazen serpent as told in the story and that everyone who looked on it was instantly healed and those who would not look were not cured? Its not any serpent. A serpent is a symbol of the power of endless self-reproduction. For the serpent sheds its skin, and yet does not die. Man must be like the serpent, who grows and outgrows. So I must now learn the art of dying that I may live, rather than, I would say killing that I may survive. I die, by laying down all that I now believe, and I lift myself up to the belief that I am what I want to be. Thats how I do it.
+
+Now this is how a man is born of water and of the spirit. If I told you now that an [[Assumption]], though false, if persisted in, will harden into fact, that is a truth, that is water. But water is not enough. You must catch the spirit of it and apply that truth. Well, if I know that if I assume that I am the man I want to be and persist in that [[Assumption]], I would gradually become that. If I have that knowledge, thats marvelous. But not to DO it is to try to bring this being to birth by water only. We are told this is the one who came by water and the blood. Not by water only, but by water and the blood. In other words, I have the knowledge, but I cannot bring to birth my ideal by bare knowledge. I must put it into action, I must DO it. Then when I DO it, I take my savior and I crystallize him by the doing. This is the story of our wonderful Easter.
+
+Today, our churches are bursting with new finery, but not bursting with new men, and we are told in the story, *"Put on the Lord Jesus Christ. Put on the New Man."* Well, how will I put on a New Man? Its like saying to the boy, put on manhood, or saying to the tree, put on foliage. It comes from within, out and man puts it on from the outside. You cant put it on from the outside, for He is within you. For great is the mystery. The one hidden from the foundation of the earth, Christ in YOU is the hope of glory. Not some Christ external to yourself, but the one in you, that is your hope; that is your only glory.
+
+So, the great mystery is that at Bethlehem God became as we are that at Calvary we may become as He is. And Calvary is the opportunity that comes very day in the life of a man. When you walk the earth and you see anyone in need, ask yourself what would be the solution to that individuals problem, just what would it be? You can grant it. If you know who you REALLY are, you can grant it, just as I granted it to George. I didnt raise one finger to get George a job. I didnt send him on a job; I didnt give him anything. I simply turned in my own minds eye to my wife, who was not physically present, and simply stated, *"Isnt it wonderful, the news concerning George,"* and I allowed her to say, in my imagination, *"Yes, isnt it wonderful,"* and then I continued with my project of a simple shaving. That is simply lifting up the serpent in the wilderness. For I raised myself from the knowledge that George was unemployed and struggling to the knowledge that he is employed. I did nothing more. I shed the skin, like a serpent. I dropped off all that I formerly believed concerning George, and began to LIVE on a higher level concerning George, and I so lived it and so made it real that in three hours, he called and gave me this exciting news.
+
+You can do the same thing with anything in this world. When you do it daily, you die daily as the prophet said, *"I die daily."* Man waits for some little event called death, and he thinks that is dying. That isnt really dying for the simple reason that that kind of death does not bring about a transformation. For there is no transformation in a physical death, but there is transformation in mentally dying and dying daily. So, if you have learned the art of dying, you have learned the art of living. For man is immortal and he must die endlessly. For life was a creative idea, and it will find itself only in changing form. If I do not change and grow and outgrow, and grow and outgrow, then I know nothing of the mystery of Easter, for Easter is really the greatest of all mysteries. Its when man awakens within himself from his birth at Bethlehem and he awakens as God. Thats the story of Easter.
+
+So, let us not perpetuate this thing by our finery, which is lovely. There is not a thing wrong with getting new clothes and new hats and all the lovely things in the world, but today it has become almost a parade of what is new rather than the new man. So, when I put on the new man, I put him on by daily exercising him in this way. By becoming intensely aware. You could at this very moment, extend your feelings and trust your touch and participate in all the flights of your imagination, and do not be afraid of your sensitivities. When I become intensely aware that I am hearing what I want to hear and am actually touching what I want to touch, virtue goes out of me, and the thing touched takes on the blessing which was determined by the mood that possessed me as I imagined that I touched it. If I now touch anything, it must become crystallized in my world, bearing witness to the mood that possessed me at the moment that I touched it.
+
+So, unless we be born of this knowledge and the application of this knowledge, we cannot enter this eternal state called the Kingdom of Heaven. So, now you have a little of the knowledge, go out and apply it. When you apply it, this is what happens, and this is a mystical fact. It was said of this one called Judah, *"Who is this one who comes with his garments dyed in the sap of wine. Who takes his vestage and bathes it in the blood of grapes and takes his colt and ties it to a choice vine, and his eye red with wine, and his teeth white with milk?"* You are told in the very last act, *"They placed a wine-colored robe upon Jesus."* You are told that Judah took his robe and bathed it in the blood of grapes.
+
+Now when I took what I did for George, I was actually weaving my wine-colored robe. I must weave that robe if I would awaken. Its called, in the Bible, the wedding garment. It is called the wine-colored robe. It is called the amethyst in the New Testament, the amethyst in the Old Testament. Its not an amethyst. Its not a robe I weave on the outside, but when I live a life according to these truths, I am actually weaving a wine-colored aura around my being which then enables me to function consciously on higher levels of my own being. Without such a robe, I cannot function beyond my present physical state. But when I live this life according to these truths, you cant see it with the physical eye, but I weave my robe and those who have the eye opened will see me as one of their own, and Im not going to carry some little insignia to tell them who I am. I radiate who I am when they see my garment.
+
+So, when we are told, *"Judah comes and he takes his wonderful robe and he bathes it in the blood of grapes"* its not a man who takes off a robe, for the garment in the Bible is what a man wears mentally. So, if I take my mind and I apply it, actually all day long but not confining it to one simple little thing as I did for George, but in the course of a day I have unnumbered opportunities to weave this wonderful robe by simply hearing good news for others. If I hear only good for others and trust what I hear as though I heard it, I am actually taking my robe and bathing it in the blood of grapes.
+
+You wonder why he called himself the vine? He said, *"I AM the vine and ye are the branches. Unless the branch be rooted in the vine, it has no life."* Well every man in the world is a branch, rooted in me, the vine, and he ends in me as I am rooted in and end in God. Now that can be said of every man in the world. While you look at me and can hear me, you too can say it. Although I have just made the claim, *"you are rooted in me,"* you can claim that I am rooted in you and I end in you as you are rooted in and end in God. If you know it, then it is your duty to lift up every man in this world. Not one must be discarded. Everyone must be redeemed and your life is the process by which this redemption is brought to pass. Discard no man. Every man can be changed. And you have the power to change him by taking the man and seeing him as he seemingly is and then asking what he would like to be instead of what he seems to be. When you know what he would like to be, then you imagine that he is that being already. Turn to a loved one and commune with the loved one concerning this man, just as though it were a fact. When you do it, trust it, touch it and believe it, and I will tell you that man will become the embodiment of what you have imagined him to be.
+
+This is Easter, and Easter comes not once a year, Easter is a daily opportunity to simply die that you may live. For here it is said, *"If any man would come after me, let him deny himself and take up his cross daily and follow me."* Any man. Well, how would I take up my cross and follow after this idea? First, I am told I must deny myself. Usually man thinks that means giving up something he loves, giving up the pleasures of the table, or giving up something of which he is especially fond. It hasnt a thing to do with giving up external things. It is: a man must deny himself, and a mans true self is made up of the sum total of all that he believes, all that he accepts as true, all that he consents to. So, if I consent to a man dying, then I must deny that concept, that self, and put in its place the embodiment of a healthy being. When I do that, I can follow after this idea. You can take this principle and apply it to everything in this world. If its not some tangible thing on earth you want, take some noble concept of a man, take a man that you would love to see in this world. Dream of that man actually walking this earth and identify yourself with that man. Associate yourself in your own imagination with that as if you were he. When you actually feel that I am he, and continue in that state, then things begin to unfold to bear witness to the truth of your [[Assumption]]. You try it.
+
+So, remember, Easter is the art of dying that you may live, and this reminds me of that wonderful poem of the death of Abdula and what he said at the end of it all. He appeared among all the mortals and they were weeping and kissing his worn-out body and he turned to them and said, *"I am not the thing you kiss, cease your tears and let it lie. It was mine, it is not I."*
+
+Good-bye.
+
+
+## Summary
+
+### The Drama in the Garden
+- The story of Good Friday takes place in the mind of man, symbolizing rebirth.
+- Man is a vessel for the second man, God, who is awakened through rebirth.
+
+### The Technique of Awakening
+- The technique involves letting go of old beliefs and holding onto the concept that man is well, despite contrary evidence.
+- By becoming intensely aware of the desired state, man can touch and manifest it.
+
+### Applying the Technique
+- The author shares an anecdote about imagining good news for a friend, which manifested in new job opportunities for him.
+- Man must define what he wants and firmly hold onto that concept, disregarding previous beliefs.
+
+### The Art of Dying and Living
+- The biblical references to being "born again" and "dying daily" are about mentally dying to old beliefs and transforming oneself.
+- Man must constantly change and grow, shedding old beliefs like a serpent sheds its skin.
+
+### Knowledge and Action
+- Merely having knowledge is not enough; one must apply it to manifest desired outcomes.
+- Persistence in assuming the desired state gradually transforms man into that state.
+
+### The Wine-Colored Robe
+- Weaving a wine-colored aura around oneself symbolizes putting on the new man and functioning on higher levels.
+- This is done through intensive awareness, imagination, and trusting the touch.
+
+### The Mystery of Easter
+- Easter is awakening within oneself and realizing that God became human so that man can become divine.
+- Man must continually die to old beliefs and accept his power to change and uplift others.
+
+### The Daily Opportunity
+- Easter is not just an annual event but a daily opportunity to die to old beliefs and live as a divine being.
+- Denying oneself means denying old concepts and accepting the embodiment of the desired state.
+
+### Personal Application
+- The technique can be applied to any aspect of life by imagining and feeling the desired state, and then trusting its manifestation.
+
+### Conclusion
+- Easter is about dying to old beliefs and realizing that one's identity goes beyond the physical body.
+- Man is not the body but the essence of his beliefs and assumptions.esired state, and then trusting its manifestation.
+
+### Conclusion
+- Easter is about dying to old beliefs and realizing that one's identity goes beyond the physical body.
+- Man is not the body but the essence of his beliefs and assumptions.ptions.
+
+
+#Assumption
