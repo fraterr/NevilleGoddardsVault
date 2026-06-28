@@ -31,18 +31,20 @@ function TreeNode({ node, depth = 0 }: { node: VaultNode; depth?: number }) {
     const href = `/${node.slug.join('/')}`;
     return (
       <li className={styles.dirNode}>
-        <div className={styles.dirLabel} style={{ paddingLeft }}>
-          <Link href={href} className={styles.dirLink}>
-            <span className={styles.folderIcon}>📁</span> {node.name}
-          </Link>
-        </div>
-        {node.children && node.children.length > 0 && (
-          <ul className={styles.treeList}>
-            {node.children.map(child => (
-              <TreeNode key={child.path} node={child} depth={depth + 1} />
-            ))}
-          </ul>
-        )}
+        <details className={styles.detailsGroup}>
+          <summary className={styles.dirLabel} style={{ paddingLeft }}>
+            <Link href={href} className={styles.dirLink}>
+              <span className={styles.folderIcon}>📁</span> {node.name}
+            </Link>
+          </summary>
+          {node.children && node.children.length > 0 && (
+            <ul className={styles.treeList}>
+              {node.children.map(child => (
+                <TreeNode key={child.path} node={child} depth={depth + 1} />
+              ))}
+            </ul>
+          )}
+        </details>
       </li>
     );
   }

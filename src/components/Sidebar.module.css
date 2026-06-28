@@ -41,7 +41,7 @@
   margin: 0;
 }
 
-.dirNode {
+.detailsGroup {
   margin-bottom: 0.5rem;
 }
 
@@ -50,6 +50,12 @@
   align-items: center;
   margin-bottom: 0.25rem;
   width: 100%;
+  cursor: pointer;
+  list-style: none; /* Hide default triangle */
+}
+
+.dirLabel::-webkit-details-marker {
+  display: none; /* Hide for Safari */
 }
 
 .dirLink {

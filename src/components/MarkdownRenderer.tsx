@@ -20,9 +20,11 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
           // Overwrite link component to use Next.js Link for internal links
           a: ({ node, href, children, ...props }) => {
             if (href?.startsWith('/')) {
-              // Ensure path parts are safely slugified to prevent space/casing 404s
-              const slugifiedHref = href.split('/').map(slugify).join('/');
-              return <Link href={slugifiedHref}>{children}</Link>;
+              // Extract hash if present to preserve it
+              const [pathPart, hashPart] = href.split('#');
+              const slugifiedPath = pathPart.split('/').map(slugify).join('/');
+              const finalHref = hashPart ? `${slugifiedPath}#${hashPart}` : slugifiedPath;
+              return <Link href={finalHref}>{children}</Link>;
             }
             return (
               <a href={href} target="_blank" rel="noopener noreferrer" {...props}>
