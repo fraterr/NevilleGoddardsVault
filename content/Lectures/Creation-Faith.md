@@ -12,11 +12,11 @@ Eternity exists and all things in eternity independent of your creative act. You
   
 The 11th chapter of the Book of Hebrews tells fantastic stones of what the ancients performed - and they did everything! Beginning with Enoch, all of the characters are named, as well as their achievements. Then it is said: *"They received the promises, but not [the promise](/glossary#the-promise)."*   
   
-Having been promised that if they could believe, it would come to pass, they believed and received the promises. But no one knew the fulfillment of the promise until it broke through in one. Then he knew that by the same act of faith, he could leave this sphere and enter the heavenly one.   
+Having been promised that if they could believe, it would come to pass, they believed and received the promises. But no one knew the fulfillment of [the promise](/glossary#the-promise) until it broke through in one. Then he knew that by the same act of faith, he could leave this sphere and enter the heavenly one.   
   
-God's promise has fulfilled itself in me. I have recorded it for posterity as vividly and as accurately as I can in my book, Resurrection. You can read of my experiences and believe them or disbelieve them. It's up to you. Perhaps at the present time you do not want to leave this sphere and enter the kingdom of heaven.   
+[God](/glossary#god)'s promise has fulfilled itself in me. I have recorded it for posterity as vividly and as accurately as I can in my book, Resurrection. You can read of my experiences and believe them or disbelieve them. It's up to you. Perhaps at the present time you do not want to leave this sphere and enter the kingdom of heaven.   
   
-Now, *"By faith we understand that the world was created by the word of God,"* which is His [power and wisdom](/lectures/power-and-wisdom), called [Christ](/glossary#christ). Any Christ other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
+Now, *"By faith we understand that the world was created by the word of God,"* which is His [power and wisdom](/lectures/power-and-wisdom), called [Christ](/glossary#christ). Any [Christ](/glossary#christ) other than he who is crucified, buried, and rises in you, is false. And anyone who teaches of an outside Christ is a false teacher.   
   
 Paul tells us: *"The mystery hidden from the ages, [Christ in you](/lectures/christ-in-you), is the hope of glory."* Any hope you have of entering a glory that transcends all earthly power and wisdom is already in you, but hidden. Christ is the way, the pattern to follow for entrance into that glory.   
   
@@ -40,7 +40,7 @@ Perhaps another has injured you or caused you grief. It doesn't matter what has 
   
 You see, there are two things that displease God. One is the lack of faith in *"I am he"*, and the other is eating of the tree of knowledge of good and evil by using yourself as the criteria as to what is good and what is evil. Unless you believe you are the seeming other who caused your grief, you will continue to reproduce the same unhappiness and miss your mark in life by dying in your sins. So, without faith it is impossible to please yourself!   
   
-For the moment, think of everything as existing now! Although unseen by your mortal mind, your desire exists and can be seen in your imagination. Although your father and mother may be unseen by the world, they exist, and the love they have for you has never passed away. Because all things are, you may use them or those who are now in your world.   
+For the moment, think of everything as existing now! Although unseen by your mortal mind, your desire exists and can be seen in your [imagination](/glossary#imagination). Although your father and mother may be unseen by the world, they exist, and the love they have for you has never passed away. Because all things are, you may use them or those who are now in your world.   
   
 If, for instance, your friends heard of your good fortune, would they empathize with you or be envious? Do not choose one who would sympathize with you, for you do not want sympathy. You either want empathy or envy. If you know someone who, when hearing of your good fortune would now go wild with envy, use her. Or, if you know one who would rejoice because of your good fortune, take that image.   
   
@@ -110,7 +110,7 @@ All of these things are on the outside. Faith in any power other than He who is 
   
 The world was constructed in the mind's eye, out of things unseen by the mortal eye, and made alive by faith. Eternity exists and all things in eternity, independent of the creative act, which is the [Assumption](/glossary#assumption) of unseen reality and loyalty to its assemblage.   
   
-In spite of denial by your senses and reason, if you will be faithful to your unseen Assumption, it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
+In spite of denial by your senses and reason, if you will be faithful to your unseen [Assumption](/glossary#assumption), it will externalize itself. That is how all worlds come into being, but men do not understand this. Structuring their world based upon the evidence of their senses, they continue to perpetuate that which they do not desire.   
   
 Knowing what you want, close your eyes and enter its fulfillment, knowing that God is seeing what you are seeing. That He is hearing what you are saying; and what God sees and hears and remains loyal to, He externalizes.   
   

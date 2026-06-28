@@ -10,13 +10,13 @@ Prayer is not so much what you ask for, as how you prepare for its reception. *"
 
 The only condition required is that you believe that your prayers are already realized.
 
-Your Prayer must be answered if you assume the feeling that would be yours were you already in possession of your objective. The moment you accept the wish as an accomplished fact, the subconscious finds means for its realization. To pray successfully then, you must yield to the wish, that is, feel the wish fulfilled.
+Your Prayer must be answered if you assume the [feeling](/glossary#feeling) that would be yours were you already in possession of your objective. The moment you accept the wish as an accomplished fact, the subconscious finds means for its realization. To pray successfully then, you must yield to the wish, that is, feel the wish fulfilled.
 
 The perfectly disciplined man is always in tune with the wish as an accomplished fact.
 
 He knows that consciousness is the one and only reality, that ideas and feelings are facts of consciousness and are as real as objects in space; therefore he never entertains a feeling which does not contribute to his happiness, for feelings are the causes of the actions and circumstances of his life.
 
-On the other hand, the undisciplined man finds it difficult to believe that which is denied by the senses and usually accepts or rejects solely on appearances of the senses. Because of this tendency to rely on the evidence of the senses, it is necessary to shut them out before starting to pray, before attempting to feel that which they deny. Whenever you are in the state of mind *"I should like to, but I cannot"*, the harder you try, the less you are able to yield to the wish. You never attract that which you want, but always attract that which you are conscious of being.
+On the other hand, the undisciplined man finds it difficult to believe that which is denied by the senses and usually accepts or rejects solely on appearances of the senses. Because of this tendency to rely on the evidence of the senses, it is necessary to shut them out before starting to pray, before attempting to feel that which they deny. Whenever you are in the [state](/glossary#state) of mind *"I should like to, but I cannot"*, the harder you try, the less you are able to yield to the wish. You never attract that which you want, but always attract that which you are conscious of being.
 
 Prayer is the art of assuming the feeling of being and having that which you want.
 

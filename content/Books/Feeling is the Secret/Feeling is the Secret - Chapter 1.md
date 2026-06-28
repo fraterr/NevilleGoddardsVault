@@ -8,7 +8,7 @@ Knowledge of [the law](/glossary#the-law) of consciousness and the method of ope
 
 Armed with a working knowledge of this law, you can build and maintain an ideal world.
 
-Consciousness is the one and only reality, not figuratively but actually. This reality may for the sake of clarity be likened unto a stream which is divided into two parts, the conscious and the subconscious. In order to intelligently operate the law of consciousness, it is necessary to understand the relationship between the conscious and the subconscious.
+Consciousness is the one and only reality, not figuratively but actually. This reality may for the sake of clarity be likened unto a stream which is divided into two parts, the conscious and the subconscious. In order to intelligently operate [the law](/glossary#the-law) of consciousness, it is necessary to understand the relationship between the conscious and the subconscious.
 
 The conscious is personal and selective; the subconscious is impersonal and non-selective. The conscious is the realm of effect; the subconscious is the realm of cause. These two aspects are the male and female divisions of consciousness. The conscious is male; the subconscious is female.
 
@@ -24,7 +24,7 @@ Therefore, through his power to imagine and feel and his freedom to choose the i
 
 The mechanism of creation is hidden in the very depth of the subconscious, the female aspect or womb of creation.
 
-The subconscious transcends reason and is independent of induction. It contemplates a [feeling](/glossary#feeling) as a fact existing within itself and on this [Assumption](/glossary#assumption) proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a feeling and ends in a volition to act.
+The subconscious transcends reason and is independent of induction. It contemplates a [feeling](/glossary#feeling) as a fact existing within itself and on this [Assumption](/glossary#assumption) proceeds to give expression to it. The creative process begins with an idea and its cycle runs its course as a [feeling](/glossary#feeling) and ends in a volition to act.
 
 Ideas are impressed on the subconscious through the medium of feeling.
 
@@ -42,7 +42,7 @@ Every feeling makes a subconscious impression and, unless it is counteracted by 
 
 The dominant of two feelings is the one expressed. I am healthy is a stronger feeling than I will be healthy. To feel I will be is to confess I am not; I am is stronger than I am not.
 
-What you feel you are always dominates what you feel you would like to be; therefore, to be realized, the wish must be felt as a [state](/glossary#state) that is rather than a state that is not
+What you feel you are always dominates what you feel you would like to be; therefore, to be realized, the wish must be felt as a [state](/glossary#state) that is rather than a [state](/glossary#state) that is not
 
 Sensation precedes manifestation and is the foundation upon which all manifestation rests. Be careful of your moods and feelings, for there is an unbroken connection between your feelings and your visible world. Your body is an emotional filter and bears the unmistakable marks of your prevalent emotions. Emotional disturbances, especially suppressed emotions, are the causes of all disease. To feel intensely about a wrong without voicing or expressing that feeling is the beginning of disease – dis-ease – in both body and environment. Do not entertain the feeling of regret or failure for frustration or detachment from your objective results in disease.
 
@@ -68,7 +68,7 @@ The conscious (objective) or male aspect truly is the head and dominates the sub
 
 However, this leadership is not that of the tyrant, but of the lover.
 
-So, by assuming the feeling that would be yours were you already in possession of your objective, the subconscious is moved to build the exact likeness of your Assumption.
+So, by assuming the feeling that would be yours were you already in possession of your objective, the subconscious is moved to build the exact likeness of your [Assumption](/glossary#assumption).
 
 Your desires are not subconsciously accepted until you assume the feeling of their reality, for only through feeling is an idea subconsciously accepted and only through this subconscious acceptance is it ever expressed.
 

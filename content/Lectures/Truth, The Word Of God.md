@@ -20,11 +20,11 @@ One must see the whole vast world as a psychological drama. You may think you ha
 
 In the third chapter of the book of Matthew, John states, *"I baptize with the water of repentance."* Repentance tests your ability to enter into and partake of the nature of the opposite. When you see another in want, you repent by persuading yourself he is affluent. To the degree you can believe this truth you bathe in the baptismal prime waters. Only when you act and prove repentance, in performance, are you baptized in the true sense of the word.
 
-The baptism with the Holy Spirit is something entirely different. While living by [the law](/glossary#the-law) of repentance, you will be called to unite into a single body, who is God. In the 12th chapter of 1st Corinthians we are told that, *"By one spirit we are baptized into one body."*
+The baptism with the Holy Spirit is something entirely different. While living by [the law](/glossary#the-law) of repentance, you will be called to unite into a single body, who is [God](/glossary#god). In the 12th chapter of 1st Corinthians we are told that, *"By one spirit we are baptized into one body."*
 
 When this baptism happened to me, I had the sensation of being taken for a long, long journey. I found myself standing in front of the Risen Lord, who asked me the simple question: *"What is the greatest thing in the world?"* I answered as though promoted from some depth of my own being, saying, *"[Faith, hope and love](/lectures/faith-hope-and-love). These three, but the greatest of these is love."* With these words, the Risen Lord embraced me and we became one being.
 
-No mortal eye can see the body of God I wear, but I feel it, for I wear it every moment of time. Now, when I tell my story some will resist me, for they are still filled with their own preconceived misconceptions of [Christ](/glossary#christ). But I know that one day everyone will be embraced by this one spirit, thereby being baptized into the one body of Christ.
+No mortal eye can see the body of God I wear, but I feel it, for I wear it every moment of time. Now, when I tell my story some will resist me, for they are still filled with their own preconceived misconceptions of [Christ](/glossary#christ). But I know that one day everyone will be embraced by this one spirit, thereby being baptized into the one body of [Christ](/glossary#christ).
 
 My wife's oldest sister is a darling. We love and respect each other, but she cannot believe what I teach. Although she believes in the Bible, and calls herself a good Christian, she could not believe me when I said she would not die. That even the little flower which blooms once blooms forever, for I am a God of the living, not the dead.
 
@@ -75,7 +75,7 @@ Now let us go into the silence.
 ### Two Baptisms: Water of Repentance and Holy Spirit
 - Scripture talks about two baptisms: with water of repentance and with Holy Spirit.
 - Water baptism represents radical change in attitude towards life; changing outer world by changing thinking.
-- Example of a man using imagination to fix a computer and finding missing parts.
+- Example of a man using [imagination](/glossary#imagination) to fix a computer and finding missing parts.
 - Water turns into wine of spiritual truth through experience.
 
 ### Repentance and Baptism with Water

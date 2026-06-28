@@ -16,21 +16,21 @@ The perfect man judges not after appearances, but judges righteously. He sees ot
 
 To him poverty is but the sleep of wealth. He does not see caterpillars, but painted butterflies to be; not winter, but summer sleeping; not man in want, but Jesus sleeping.
 
-Jesus of Nazareth, who scattered the evil with his eye, is asleep in the imagination of every man, and out of his own imagination must man awaken him by subjectively affirming *“[I AM](/glossary#i-am) Jesus”* Then and only then will he see Jesus, for man can only see what is awake in himself. The holy womb is mans imagination.
+Jesus of Nazareth, who scattered the evil with his eye, is asleep in the [imagination](/glossary#imagination) of every man, and out of his own imagination must man awaken him by subjectively affirming *“[I AM](/glossary#i-am) Jesus”* Then and only then will he see Jesus, for man can only see what is awake in himself. The holy womb is mans imagination.
 
 The holy child is that conception of himself which fits Isaiah’s definition of perfection. Heed the words of St. Augustine, *“Too late have I loved thee, for behold thou wert within and it was without that I did seek thee.”* It is your own consciousness that you must turn as to the only reality. There, and there alone, you awaken that which is asleep. *“Though [Christ](/glossary#christ) a thousand times in Bethlehem be born, if He is not born of in thee thy soul is still forlorn.”*
 
 Creation is finished. You call your creation into being by [feeling](/glossary#feeling) the reality of the [state](/glossary#state) you would call.
 
-A mood attracts its affinities but it does not create what it attracts. As sleep is called by feeling *“I am sleepy,”* so, too, is [Jesus Christ](/lectures/jesus-christ) called by the feeling, *“I am Jesus Christ.”* Man sees only himself. Nothing befalls man that is not the nature of himself. People emerge out of the mass betraying their close affinity to your moods as they are engendered. You meet them seemingly by accident but find they are intimates of your moods. Because your moods continually externalize themselves you could prophesy from your moods, that you, without search, would soon meet certain characters and encounter certain conditions. Therefore call the perfect one into being by living in the feeling, *“I am Christ,”* for Christ is the one concept of self through which can be seen the unveiled realities of eternity.
+A mood attracts its affinities but it does not create what it attracts. As sleep is called by [feeling](/glossary#feeling) *“I am sleepy,”* so, too, is [Jesus Christ](/lectures/jesus-christ) called by the feeling, *“I am Jesus [Christ](/glossary#christ).”* Man sees only himself. Nothing befalls man that is not the nature of himself. People emerge out of the mass betraying their close affinity to your moods as they are engendered. You meet them seemingly by accident but find they are intimates of your moods. Because your moods continually externalize themselves you could prophesy from your moods, that you, without search, would soon meet certain characters and encounter certain conditions. Therefore call the perfect one into being by living in the feeling, *“I am Christ,”* for Christ is the one concept of self through which can be seen the unveiled realities of eternity.
 
 Our behavior is influenced by our subconscious [Assumption](/glossary#assumption) respecting our own social and intellectual rank and that of the one we are addressing.
 
 Let us seek for and evoke the greatest rank, and the noblest of all is that which disrobes man of his morality and clothes him with uncurbed immortal glory.
 
-Let us assume the feeling *“I am Christ,”* and our whole behavior will subtly and unconsciously change in accordance with the Assumption.
+Let us assume the feeling *“I am Christ,”* and our whole behavior will subtly and unconsciously change in accordance with the [Assumption](/glossary#assumption).
 
-Our subconscious assumptions continually externalize themselves that others may consciously see us as we subconsciously see ourselves, and tell us by their actions what we have subconsciously assumed of ourselves to be. Therefore let us assume the feeling *“I AM Christ,”* until our conscious claim becomes our subconscious Assumption that *“We all with open face beholding as in a glass the glory of the Lord are changed into the same image from glory to glory.”* Let [God](/glossary#god) Awake and his enemies be destroyed. There is no greater Prayer for man.
+Our subconscious assumptions continually externalize themselves that others may consciously see us as we subconsciously see ourselves, and tell us by their actions what we have subconsciously assumed of ourselves to be. Therefore let us assume the feeling *“[I AM](/glossary#i-am) Christ,”* until our conscious claim becomes our subconscious Assumption that *“We all with open face beholding as in a glass the glory of the Lord are changed into the same image from glory to glory.”* Let [God](/glossary#god) Awake and his enemies be destroyed. There is no greater Prayer for man.
 
 
 ## Summary
@@ -67,5 +67,5 @@ Our subconscious assumptions continually externalize themselves that others may 
 ### Prayer to Awaken God Within
 
 - Assume *"We are transformed into Christ's glory"*
-- Let God awake and his enemies be destroyed
+- Let [God](/glossary#god) awake and his enemies be destroyed
 - No greater Prayer than to awaken God within within

@@ -1,12 +1,12 @@
 # Experience Scripture
 
-To unravel the mystery of [Christ](/glossary#christ) from all the interpretations put upon it is quite a different task. We are up against all kinds of misunderstandings of the mystery. Most people believe that it is secular history, and the story has something to do with some historical occasion; and it isn’t. It is [salvation history](/lectures/salvation-history). The whole thing is taking place in you, the individual. It’s not taking place on the outside at all. But how to convince men that this is true? Well, tonight we will try. I will try to explain what I know from my own experience. The story is told of Christ; and the term called *"Son of Man"* is a term used most to describe the Christ, the Messiah.
+To unravel the mystery of [Christ](/glossary#christ) from all the interpretations put upon it is quite a different task. We are up against all kinds of misunderstandings of the mystery. Most people believe that it is secular history, and the story has something to do with some historical occasion; and it isn’t. It is [salvation history](/lectures/salvation-history). The whole thing is taking place in you, the individual. It’s not taking place on the outside at all. But how to convince men that this is true? Well, tonight we will try. I will try to explain what I know from my own experience. The story is told of [Christ](/glossary#christ); and the term called *"Son of Man"* is a term used most to describe the Christ, the Messiah.
 
 We are told in the Book of Daniel: *"And on like a son of man came to the Ancient of Days, and was presented before him, and he was given dominion and glory and kingdom."* [[Daniel 7:13](https://www.biblegateway.com/passage/?search=Daniel+7:13&version=KJV)]
 
 Well, *"dominion"* means *"complete control of all human and non-human forces"*―complete control. That’s dominion.
 
-*"Glory"* is [God](/glossary#god) Himself, as told us in the Book of Exodus: *"I make my glory pass before you,…and when I pass by."* [[Exodus 33:18](https://www.biblegateway.com/passage/?search=Exodus+33:18&version=KJV) and following] So he equates *"glory"* with *"I."* So here, it is God Himself.
+*"Glory"* is [God](/glossary#god) Himself, as told us in the Book of Exodus: *"I make my glory pass before you,…and when I pass by."* [[Exodus 33:18](https://www.biblegateway.com/passage/?search=Exodus+33:18&version=KJV) and following] So he equates *"glory"* with *"I."* So here, it is [God](/glossary#god) Himself.
 
 And now *"Kingdom"* is simply the realm where a monarchical ruler dominates all things―the king.
 
@@ -90,7 +90,7 @@ When they are looking now, as they are,--they go off to Jerusalem physically. Th
 
 *"When they had brought him to the place called The Skull, there they buried him."* [[Luke 23:33](https://www.biblegateway.com/passage/?search=Luke+23:33&version=KJV)]
 
-Now *"Golgotha"* means *"skull,"* but it’s the Hebrew form of *"skull."* We speak of *"Calvary."* Well, *"Calvary"* is the Latin form of *"skull."* And so, the whole thing is simply your own wonderful human skull. That’s where the whole drama takes place. It all takes place in the imagination of man. There is nothing but God, and God is the human imagination. And the drama of God is unfolding within us.
+Now *"Golgotha"* means *"skull,"* but it’s the Hebrew form of *"skull."* We speak of *"Calvary."* Well, *"Calvary"* is the Latin form of *"skull."* And so, the whole thing is simply your own wonderful human skull. That’s where the whole drama takes place. It all takes place in the [imagination](/glossary#imagination) of man. There is nothing but God, and God is the human imagination. And the drama of God is unfolding within us.
 
 So, let no one tell you they can see signs of the end of the world. *"The end of the age,"* but the *"end of the age"* is the end of the tribulation of human experience. That’s the end. There is no other end. You and I have gone through *"hell,"* and when we come to the end of the tribulation of human experience, then suddenly―with shocking suddenness―the whole thing erupts within us. So, you are told: *"Do not ask. It comes like a thief in the night."* When you least expect it, He will come. Therefore, be alert, but there shall be no signs. This generation seeks a sign, and there shall be no sign. I tell you, it will come just―maybe tonight. I hope so.
 

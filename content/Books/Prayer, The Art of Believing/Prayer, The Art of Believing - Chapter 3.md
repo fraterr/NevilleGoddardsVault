@@ -2,7 +2,7 @@
 
 PRAYERS are not successfully made unless there is a rapport between the conscious and subconscious mind of the operator. This is done through [imagination](/glossary#imagination) and faith.
 
-By the power of imagination all men, certainly imaginative men, are forever casting forth enchantments, and all men, especially unimaginative men, are continually passing under their power. Can we ever be certain that it was not our mother while darning our socks who began that subtle change in our minds? If I can unintentionally cast an enchantment over persons, there is no reason to doubt that I am able to cast intentionally a far stronger enchantment.
+By the power of [imagination](/glossary#imagination) all men, certainly imaginative men, are forever casting forth enchantments, and all men, especially unimaginative men, are continually passing under their power. Can we ever be certain that it was not our mother while darning our socks who began that subtle change in our minds? If I can unintentionally cast an enchantment over persons, there is no reason to doubt that I am able to cast intentionally a far stronger enchantment.
 
 Everything, that can be seen, touched, explained, argued over, is to the imaginative man nothing more than a means, for he functions, by reason of his controlled imagination, in the deep of himself where every idea exists in itself and not in relation to something else. In him there is no need for the restraints of reason.
 
@@ -12,7 +12,7 @@ Imagination and faith are the only faculties of the mind needed to create object
 
 To establish rapport you call the subject mentally. Focus your attention on him and mentally shout his name just as you would to attract the attention of anyone. Imagine that he answered, and mentally hear his voice. Represent him to yourself inwardly in the [state](/glossary#state) you want him to obtain. Then imagine that he is telling you in the tones of ordinary conversation what you want to hear. Mentally answer him. Tell him of your joy in witnessing his good fortune. Having mentally heard with all the distinctness of reality that which you wanted to hear and having thrilled to the news heard, return to objective consciousness. Your subjective conversation must awaken what it affirmed.
 
-*“Thou shalt decree a thing and it shall be established unto thee.”* It is not a strong will that sends the subjective word on its mission so much as it is clear thinking and [feeling](/glossary#feeling) the truth of the state affirmed. When belief and will are in conflict, belief invariably wins.
+*“Thou shalt decree a thing and it shall be established unto thee.”* It is not a strong will that sends the subjective word on its mission so much as it is clear thinking and [feeling](/glossary#feeling) the truth of the [state](/glossary#state) affirmed. When belief and will are in conflict, belief invariably wins.
 
 *“Not by might, nor by power, but by my spirit, saith the Lord of hosts.”*
 
@@ -32,7 +32,7 @@ The subconscious mind is the universal conductor which the operator modifies wit
 
 Visible states are either the vibratory effects of subconscious vibrations within you or they are vibratory causes of the corresponding vibrations within you. A disciplined man never permits them to be causes unless they awaken in him the desirable states of consciousness.
 
-With a knowledge of the law of reversibility, the disciplined man transforms his world by imagining and feeling only what is lovely and of good report. The beautiful idea he awakens within himself shall not fail to arouse its affinity in others. He knows the savior of the world is not a man but the manifestation that would save. The sick man’s savior is health, the hungry man’s is food, the thirsty man’s savior is water. He walks in the company of the savior by assuming the feeling of his wish fulfilled.
+With a knowledge of [the law](/glossary#the-law) of reversibility, the disciplined man transforms his world by imagining and [feeling](/glossary#feeling) only what is lovely and of good report. The beautiful idea he awakens within himself shall not fail to arouse its affinity in others. He knows the savior of the world is not a man but the manifestation that would save. The sick man’s savior is health, the hungry man’s is food, the thirsty man’s savior is water. He walks in the company of the savior by assuming the feeling of his wish fulfilled.
 
 By the law of reversibility, that all transformations of force are reversible, the energy or feeling awakened transforms itself into the state imagined.  
 He never waits four months for the harvest. If in four months the harvest will awaken in him a state of joy, then, inversely, the joy of harvest now will awaken the harvest now.

@@ -9,14 +9,20 @@ TERMS = {
     "Abdullah": "abdullah",
     "Assumption": "assumption",
     r"Christ": "christ",
-    "Diet": "diet",
+    "Consciousness is the only reality": "consciousness-is-the-only-reality",
+    "Everyone is you pushed out": "everyone-is-you-pushed-out",
     "Feeling": "feeling",
     r"God": "god",
     r"I AM": "i-am",
     "Imagination": "imagination",
+    "Law of Assumption": "law-of-assumption",
+    "Living in the wish fulfilled": "living-in-the-wish-fulfilled",
+    "Mental Diet": "mental-diet",
     "Revision": "revision",
     "Sabbath": "sabbath",
-    r"State\b(?!\s*of\s*New\s*York)": "state", # basic exclusion, though not strictly necessary
+    r"State\b(?!\s*of\s*New\s*York)": "state",
+    r"State akin to sleep|SATS": "state-akin-to-sleep-sats",
+    "The Golden Rule": "the-golden-rule",
     "The Law": "the-law",
     "The Promise": "the-promise"
 }
@@ -50,6 +56,9 @@ def process_file(filepath, filename):
     
     # Hide Headers
     content = re.sub(r'^#+ .*$', hide, content, flags=re.MULTILINE)
+    
+    # Strip any existing glossary links before applying new ones
+    content = re.sub(r'\[([^\]]+)\]\(/glossary#[^)]+\)', r'\1', content)
     
     # Replace terms (first occurrence only)
     for term, slug in TERMS.items():

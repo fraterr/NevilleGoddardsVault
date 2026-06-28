@@ -6,11 +6,11 @@ This book has only one purpose – the removing of the veil of the senses – th
 
 To remove the veil of the senses we do not employ great effort; the objective world vanishes by turning our attention away from it.
 
-We have only to concentrate on the [state](/glossary#state) desired in order to mentally see it, but to give it reality so that it will become an objective fact, we must focus attention upon the invisible state until it has the [feeling](/glossary#feeling) of reality.
+We have only to concentrate on the [state](/glossary#state) desired in order to mentally see it, but to give it reality so that it will become an objective fact, we must focus attention upon the invisible [state](/glossary#state) until it has the [feeling](/glossary#feeling) of reality.
 
-When, through concentrated attention, our desire appears to possess the distinctness and feeling of reality, we have given it the right to become a visible concrete fact.
+When, through concentrated attention, our desire appears to possess the distinctness and [feeling](/glossary#feeling) of reality, we have given it the right to become a visible concrete fact.
 
-If it is difficult to control the direction of your attention while in a State akin to sleep, you may find gazing fixedly into an object very helpful. Do not look at its surface but into and beyond any plain object such as a wall, a carpet, or any other object which possesses depth.
+If it is difficult to control the direction of your attention while in a [State akin to sleep](/glossary#state-akin-to-sleep-sats), you may find gazing fixedly into an object very helpful. Do not look at its surface but into and beyond any plain object such as a wall, a carpet, or any other object which possesses depth.
 
 Arrange it to return as little reflection as possible. Imagine then that in this depth you are seeing and hearing what you want to see and hear until your attention is exclusively occupied by the imagined state.
 
@@ -34,7 +34,7 @@ The conceiver and his conception are one, therefore that which you conceive your
 
 Being is the substance of things hoped, the evidence of things not yet seen (cf. [Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV)).
 
-If you assume that you are what you want to be, then you will see others as they are related to your Assumption
+If you assume that you are what you want to be, then you will see others as they are related to your [Assumption](/glossary#assumption)
 
 If, however, it is the good of others that you desire, then, in Meditation, you must represent them to yourself as already being that which you desire them to be.
 
@@ -60,7 +60,7 @@ When we have learned to control the movements of our attention in the four-dimen
 
 We learn this control through the waking dream, where our attention can be maintained without effort, for attention minus effort is indispensable to changing the future. We can, in a controlled waking dream, consciously construct an event which we desire to experience in the three-dimensional world.
 
-The sensory impressions we use to construct our waking dream are present realities displaced in time or the four-dimensional world. All that we do in constructing the waking dream is to select from the vast array of sensory impressions those, which, when they are properly arranged, imply that we have realized our desire. With the dream clearly defined we relax in a chair and induce a state of consciousness akin to sleep – a state, which, although bordering on sleep, leaves us in conscious control of the movements of our attention. When we have achieved that state, we experience in imagination what we would experience in reality were this waking dream an objective fact. In applying this technique to change the future it is important always to remember that the only thing which occupies the mind during the waking dream is the waking dream, the predetermined action which implies the fulfillment of our desire.
+The sensory impressions we use to construct our waking dream are present realities displaced in time or the four-dimensional world. All that we do in constructing the waking dream is to select from the vast array of sensory impressions those, which, when they are properly arranged, imply that we have realized our desire. With the dream clearly defined we relax in a chair and induce a state of consciousness akin to sleep – a state, which, although bordering on sleep, leaves us in conscious control of the movements of our attention. When we have achieved that state, we experience in [imagination](/glossary#imagination) what we would experience in reality were this waking dream an objective fact. In applying this technique to change the future it is important always to remember that the only thing which occupies the mind during the waking dream is the waking dream, the predetermined action which implies the fulfillment of our desire.
 
 How the waking dream becomes physical fact is not our concern.
 
@@ -93,7 +93,7 @@ I can, however, with the ancient teacher say: *"This one thing I do, forgetting 
 - Gaze fixedly into an object to control attention while in a sleep-like state.
 - Imagine seeing/hearing the desired state until fully occupied by it.
 - When you return from this *"controlled waking dream"*, the physical world informs you it wasn't real.
-- But if you know consciousness is the only reality, you will remain faithful to your vision and make it real.
+- But if you know [consciousness is the only reality](/glossary#consciousness-is-the-only-reality), you will remain faithful to your vision and make it real.
 
 ### Assume the Feeling of Your Ideal
 

@@ -12,7 +12,7 @@ Prayer is the key which unlocks the infinite storehouse. *"Prove me now herewith
 
 The conscious mind reasons inductively from observation, experience and education. It therefore finds it difficult to believe what the five senses and inductive reason deny.
 
-The subconscious reasons deductively and is never concerned with the truth or falsity of the premise, but proceeds on the Assumption of the correctness of the premise and objectifies results which are consistent with the premise.
+The subconscious reasons deductively and is never concerned with the truth or falsity of the premise, but proceeds on the [Assumption](/glossary#assumption) of the correctness of the premise and objectifies results which are consistent with the premise.
 
 This distinction must be clearly seen by all who would master the art of praying. No true grasp of the science of Prayer can be really obtained until the laws governing the dual nature of consciousness are understood and the importance of the subconscious realized.
 

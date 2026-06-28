@@ -1,6 +1,6 @@
 # Salvation History
 
-It is [God](/glossary#god)'s purpose to give himself to you as though there were no other! And when He does, it will not be you and God, but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
+It is [God](/glossary#god)'s purpose to give himself to you as though there were no other! And when He does, it will not be you and [God](/glossary#god), but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
 
 Ask a devoted Christian who knows his Bible if he believes in [Jesus Christ](/lectures/jesus-christ) and thinks of him as the Lord; he will answer, Yes. Ask him if he believes that Jesus was referring to the creator of the universe, when he said: *"I and my Father are one, and when you see me you have seen the Father,"* and again he will agree.
 
@@ -10,7 +10,7 @@ Did he not say that he encountered David in the Spirit, at which time David call
 
 Although year after year man has sacrificed the blood of an ox or lamb without changing his consciousness, [Christ](/glossary#christ)'s supreme sacrifice (as told us in the 10th chapter of Hebrews) is by splitting the curtain of his own body from top to bottom, and taking his own blood into the Holy of holies. And did not the Holy Spirit, who he knew to be himself, descend upon him in the form of a dove and remain there?
 
-Do you agree that a man's history is made up of all of the events he has experienced? And if Jesus Christ has experienced everything I have mentioned, do they not constitute his history? And you agree he is the Lord? Then I say: only when salvation history invades time, will man really know the meaning of life, in time!
+Do you agree that a man's history is made up of all of the events he has experienced? And if Jesus [Christ](/glossary#christ) has experienced everything I have mentioned, do they not constitute his history? And you agree he is the Lord? Then I say: only when salvation history invades time, will man really know the meaning of life, in time!
 
 As you walk in time, human history is yours; as you are born and die, restored to life you die, only to be restored and die again. Human history goes on forever, until salvation history invades time and becomes the individual's autobiography. And if the history of the Lord Jesus Christ becomes your history, are you not the Lord?
 
@@ -55,7 +55,7 @@ You see, God has already put eternity into the heart of every man. And when the 
 
 In order for such an experience to happen, God must invade time and possess you. Then you fulfill salvation's story, as everything said in scripture is experienced by you. Having come into the world - and fulfilling scripture - you will interpret Moses, [the law](/glossary#the-law), the prophets, and the Psalms, as things concerning yourself; for you will discover that the events recorded as happening to Jesus Christ, have happened in you.
 
-Remember, not every word of scripture is significant. Like a letter you write, not every word has significance; but there is meaning, a purpose to your written word. When salvation history invades you, the meaning of scripture will be known from experience. Using the law of Moses and the prophets and the psalms, you will interpret in all the scriptures the things concerning yourself, knowing you are the Jesus Christ of which scripture refers.
+Remember, not every word of scripture is significant. Like a letter you write, not every word has significance; but there is meaning, a purpose to your written word. When salvation history invades you, the meaning of scripture will be known from experience. Using [the law](/glossary#the-law) of Moses and the prophets and the psalms, you will interpret in all the scriptures the things concerning yourself, knowing you are the Jesus Christ of which scripture refers.
 
 The Bible ends on the 20th verse of the 22nd chapter of Revelation with these words: *"Come, Lord Jesus."* The last verse: *"The grace of our Lord Jesus be with you,"* is only a benediction.
 

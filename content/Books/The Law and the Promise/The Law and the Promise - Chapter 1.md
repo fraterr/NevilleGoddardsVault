@@ -1,6 +1,6 @@
 # The Law and the Promise - Chapter 1
 
-*"Man is all [Imagination](/glossary#imagination). [God](/glossary#god) is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
+*"Man is all [Imagination](/glossary#imagination). [God](/glossary#god) is Man and exists in us and we in Him... The Eternal Body of Man is the [Imagination](/glossary#imagination), that is, [God](/glossary#god), Himself"* (William Blake)
 
 The purpose of the first portion of this book is to show, through actual true stories, how [imagining creates](/lectures/imagining-creates) reality.
 
@@ -40,7 +40,7 @@ Assert the supremacy of your Imaginal acts over facts and put all things in subj
 
 To attempt to change circumstances before you change your imaginal activity, is to struggle against the very nature of things. There can be no outer change until there is first an imaginal change. Everything you do, unaccompanied by an imaginal change, is but futile readjustment of surfaces.
 
-Imagining the wish fulfilled brings about a union with that state, and during that union you behave in keeping with your imaginal change. This shows you that an imaginal change will result in a change of behavior.
+Imagining the wish fulfilled brings about a union with that [state](/glossary#state), and during that union you behave in keeping with your imaginal change. This shows you that an imaginal change will result in a change of behavior.
 
 However, your ordinary imaginal alterations as you pass from one state to another are not transformations because each of them is so rapidly succeeded by another in the reverse direction. But whenever one state grows so stable as to become your constant mood, your habitual attitude, then that habitual state defines your character and is a true transformation.
 
@@ -76,7 +76,7 @@ Nothing stands between you and the fulfillment of your Dreams but facts — and 
 
 Man and his past are one continuous structure. This structure contains all of the facts which have been conserved and still operate below the threshold of his surface mind. For him it is merely history. For him it seems unalterable — a dead and firmly fixed past. But for itself, it is living — it is part of the living age.
 
-He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [Revision](/glossary#revision) — and Revision results in repeal.
+He cannot leave behind him the mistakes of the past, for nothing disappears. Everything that has been is still in existence. The past still exists, and it gives — and still gives — its results. Man must go back in memory, seek for and destroy the causes of evil, however far back they lie. This going into the past and replaying a scene of the past in imagination as it ought to have been played the first time, I call [Revision](/glossary#revision) — and [Revision](/glossary#revision) results in repeal.
 
 Changing your life means changing the past.
 

@@ -2,7 +2,7 @@
 
 *"I am the first, and I am the last; and beside me is no [God](/glossary#god)."* ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
 
-*"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* ([Deut. 5:6, 7](https://www.biblegateway.com/passage/?search=Deuteronomy+5:6,+7&version=KJV))
+*"[I am the Lord](/lectures/i-am-the-lord) thy [God](/glossary#god), which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* ([Deut. 5:6, 7](https://www.biblegateway.com/passage/?search=Deuteronomy+5:6,+7&version=KJV))
 
 *“Thou shalt have [no other God](/lectures/no-other-god) beside me.”* As long as man entertains a belief in a power apart from himself, so long will he rob himself of the being that he is. Every belief in powers apart from himself, whether for good or evil, will become the mold of the graven image worshiped.
 
@@ -14,7 +14,7 @@ Man feels so secure in his man-made laws, opinions and beliefs that he invests t
 
 *“The Lord is in his holy temple.”* Consciousness dwells within that which it is conscious of being. AM man is the Lord and his temple. Knowing that’ consciousness objectifies itself man must forgive all men for being that which they are. He must realize that all are expressing (without the aid of another) that which they are conscious of being Peter the enlightened or disciplined man, knew that a change of consciousness would produce a change of expression. Instead of sympathizing with the beggars of life at the temple’s gate he declared, Silver and gold have I none (for thee) but such as I have (the consciousness of freedom) give I unto thee.
 
-*“Stir up the gift within you.”* Stop begging and claim yourself to be that which you decide to be. Do this and you too will jump from your crippled world into the world of freedom, singing praises to the Lord, I AM. *“Far greater is he that is in you than he that is in the world.”* This is the cry of everyone who finds his awareness of being to be God. Your recognition of this fact will automatically cleanse the temple, your consciousness, of the thieves and robbers, restoring to you that dominion over things which you lost the moment you forgot the command, “Thou shalt have no other God beside ME.
+*“Stir up the gift within you.”* Stop begging and claim yourself to be that which you decide to be. Do this and you too will jump from your crippled world into the world of freedom, singing praises to the Lord, [I AM](/glossary#i-am). *“Far greater is he that is in you than he that is in the world.”* This is the cry of everyone who finds his awareness of being to be God. Your recognition of this fact will automatically cleanse the temple, your consciousness, of the thieves and robbers, restoring to you that dominion over things which you lost the moment you forgot the command, “Thou shalt have no other God beside ME.
 
 
 

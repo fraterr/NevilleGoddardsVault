@@ -39,7 +39,7 @@ To cultivate the faculty of seeing the invisible, we should often deliberately d
 
 Earnest, concentrated thought focused in a particular direction shuts out other sensations and causes them to disappear.
 
-We have but to concentrate on the state desired in order to see it.
+We have but to concentrate on the [state](/glossary#state) desired in order to see it.
 
 The habit of withdrawing attention from the region of sensation and concentrating it on the invisible develops our spiritual outlook and enables us to penetrate beyond the world of sense and to see that which is invisible.
 
@@ -47,7 +47,7 @@ The habit of withdrawing attention from the region of sensation and concentratin
 
 This vision is completely independent of the natural faculties. Open it and quicken it! Without it, these instructions are useless, for *"the things of the spirit are spiritually discerned."*
 
-A little practice will convince us that we can, by controlling our imagination, reshape our future in harmony with our desire. Desire is the mainspring of action. We could not move a single finger unless we had a desire to move it. No matter what we do, we follow the desire which at the moment dominates our minds. When we break a habit, our desire to break it is greater than our desire to continue in the habit.
+A little practice will convince us that we can, by controlling our [imagination](/glossary#imagination), reshape our future in harmony with our desire. Desire is the mainspring of action. We could not move a single finger unless we had a desire to move it. No matter what we do, we follow the desire which at the moment dominates our minds. When we break a habit, our desire to break it is greater than our desire to continue in the habit.
 
 The desires which impel us to action are those that hold our attention. A desire is but an awareness of something we lack or need to make our life more enjoyable.
 
@@ -57,9 +57,9 @@ The spiritual man speaks to the natural man through the language of desire.
 
 The key to progress in life and to the fulfillment of Dreams lies in ready obedience to its voice.
 
-Unhesitating obedience to its voice is an immediate Assumption of the wish fulfilled. To desire a state is to have it.
+Unhesitating obedience to its voice is an immediate [Assumption](/glossary#assumption) of the wish fulfilled. To desire a state is to have it.
 
-As Pascal has said, ―You would not have sought me had you not already found me. Man, by assuming the feeling of his wish fulfilled, and then living and acting on this conviction, alters the future in harmony with his Assumption.
+As Pascal has said, ―You would not have sought me had you not already found me. Man, by assuming the [feeling](/glossary#feeling) of his wish fulfilled, and then living and acting on this conviction, alters the future in harmony with his Assumption.
 
 Assumptions awaken what they affirm.
 
@@ -83,7 +83,7 @@ Thirdly: immobilize the physical body and induce a condition akin to sleep – l
 
 It is important always to remember that the proposed action must be one which follows the fulfillment of your desire; and, also, you must feel yourself into the action until it has all the vividness and distinctness of reality.
 
-For example: suppose you desired promotion in office. Being congratulated would be an event you would encounter following the fulfillment of your desire. Having selected this action as the one you will experience in imagination, immobilize the physical body, and induce a State akin to sleep – a drowsy state – but one in which you are still able to control the direction of your thoughts – a state in which you are attentive without effort. Now, imagine that a friend is standing before you. Put your imaginary hand into his. First feel it to be solid and real, then carry on an imaginary conversation with him in harmony with the action. Do not visualize yourself at a distance in point of space and at a distance in point of time being congratulated on your good fortune. Instead, make elsewhere here, and the future now. The future event is a reality now in a dimensionally larger world; and, oddly enough, now in a dimensionally larger world, is equivalent to here in the ordinary three-dimensional space of everyday life.
+For example: suppose you desired promotion in office. Being congratulated would be an event you would encounter following the fulfillment of your desire. Having selected this action as the one you will experience in imagination, immobilize the physical body, and induce a [State akin to sleep](/glossary#state-akin-to-sleep-sats) – a drowsy state – but one in which you are still able to control the direction of your thoughts – a state in which you are attentive without effort. Now, imagine that a friend is standing before you. Put your imaginary hand into his. First feel it to be solid and real, then carry on an imaginary conversation with him in harmony with the action. Do not visualize yourself at a distance in point of space and at a distance in point of time being congratulated on your good fortune. Instead, make elsewhere here, and the future now. The future event is a reality now in a dimensionally larger world; and, oddly enough, now in a dimensionally larger world, is equivalent to here in the ordinary three-dimensional space of everyday life.
 
 The difference between feeling yourself in action, here and now, and visualizing yourself in action, as though you were on a motion-picture screen, is the difference between success and failure.
 

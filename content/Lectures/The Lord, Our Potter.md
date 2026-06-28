@@ -2,9 +2,9 @@
 
 In the 64th chapter of the Book of Isaiah we read: *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the work of thy hand."* When you hear the words Lord, Father, and potter, do you think of another? I certainly hope not. 
 
-The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"[I AM](/glossary#i-am)"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"[imagination](/glossary#imagination)"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 
+The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"[I AM](/glossary#i-am)"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"[imagination](/glossary#imagination)"* that which is shaping your world. [Imagination](/glossary#imagination) is the Lord, the potter, the shaper of your world, molding it into its present form. 
 
-*"[God](/glossary#god) is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is God Himself."* (William. Blake)
+*"[God](/glossary#god) is Man and exists in us and we in Him. The Eternal Body of Man is the Imagination which is [God](/glossary#god) Himself."* (William. Blake)
 
 Let me share a story I read in the October 26th magazine section of the New York Times. It was a letter written by one while in prison on an island in the Asian Sea. This gentleman was under house arrest, watched 24-hours a day, and only allowed to go for a short walk before dinner. Every morning at 9:00 and every evening at 6:00 he had to sign in at the police station before returning to his room. 
 
@@ -58,7 +58,7 @@ I am telling you the truth. I live in that world of light. One day I will drop t
 
 I tell you, you are all imagination and not a prisoner of anything or anyone, rather you have imprisoned yourself. You have brought all of your experiences into being and you can change them now that you know who you are. 
 
-When you hear the word Lord, don't think of another. The word is Yod Hey Vav Hey and means I AM, as do the words Father and potter. Your awareness of being is your I AM, your potter who molds your world. To him and him alone lies all of the responsibilities for what is done in your world. 
+When you hear the word Lord, don't think of another. The word is Yod Hey Vav Hey and means [I AM](/glossary#i-am), as do the words Father and potter. Your awareness of being is your I AM, your potter who molds your world. To him and him alone lies all of the responsibilities for what is done in your world. 
 
 Your own wonderful human imagination is the cause of the restrictions on the freedom that you enjoy today. There is no other cause but the Lord, who is the Father, who is the potter, and if he is your own wonderful human imagination, to whom can you turn to praise or blame for the circumstances of your life? The blind leaders of the blind blame society or the government for the causes of the phenomena of their life. 
 
@@ -66,7 +66,7 @@ But I tell you, there is no other cause; for there is no one outside of self. So
 
 Do not look to another as the cause of your misfortune. If you are perceiving a thing, it is penetrating your brain; therefore it exists in you. That which you are perceiving appears to exist in the surrounding world independent of your perception of it, but don't wait for it to change. If you desire a change in that which you are perceiving, you must produce the change in yourself. Ask no one to help you; simply persist in your new thoughts and let your changed thinking reproduce itself in your outside world, for it is only an outpicturing of the world of thought within you. Try it. You can change your world as this prisoner did. In his imagination he moved in time to the day after his escape. You can do the same. Would your friends know of your success the day after it was achieved? Would they get together to discuss it? Make their gathering the scene from which you start. What would they say? Would some of them be jealous? Some happy for you? Put them all together and eavesdrop on their conversation. Then believe in what you have heard. Persist and your success is assured. 
 
-Tonight I have felt impelled to talk about [the law](/glossary#the-law) because people seem to forget, and since we are still in the world of Caesar, the law is important. The Book of Psalms begins: *"Blessed is the man who delights on thy law, meditating day and night. In all that he does, he prospers."* 
+Tonight I have felt impelled to talk about [the law](/glossary#the-law) because people seem to forget, and since we are still in the world of Caesar, [the law](/glossary#the-law) is important. The Book of Psalms begins: *"Blessed is the man who delights on thy law, meditating day and night. In all that he does, he prospers."* 
 
 Although to me [the promise](/glossary#the-promise) is the one grand objective, for it is the true reality of all; while here in this world of Caesar, rent must be paid, clothes and food bought with Caesar's coin, so the law is important. It will not fail you, I promise, but it does not operate itself. When you know what you want, don't pray to any outside God, for the true God is within you. In fact, God is not even near, as nearness implies separation. God is your I am, and there is no place you can go and not be aware of being. 
 
@@ -124,7 +124,7 @@ Now let us go into the silence.
 
 - The idea that God is within and not separate from oneself is emphasized.
 - The concept of entering the cave of the human skull and finding a garment woven by the female is mentioned.
-- The realization that one is the Lord God Jehovah and Jesus Christ is emphasized.
+- The realization that one is the Lord God Jehovah and Jesus [Christ](/glossary#christ) is emphasized.
 
 **Note: This summary focuses on the main points of the text and presents them in a concise and organized manner using bullet points.**h and Jesus Christ is emphasized.
 

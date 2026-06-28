@@ -8,13 +8,13 @@ It is in you, as a person, that [the nature of God](/lectures/the-nature-of-god)
 
 While in Barbados this summer, my sister asked if my [Christ](/glossary#christ) was once a man. My answer to her undoubtedly was the same Paul gave when asked a similar question. I said: *"Was? He is the heavenly man!"* Then quoting Paul I said: *"Just as we have borne the image of the man of dust, we shall also bear the image of the man of heaven."* 
 
-Do not think of Christ as some little boy who was born in some strange manner two thousand years ago. We are dealing with a cosmic principle, where God actually became man that man may become God. 
+Do not think of [Christ](/glossary#christ) as some little boy who was born in some strange manner two thousand years ago. We are dealing with a cosmic principle, where [God](/glossary#god) actually became man that man may become God. 
 
 The process has started. Resurrection has begun, but it is not over. Those who teach that the resurrection is over are misleading the faithful, for - like Paul - everyone can say: *"I have been crucified with Christ. It is not I who live, but Christ who lives in me. The life I now live in the flesh, I live by the faith of the son of God who loved me and gave himself for me. Henceforth I regard no one from a human point of view. Even though I once regarded Christ from a human point of view, I regard him thus no longer."* 
 
 I have stood in the presence of the Risen Lord. I leave seen the Ancient of Days, who is gathering us one by one into his body to become one body, one Spirit, one Lord, one God and Father of all. 
 
-You, as a person, will not be less than the Risen Lord, for there is only one Spirit. There is only one Lord and you will know yourself to be He! No one will be above you. [I AM](/glossary#i-am) the same body, the same Lord, the same Spirit, the same God and Father of all. Without loss of identity, we will all know ourselves to be this one unity of being. We will know from experience that I AM in you and you are in me! 
+You, as a person, will not be less than the Risen Lord, for there is only one Spirit. There is only one Lord and you will know yourself to be He! No one will be above you. [I AM](/glossary#i-am) the same body, the same Lord, the same Spirit, the same God and Father of all. Without loss of identity, we will all know ourselves to be this one unity of being. We will know from experience that [I AM](/glossary#i-am) in you and you are in me! 
 
 When I had finished explaining this to Daphne, I don't think she was any more impressed than that chair over there. It takes time, but it is so important for you to let go of all intermediaries between yourself and God! 
 
@@ -63,7 +63,7 @@ Either that man or no man, yet they have married another. What they really wante
 
 Know what you want in life and do not condition it. If your desire is to be happily married, claim you are. Wanting a certain home, claim you have it. Don't think you cannot afford it, simply play the wishing game. 
 
-Find your desire in God's wish book. Speaking to you through the medium of desire, make your desire real by [feeling](/glossary#feeling) its truth. View the world from its fulfillment. Lose yourself in the feeling of possession and give it all the tones of reality. Fulfill every desire as you walk towards the fulfillment of your real purpose in life, which is to awaken God in you. 
+Find your desire in God's wish book. Speaking to you through the medium of desire, make your desire real by [feeling](/glossary#feeling) its truth. View the world from its fulfillment. Lose yourself in the [feeling](/glossary#feeling) of possession and give it all the tones of reality. Fulfill every desire as you walk towards the fulfillment of your real purpose in life, which is to awaken God in you. 
 
 You are not going to become a little god to run around with other little gods, for there is only one God. Don't forget the great Sh'ma: *"Hear O Israel, the Lord our God, the Lord is one."* You are destined to awaken as that one God and Father of all. 
 

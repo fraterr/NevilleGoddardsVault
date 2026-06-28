@@ -2,16 +2,16 @@
 
 The creator of the world works in the depth of your soul, underlying all of your faculties, including perception and streams into your surface mind least disguised in the form of creative fancy. Watch your thoughts, and you will catch Him in the act of creating, for He is your very Self. Every moment of time you are imagining what you are conscious of, and if you do not forget what you are imagining and it comes to pass, you have found the creative cause of your world. 
 
-Because [God](/glossary#god) is pure [imagination](/glossary#imagination) and the only creator, if you imagine a [state](/glossary#state) and bring it to pass, you have found Him. Remember: God is your consciousness, your
+Because [God](/glossary#god) is pure [imagination](/glossary#imagination) and the only creator, if you imagine a [state](/glossary#state) and bring it to pass, you have found Him. Remember: [God](/glossary#god) is your consciousness, your
 [I AM](/glossary#i-am); so when you are imagining, God is doing it. If you imagine and forget what you imagine, you may not recognize your harvest when it appears. It may be good, bad, or indifferent, but if you forget how it came into being, you have not found God. 
 
-You do not have to be rich to be happy but you must be imaginative. You could have great wealth and be afraid of tomorrow's needs, or have nothing and travel the world over, for [all things exist](/lectures/all-things-exist) in your own wonderful human imagination. 
+You do not have to be rich to be happy but you must be imaginative. You could have great wealth and be afraid of tomorrow's needs, or have nothing and travel the world over, for [all things exist](/lectures/all-things-exist) in your own wonderful human [imagination](/glossary#imagination). 
 
 Let me tell you a story of a lady I know who traveled in her imagination. When this lady was about sixteen she lived in Northern California. She was devoted to her father, who lived high, wide and handsome. He supplied all of the family's needs very well until the day he was killed. Then, overnight, the family discovered they had nothing! Her mother, [feeling](/glossary#feeling) she could not stand being ridiculed, moved the family to San Francisco, where the girl - although possessing outstanding artistic talent - found employment as a waitress in order to help the family. 
 
 Taking the streetcar home from work that first Christmas Eve, she found the car filled with young boys and girls, singing and happy, and she could not restrain the tears. Lucky for her it was raining, so she extended her face to the heavens and let the rain mingle with her tears. As she tasted the salt of her tears she said to herself: *"This is not a streetcar, but a ship and I am not tasting my tears, but the salt of the sea in the wind."* 
 
-While she physically held the rail of the streetcar, she mentally touched the rail of a ship moving into Samoa. Physically tasting the salt of her tears she imagined it was the salt of the sea. As the streetcar reached its destination, she was entering the bay of Samoa, feeling the moonlight shining on her body and hearing a voice say: *"Isn't it a heavenly night."* 
+While she physically held the rail of the streetcar, she mentally touched the rail of a ship moving into Samoa. Physically tasting the salt of her tears she imagined it was the salt of the sea. As the streetcar reached its destination, she was entering the bay of Samoa, [feeling](/glossary#feeling) the moonlight shining on her body and hearing a voice say: *"Isn't it a heavenly night."* 
 
 Two weeks later this girl received a check for $3,000 from a law firm in Chicago. It seems that two years before, her aunt had left the United States, requesting that if she did not return, the money was to be given to her niece. 
 
@@ -30,7 +30,7 @@ Remember the day your boss criticized you, and you are molding an image of yours
 
 I urge you to shape your world from within and no longer from without. Describe yourself as you would like to be seen by others and believe your words. Walk in the [Assumption](/glossary#assumption) they are true and - because no power can thwart God - what He is imagining, you will experience. 
 
-You are not someone apart from God, for I AM cannot be divided. The Lord, our God, is one I AM, not two! If God's I AM and your I AM is the same I AM, define what you would like to be. Then believe you are the Lord! Be like the lady who transformed a streetcar into a cruise. Lose yourself in your new state, while your world on the outside remains, momentarily, the same. 
+You are not someone apart from God, for [I AM](/glossary#i-am) cannot be divided. The Lord, our God, is one I AM, not two! If God's I AM and your I AM is the same I AM, define what you would like to be. Then believe you are the Lord! Be like the lady who transformed a streetcar into a cruise. Lose yourself in your new [state](/glossary#state), while your world on the outside remains, momentarily, the same. 
 
 Now, your reasoning mind may say she did have an aunt who had the presence of mind to die and leave her $3,000 at that particular time. And being young she did not consider the future; but I tell you: this is how [the law](/glossary#the-law) works. It never fails if you will go all out and believe that your human imagination is God. 
 
@@ -48,7 +48,7 @@ When the spirit of [Christ](/glossary#christ) is formed in you, you will forgive
 
 I will tell you now, that no one can reach the end of the journey without having killed someone. Everyone must play every part, so that when memory returns he may forgive all. The part of the thief, the murderer, the rapist and the one raped - every state will be experienced. Anything man can do is recorded in scripture, and to fulfill scripture man must do every thing. 
 
-Had I not played every part, I would not have been born from above. My friend, who loves his brother and could not understand how he could do such a thing, has murdered, as we all have. We must do everything the world condemns in order for the spirit of Christ - which is continual forgiveness of sin - to be formed within us. And when this happens to you, you will see no one to condemn. It is not that you are indifferent to war or murder, but you will see the world as a play with you - the author - playing all the parts. 
+Had I not played every part, I would not have been born from above. My friend, who loves his brother and could not understand how he could do such a thing, has murdered, as we all have. We must do everything the world condemns in order for the spirit of [Christ](/glossary#christ) - which is continual forgiveness of sin - to be formed within us. And when this happens to you, you will see no one to condemn. It is not that you are indifferent to war or murder, but you will see the world as a play with you - the author - playing all the parts. 
 
 Remember: you don't have to abide by anything you dislike. It is but a vessel in your hand which is not properly shaped. Go down to the potter's house and rework it into another vessel as it seems good for you, the potter, to do. 
 
@@ -56,7 +56,7 @@ You can not only rework your concept of self into a new one, but you can rework 
 
 There must be action, for an idea alone produces nothing. You must act within yourself by entering the idea. When someone calls or makes a request of you, you must act upon it by producing a motor element within yourself. It may be the sound of their voice telling you it has already happened. Or you may feel the touch of his hand. Whatever you do, it must be something that takes the desire from being an idea and moves it into the creative state of fulfillment. 
 
-The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of Assumption, there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
+The very first creative act recorded in scripture is when the spirit of the Lord moved upon the face of the waters. Here is motion. If you would like to be elsewhere, all you need to do is close your senses to the room you now occupy and sense the room where you would like to be. Open your eyes, and your senses will deny any change, for yours was a psychological motion. By closing your eyes the obvious here vanishes, and through the act of [Assumption](/glossary#assumption), there becomes here. Seeing the world related to your new position, you breathe reality into the state and, having moved from where you are to where you want to be, you have created it. 
 
 I know this doesn't make sense, but as Douglas said: *"The secret of imagining is the greatest of all problems, to the solution of which every mystic aspires, for supreme power, supreme wisdom, and supreme delight lie in the solution of this far-off mystery."* 
 
@@ -76,7 +76,7 @@ I ask you now to believe in the invisible God who became you. When you say *"I a
 
 One day, God's son David will look into the eyes of the being you really are and call you father. He will not call you by the name of the mask you wear, for David is the express image of your invisibility. Recognizing you as his eternal father, David signifies that your journey into the world of death is at its end. And from that moment on you will share your experiences with anyone who will listen and save everyone you meet. 
 
-You will save one who is unemployed by mentally hearing him tell you he is now gainfully employed and making more money than ever before. Having heard his good news, you will subjectively appropriate your objective hope and never turn back by doubting the reality of what you have done. You will simply watch it come to pass. Then you will know that you have found him of whom Moses and the law and the prophets wrote: Jesus of Nazareth, who is the Lord God, and the Father of all! 
+You will save one who is unemployed by mentally hearing him tell you he is now gainfully employed and making more money than ever before. Having heard his good news, you will subjectively appropriate your objective hope and never turn back by doubting the reality of what you have done. You will simply watch it come to pass. Then you will know that you have found him of whom Moses and [the law](/glossary#the-law) and the prophets wrote: Jesus of Nazareth, who is the Lord God, and the Father of all! 
 
 I have disclosed the one and only source of the phenomena of life. Everything that has ever happened, is happening, or will happen to you, comes from God, who is your own wonderful human imagination. I urge you to use it wisely. 
 

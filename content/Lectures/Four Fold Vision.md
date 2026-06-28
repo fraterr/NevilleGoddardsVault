@@ -11,7 +11,7 @@ From single vision and Newton's sleep!"* 
   
 Fourfold vision is to single vision as ordinary sight is to blindness. We all experience single and threefold vision. It's twofold and fourfold vision that one must consciously work to achieve.   
   
-A hardheaded, common-sensed, rational man sees with his single vision. To him, a man is a man, a tree is a tree, a rose is a rose, and a dog is a dog. The idea that [imagination](/glossary#imagination) could create reality would be sheer nonsense to him, and he would think you mad if you tried to tell him so. Being rational, the single-vision man lives in a world where things are what they seem to be. In that world everything can be weighed and measured, a minute is sixty seconds, and a pound is sixteen ounces - no more or no less. Blake refers to that kind of man as Newton's sleep, saying: *"May God us keep from single vision and Newton's sleep."*   
+A hardheaded, common-sensed, rational man sees with his single vision. To him, a man is a man, a tree is a tree, a rose is a rose, and a dog is a dog. The idea that [imagination](/glossary#imagination) could create reality would be sheer nonsense to him, and he would think you mad if you tried to tell him so. Being rational, the single-vision man lives in a world where things are what they seem to be. In that world everything can be weighed and measured, a minute is sixty seconds, and a pound is sixteen ounces - no more or no less. Blake refers to that kind of man as Newton's sleep, saying: *"May [God](/glossary#god) us keep from single vision and Newton's sleep."*   
   
 Twofold vision occurs when everything is seen as an image. I have stood before a fireplace and enjoyed its warmth and light. I have watched the flames leap up and subside, fall into embers, then turn into ash and - to all appearances - vanish. And I have said to myself: *"My life is like a fire."* At that moment I achieved a simile. I didn't stop there, however, but said: *"Life is fire. My life is fire."* Having achieved a metaphor, I dropped the *"is"* and said to myself, *"Life and fire are similar. I will never again see one and not see the other, or feel one and not imagine the other."* At that moment I had achieved a symbol, a poetic image. Fire is now an image which reminds me of life.   
   
@@ -45,11 +45,11 @@ You need not be anxious, because you cannot postpone or hasten your departure, i
   
 I have a friend in Barbados who, during prohibition was so drunk I had to pour him on a boat for the mainland. This man would drink anything that contained alcohol. Now a man in his eighties, he is still drinking as far as I know, while all of the doctors who warned him that if he continued it would kill him are now dead. He only vegetates today, having lost his sight, but he is learning his lesson in his own way. God, the Father in him, is dreaming his dream of life. One day he will come to his senses and realize that the world is but himself pushed out.   
   
-In each one of us God the Father awakes, for He is one, not two. It is [Christ](/glossary#christ) who is dreaming and it is Christ who awakens in this gentleman and this lady, in that gentleman and that lady, as the one Father. He awakens as the one who begot the dream. Therefore there is only one body, one Spirit, One Lord, one God and Father of all. So you see: this fourfold vision is within the experience of all.   
+In each one of us God the Father awakes, for He is one, not two. It is [Christ](/glossary#christ) who is dreaming and it is [Christ](/glossary#christ) who awakens in this gentleman and this lady, in that gentleman and that lady, as the one Father. He awakens as the one who begot the dream. Therefore there is only one body, one Spirit, One Lord, one God and Father of all. So you see: this fourfold vision is within the experience of all.   
   
 Everyone has experienced single vision, but everything in this world started as a dream. The room you are in began as a dream in the mind of someone. Its plans were executed in the mind of another. Now it has entered the stream of reality we call fact, yet it is still a dream; for its origin was a dream and its end is a dream, as all things bring forth after their kind.   
   
-If you have a desire to supplant what you have now, you must start by assuming it is a dream. And when it objectifies itself and enters the stream of reality, may I tell you: it will still be dream. Imagination is the creative power which can cause that which was not, to be! It can also cause that which is, not to be; therefore, it not only creates, but un-creates. This power is God.   
+If you have a desire to supplant what you have now, you must start by assuming it is a dream. And when it objectifies itself and enters the stream of reality, may I tell you: it will still be dream. [Imagination](/glossary#imagination) is the creative power which can cause that which was not, to be! It can also cause that which is, not to be; therefore, it not only creates, but un-creates. This power is God.   
   
 My friend knows this law and has applied it beautifully time and time again; yet we are all careless and often think a problem will take care of itself, but it will not. The power to change anything will lie dormant unless we operate it, as Imagination does not operate itself.   
   
@@ -131,7 +131,7 @@ Now let us go into the silence.
 ### The Eternal Home
 - Humanity is dreaming the world into being while sleeping in its eternal home.
 - By descending in consciousness, humans have made their Dreams into reality and locked themselves in the prison of their senses.
-- Awakening from this dream-like state is the process of coming to one's senses and realizing the true nature of reality.
+- Awakening from this dream-like [state](/glossary#state) is the process of coming to one's senses and realizing the true nature of reality.
 
 hemselves in the prison of their senses.
 - Awakening from this dream-like state is the process of coming to one's senses and realizing the true nature of reality.

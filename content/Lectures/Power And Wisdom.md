@@ -8,7 +8,7 @@ Clothed with the power from on high, Jesus entered the synagogue, opened the Boo
 
 When Pilate, the personification of logic and reason, asked: *"[Where are you from](/lectures/where-are-you-from)?"* Jesus did not answer. But when he said: *"Do you not know I have the power to release or crucify you,"* Jesus replied: *"You have no power over me unless it is given you from within."* In other words, if I do not give my power to you, you have none. 
 
-In the above statement the word *"anothen"* is translated *"from above,"* but its true meaning is *"from within."* This same word is used when Nicodemus is told: *"Unless you are born from within, you cannot enter the kingdom of God."* 
+In the above statement the word *"anothen"* is translated *"from above,"* but its true meaning is *"from within."* This same word is used when Nicodemus is told: *"Unless you are born from within, you cannot enter the kingdom of [God](/glossary#god)."* 
 
 The power from within is life-giving and entirely different from the power of this world. If you desired to physically leave this room, as an animated being I would have no power to hold you here. But as a life-giving spirit, I could hold and control your actions. 
 
@@ -18,7 +18,7 @@ Only when you wear the Human Form Divine - which is the embodiment of love - wil
 
 God cannot be found through studying scripture. He must be revealed! God either reveals himself to you, or you remain ignorant as to who he is. God first revealed himself to Moses as destructive power, saying: *"[I AM the Lord](/lectures/i-am-the-lord). I appeared to Abraham, Isaac, and Jacob as God Almighty, but by my name [I AM](/glossary#i-am) I did not make myself known to them."* 
 
-The patriarchs Abraham, Isaac, and Jacob knew only sheer power, but Moses knew God as I AM. Revealing himself as power, then as I AM, when God's son calls you father, you will know who you really are. This is the wisdom of God as opposed to the wisdom of man. 
+The patriarchs Abraham, Isaac, and Jacob knew only sheer power, but Moses knew God as [I AM](/glossary#i-am). Revealing himself as power, then as I AM, when God's son calls you father, you will know who you really are. This is the wisdom of God as opposed to the wisdom of man. 
 
 A friend of mine shared this vision with me. He said: "I am driving my car, when suddenly I am airborne, gliding over the treetops. Navigating the car by body-English, it rises as I lighten my body and descend with my body weight. Suddenly I panic, and must have crashed because I lost consciousness and the next thing I knew I was in a humanoid body such as I have never seen. The outside was dead, beige dust like the coals of a fireplace, with two holes where the eyes should be. 
 
@@ -26,7 +26,7 @@ A friend of mine shared this vision with me. He said: "I am driving my car, when
 
 *"We began to talk, and I opened my wallet to show you a card which implied I was a writer. The man at your side questioned you and you answered him very superficially, conveying to me with a look that the man was incapable of understanding anything. Then you and I were alone, and you said: 'No one can deny you the next four reunions with God.' I did not understand the words, but your manner implied they were very important and a joy permeated my being as I awoke."* 
 
-These fleshly garments look like the garments he saw, when seen from a certain level. Paul tells us that the first man (Esau, Cain, etc.) is the man of dust, but the second man (Christ) is the man of heaven. ([I Corinthians 15](https://www.biblegateway.com/passage/?search=1+Corinthians+15&version=KJV)) 
+These fleshly garments look like the garments he saw, when seen from a certain level. Paul tells us that the first man (Esau, Cain, etc.) is the man of dust, but the second man ([Christ](/glossary#christ)) is the man of heaven. ([I Corinthians 15](https://www.biblegateway.com/passage/?search=1+Corinthians+15&version=KJV)) 
 
 These bodies of dust are moved by a power from within. Blake explained this so beautifully, when he said: *"Those in great Eternity who contemplate on death (this world) say thus, 'What seems to be is, to those to whom it seems to be, and is productive of the most dreadful consequences, to those to whom it seems to be, even of torment, despair and Eternal death. But Divine Mercy steps beyond and redeems Man in the body of Jesus.'"* 
 
@@ -87,6 +87,6 @@ Now let us go into the silence.
 - When clothed with power from on high, a person becomes aware of a different world and their role as a life-giving spirit.
 - Belief and [imagination](/glossary#imagination) are powerful tools for manifesting desires.
 - The divine drama reaches its climax through the story of Christ unfolding within each individual.
-- Abdullah, a teacher, had specific knowledge about Neville and remained to guide him.
+- [Abdullah](/glossary#abdullah), a teacher, had specific knowledge about Neville and remained to guide him.
 - The study of wisdom is crucial for finding life and receiving favor from the Lord.
 - The world and its conflicts are essential for personal growth, leading to reunions with God and entrance into the New Age..New Age..w Age..

@@ -1,8 +1,8 @@
 # Reconciliation
 
-If I told you who you really are it would shock you, for in this world you can be frightened, limited, and filled with doubt; yet I tell you that you are [God](/glossary#god) himself, the very one who created and sustains the universe. When you first hear this you will no doubt resist it and believe the one who makes this statement to be insane because the idea seems impossible. But I tell you: God is in [Christ](/glossary#christ) reconciling the world to himself. [Jesus Christ](/lectures/jesus-christ) is in you as your plan of redemption. As he awakens, his message of reconciliation is entrusted to you to tell it to your brothers who are waiting, confused by reason of the dream into which they have placed themselves.
+If I told you who you really are it would shock you, for in this world you can be frightened, limited, and filled with doubt; yet I tell you that you are [God](/glossary#god) himself, the very one who created and sustains the universe. When you first hear this you will no doubt resist it and believe the one who makes this statement to be insane because the idea seems impossible. But I tell you: [God](/glossary#god) is in [Christ](/glossary#christ) reconciling the world to himself. [Jesus Christ](/lectures/jesus-christ) is in you as your plan of redemption. As he awakens, his message of reconciliation is entrusted to you to tell it to your brothers who are waiting, confused by reason of the dream into which they have placed themselves.
 
-When this message of reconciliation happens in you, you have entered the [state](/glossary#state) called Paul. Then you, too, will say: *"From now on I regard no one from the human point of view. Even though I once regarded Christ from the human point of view I regard him thus no longer."*
+When this message of reconciliation happens in you, you have entered the [state](/glossary#state) called Paul. Then you, too, will say: *"From now on I regard no one from the human point of view. Even though I once regarded [Christ](/glossary#christ) from the human point of view I regard him thus no longer."*
 
 As Saul (sleeping Man) Christ is seen as a person, someone separate and on the outside. But as Paul, Man awakens to the knowledge that Christ is God's plan of salvation and from that moment on will not be seen as human.
 
@@ -71,7 +71,7 @@ Now let us go into the silence.
 - Jesus Christ is in you as your plan of redemption.
 
 ###  Christ as a plan of redemption
-- When the message of reconciliation happens in you, you enter the state called Paul.
+- When the message of reconciliation happens in you, you enter the [state](/glossary#state) called Paul.
 - As Paul, you see Christ not as a separate person, but as the plan of salvation.
 - Christ is the way prepared by God for his banished sons to return to him.
 - Christ speaks to you, saying "I am the way, the truth, and the light. No one comes to the Father except through me."

@@ -2,7 +2,7 @@
 
 *"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."* ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
 
-*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, [I AM](/glossary#i-am) hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*I AM" is the self-definition of the Lord.
+*"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, [I AM](/glossary#i-am) hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*[I AM](/glossary#i-am)" is the self-definition of the Lord.
 
 Cain and Abel, as the grandchildren of the Lord, can be only personifications of two distinct functions of your own consciousness. The author is really concerned to show the *"Two Contrary States of the Human Soul,"* and he has used two brothers to show these states. The two brothers represent two distinct outlooks on the world possessed by everyone. One is the limited perception of the senses, and the other is an imaginative view of the world. Cain - the first view - is a passive surrender to appearances and an acceptance of life on the basis of the world without: a view which inevitably leads to unsatisfied longing or a contentment with disillusion. Abel - the second view - is a vision of fulfilled desire, lifting man above the evidence of the senses to that [state](/glossary#state) of relief where he no longer pines with desire. Ignorance of the second view is a soul on fire. Knowledge of the second view is the wing whereby it flies to the Heaven of fulfilled desire.
 
@@ -12,9 +12,9 @@ In the epistle to the Hebrews, the  writer tells us that Abel's offering was fai
 
 *"Now faith is the substance of things hoped for, the evidence of things not seen... Through faith we understand that the worlds were framed by the word of [God](/glossary#god), so that things which are seen were not made of things which do appear."* ([Hebrews 11:1, 3](https://www.biblegateway.com/passage/?search=Hebrews+11:1,+3&version=KJV))
 
-Cain offers the evidence of the senses which consciousness, the Lord, rejects, because acceptance of this gift as a mold of the future would mean the fixation and perpetuation of the present state forever. The sick would be sick, the poor would be poor, the thief would be a thief, the murderer a murderer, and so on, without hope of redemption.
+Cain offers the evidence of the senses which consciousness, the Lord, rejects, because acceptance of this gift as a mold of the future would mean the fixation and perpetuation of the present [state](/glossary#state) forever. The sick would be sick, the poor would be poor, the thief would be a thief, the murderer a murderer, and so on, without hope of redemption.
 
-The Lord, or consciousness, has no respect for such passive use of [imagination](/glossary#imagination) - which is the gift of Cain. He delights in the gift of Abel, the active, voluntary, loving exercise of the imagination on behalf of man for himself and others.
+The Lord, or consciousness, has no respect for such passive use of [imagination](/glossary#imagination) - which is the gift of Cain. He delights in the gift of Abel, the active, voluntary, loving exercise of the [imagination](/glossary#imagination) on behalf of man for himself and others.
 
 *"Let the weak man say, I am strong"* ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV))
 
@@ -22,7 +22,7 @@ Let man disregard appearances and declare himself to be the man he wants to be. 
 
 The ideal is always waiting to be incarnated, but unless we ourselves offer the ideal to the Lord, our consciousness, by assuming that we are already that which we seek to embody, it is incapable of birth. The Lord needs his daily lamb of faith to mold the world in harmony with our Dreams.
 
-*"By faith Abel offered unto God a more excellent sacrifice than Cain."* ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
+*"By faith Abel offered unto [God](/glossary#god) a more excellent sacrifice than Cain."* ([Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews+11:4&version=KJV))
 
 Faith sacrifices the apparent fact for the unapparent truth. Faith holds fast to the fundamental truth that through the medium of an [Assumption](/glossary#assumption), invisible states become visible facts.
 
@@ -33,7 +33,7 @@ Just recently, I had the opportunity to observe the wonderful results of one who
 
 A young woman asked me to meet her sister and her three-year-old nephew. He was a fine, healthy lad with clear blue eyes and an exceptionally fine unblemished skin. Then, she told me her story.
 
-At birth, the boy was perfect in every way save for a large, ugly birthmark covering one side of his face. Their doctor advised them that nothing could be done for this type of scar. Visits to many specialists only confirmed his statement. Hearing the verdict, the aunt set herself the task of proving her faith - that an Assumption, though denied by the evidence of the senses, if persisted in, will harden into fact.
+At birth, the boy was perfect in every way save for a large, ugly birthmark covering one side of his face. Their doctor advised them that nothing could be done for this type of scar. Visits to many specialists only confirmed his statement. Hearing the verdict, the aunt set herself the task of proving her faith - that an [Assumption](/glossary#assumption), though denied by the evidence of the senses, if persisted in, will harden into fact.
 
 Every time she thought of the baby, which was often, she saw, in her imagination, an eight month-old baby with a perfect face - without any trace of a scar. This was not easy, but she knew that in this case, that was the gift of Abel which pleased God. She persisted in her faith - she believed what was not there to be seen. The result was that she visited her sister on the child's eight-month birthday and found him to have a perfect, unblemished skin with no trace of a birth-mark ever having been present. "Luck! Coincidence! Shouts Cain. No. Abel knows that these are names given by those who have no faith, to the works of faith.
 
@@ -51,7 +51,7 @@ The Prophet Malachi complains that man has robbed God:
 
 Facts based upon reason and the evidence of the senses which oppose the idea seeking expression, rob you of the belief in the reality of the invisible state. But *"faith is the evidence of things not seen"*, and through it *"Good calleth those things which be not as though they were..."* ([Romans 4:17](https://www.biblegateway.com/passage/?search=Romans+4:17&version=KJV))
 
-Call the thing not seen; assume the feeling of your wish fulfilled.
+Call the thing not seen; assume the [feeling](/glossary#feeling) of your wish fulfilled.
 
 *". . .that there may be meat in mine house, and prove me now herewith, sayeth the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it."* ([Malachi 3:10](https://www.biblegateway.com/passage/?search=Malachi+3:10&version=KJV))
 

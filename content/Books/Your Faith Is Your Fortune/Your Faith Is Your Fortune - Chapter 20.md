@@ -16,7 +16,7 @@ Yes, the Prophet Elijah lives forever as man’s limitless consciousness of bein
 ## Summary
 ### Elijah Represents God Within
 
-The prophet Elijah represents the God power, or man's infinite awareness of being.
+The prophet Elijah represents the [God](/glossary#god) power, or man's infinite awareness of being.
 
 ### Widow is Limited Consciousness
 

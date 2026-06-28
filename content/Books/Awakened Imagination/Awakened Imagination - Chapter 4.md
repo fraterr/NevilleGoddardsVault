@@ -6,11 +6,11 @@
 THE VERY first act of correction or cure is always *"revise"*. One must start with oneself. It is one's attitude that must be changed.  
 What we are, that only can we see. Emerson  
 It is a most healthy and productive exercise to daily relive the day as you wish you had lived it, revising the scenes to make them conform to your ideals.  
-For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in [imagination](/glossary#imagination), read the revised letter over and over again. This is the essence of [Revision](/glossary#revision), and Revision results in repeal.  
+For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in [imagination](/glossary#imagination), read the revised letter over and over again. This is the essence of [Revision](/glossary#revision), and [Revision](/glossary#revision) results in repeal.  
 The one requisite is to arouse your attention in a way and to such intensity that you become wholly absorbed in the revised action. You will experience an expansion and refinement of the senses by this imaginative exercise and eventually achieve vision.  
 But always remember that the ultimate purpose of this exercise is to create in you *"the Spirit of Jesus"*, which is continual forgiveness of sin.  
 Revision is of greatest importance when the motive is to change oneself, when there is a sincere desire to be something different, when the longing is to awaken the ideal active spirit of forgiveness.  
-Without imagination, man remains a being of sin.  
+Without [imagination](/glossary#imagination), man remains a being of sin.  
 Man either goes forward to imagination or remains imprisoned in his senses. To go forward to imagination is to forgive. Forgiveness is the life of the imagination. The art of living is the art of forgiving  
 Forgiveness is, in fact, experiencing in imagination the revised version of the day, experiencing in imagination what you wish you had experienced in the flesh.  
 Every time one really forgives – that is, every time one relives the event as it should have been lived – one is born again.  
@@ -39,7 +39,7 @@ Finally, I gave up and said, 'You know I am in pain. I am trying hard not to be 
 The answer: 'Go to bed and review the day's events.'  
 So I said 'All right. But let me tell you if my foot isn't perfect by tomorrow morning, you have only yourself to blame.'  
 "After arranging the bed clothes so they didn't touch my foot, I started to review the day. It was slow going as I had difficulty keeping my attention away from my foot. I went through the whole day, saw nothing to add to the chair incident. But when I reached the early evening, I found myself coming face to face with a man who for the past year has made a point of not speaking. The first time this happened, I thought he had grown deaf. I had known him since school days, but we had never done more than say 'hello' and comment on the weather. Mutual friends assured me I had done nothing, that he had said he never liked me and finally decided it was not worthwhile speaking. I had said 'Hi!'  
-He hadn't answered. I found that I thought 'Poor guy – what a horrid state to be in. I shall do something about this ridiculous state of affairs.'  
+He hadn't answered. I found that I thought 'Poor guy – what a horrid [state](/glossary#state) to be in. I shall do something about this ridiculous state of affairs.'  
 So, in my imagination, I stopped right there and re-did the scene. I said 'Hi!' He answered 'Hi!' and smiled. I now thought 'Good old Ed.'  
 I ran the scene over a couple of times and went on to the next incident and finished up the day.  
 "'Now what – do we do my foot or the concert?'  
@@ -63,7 +63,7 @@ Your effectiveness will increase with practice. Revision is the way by which rig
 To know the truth, you must live the truth, and to live the truth, your inner actions must match the actions of your fulfilled desire.  
 Expectancy and desire must become one.  
 Your outer world is only actualized inner movement.  
-Through ignorance of the law of Revision, those who take to warfare are perpetually defeated.  
+Through ignorance of [the law](/glossary#the-law) of Revision, those who take to warfare are perpetually defeated.  
 Only concepts that idealize depict the truth.  
 Your ideal of man is his truest self. It is because I firmly believe that whatever is most profoundly imaginative is, in reality, most directly practical that I ask you to live imaginatively and to think into, and to personally appropriate the transcendent saying  
 *"[Christ in you](/lectures/christ-in-you), the hope of glory."* ([Colossians 1:27](https://www.biblegateway.com/passage/?search=Colossians+1:27&version=KJV))  

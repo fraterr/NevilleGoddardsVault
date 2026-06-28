@@ -26,7 +26,7 @@ When a stone blocks the well, it means that people have taken these great symbol
 
 The literal-minded man who refuses the *“cup of water”* – psychological Truth – offered him, *“sinks into the bottom as a stone.”* He remains on the level where he sees everything in pure objectivity, without any subjective relationship he may keep all the commandments – written on stone – literally, and yet break them psychologically all day long.
 
-He may, for example not literally steal the property of another, and yet see the other in want. To see another in want, is to rob him of his birthright as a child of God. For we are all *“children of the most high.”*
+He may, for example not literally steal the property of another, and yet see the other in want. To see another in want, is to rob him of his birthright as a child of [God](/glossary#god). For we are all *“children of the most high.”*
 
 “And if children, then heirs;
 heirs of God, and joint-heirs
@@ -54,7 +54,7 @@ This is he that came not by water only, but by water and blood.” The whole of 
 
 Whatever you desire is already *“furnished and prepared”*.
 
-Your imagination can put you in touch inwardly with that state of consciousness. If you imagine that you are already the one you want to be, you are following the *“man bearing a pitcher of water”*. If you remain in that state, you have entered the guest-chamber – Passover – and committed your spirit into the hands of God – your consciousness.
+Your [imagination](/glossary#imagination) can put you in touch inwardly with that [state](/glossary#state) of consciousness. If you imagine that you are already the one you want to be, you are following the *“man bearing a pitcher of water”*. If you remain in that state, you have entered the guest-chamber – Passover – and committed your spirit into the hands of God – your consciousness.
 
 A man’s state of consciousness is his demand on the Infinite Store House of God, and, like [the law](/glossary#the-law) of commerce, a demand creates a supply.
 
@@ -73,14 +73,14 @@ Only as you assume the [feeling](/glossary#feeling) of your wish fulfilled, and 
 God is your consciousness.
 
 His promises are conditional. Unless the demand – your state of consciousness – is changed, the supply – the present conditions of your life remain as they are.
-*“As we forgive”* – as we change our mind – the law is automatic.
+*“As we forgive”* – as we change our mind – [the law](/glossary#the-law) is automatic.
 
 Your state of consciousness is the spring of action, the directing force, and that which creates the supply.
 
 *“if that nation, against whom I have pronounced, turn from their evil, I will repent of the evil that I thought to do unto them. And at what instant I shall speak concerning a nation, and concerning a kingdom, to build and to plant it; If it do evil in my sight, that it obey not my voice, then I will repent of the good, wherewith I said I would benefit them.”*
 ([Jeremiah 18:8, 9, 10](https://www.biblegateway.com/passage/?search=Jeremiah+18:8,+9,+10&version=KJV))
 
-This statement of Jeremiah suggests that a commitment is involved if the individual or nation would realize the goal – a commitment to certain fixed attitudes of mind. The feeling of the wish fulfilled is a necessary condition in mans search for the goal.
+This statement of Jeremiah suggests that a commitment is involved if the individual or nation would realize the goal – a commitment to certain fixed attitudes of mind. The [feeling](/glossary#feeling) of the wish fulfilled is a necessary condition in mans search for the goal.
 
 The story I am about to tell you shows that man is what the observer has the capacity to see in him; that what he is seen to be is a direct [index](/index) to the observer’s state of consciousness.
 

@@ -2,7 +2,7 @@
 
 WITH so vast a subject, it is indeed a difficult task to summarize in a few hundred words what I consider the - most basic ideas on which those who seek a true understanding of metaphysics should now concentrate. I shall do what I can in the shape of three fundamentals. These fundamentals are: Self-Observation, Definition of Aim, and Detachment.
 
-The purpose of true metaphysics is to bring about a rebirth or radical psychological change in the individual. Such a change cannot take place until the individual first discovers the self that he would change. This discovery can be made only through an uncritical observation of his reactions to life. The sum total of these reactions defines the individual's [state](/glossary#state) of consciousness, and it is the individual's state of consciousness that attracts the situations and circumstances of his life.
+The purpose of true metaphysics is to bring about a rebirth or radical psychological change in the individual. Such a change cannot take place until the individual first discovers the self that he would change. This discovery can be made only through an uncritical observation of his reactions to life. The sum total of these reactions defines the individual's [state](/glossary#state) of consciousness, and it is the individual's [state](/glossary#state) of consciousness that attracts the situations and circumstances of his life.
 
 So the starting point of true metaphysics, on its practical side, is self-observation in order to discover one's reactions to life, reactions that form one's secret self - the cause of the phenomena of life.
 
@@ -31,7 +31,7 @@ The purpose of practicing detachment is to separate us from our present reaction
 
 This teaching begins with self-observation. Secondly it asks, *"What do you want?"* And then it teaches detachment from all negative states and attachment to your aim. This last state- attachment to your aim - is accomplished by frequently assuming the [feeling](/glossary#feeling) of your wish fulfilled.
 
-We must practice separating ourselves from our negative moods and thoughts in the midst of all the troubles and disasters of daily life. No one can be different from what he is now unless he begins to separate himself from his present reactions and to identify himself with his aim. Detachment from negative states and Assumption of the wish fulfilled must be practiced in the midst of all the blessings and cursing of life.
+We must practice separating ourselves from our negative moods and thoughts in the midst of all the troubles and disasters of daily life. No one can be different from what he is now unless he begins to separate himself from his present reactions and to identify himself with his aim. Detachment from negative states and [Assumption](/glossary#assumption) of the wish fulfilled must be practiced in the midst of all the blessings and cursing of life.
 
 The way of true metaphysics lies in the midst of all that is going on in life. We must constantly practice self-observation, thinking from our aim, and detachment from negative moods and thoughts if we would be doers of truth instead of mere hearers.
 
@@ -55,7 +55,7 @@ Neville
 ### Fundamental 3: Detachment
 - Detachment separates individuals from their present negative reactions and connects them to their desired aim.
 - Inner separation must be developed through practice, as individuals tend to identify with their moods and reactions.
-- Attachment to the aim is achieved by frequently assuming the feeling of the wish fulfilled.
+- Attachment to the aim is achieved by frequently assuming the [feeling](/glossary#feeling) of the wish fulfilled.
 - Daily practice of self-observation, thinking from the aim, and detachment from negative thoughts and moods is essential.
 - Practicing these fundamentals leads to higher levels of consciousness and attracts a desired life.
 - The path of true metaphysics lies in the midst of life's challenges.

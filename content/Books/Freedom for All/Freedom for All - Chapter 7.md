@@ -4,7 +4,7 @@
 
 [God](/glossary#god) speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
 
-By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your [I AM](/glossary#i-am), speaks to you, the conditioned conscious [state](/glossary#state), through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
+By basic desire is meant your real objective. Secondary desires deal with the manner of realization. [God](/glossary#god), your [I AM](/glossary#i-am), speaks to you, the conditioned conscious [state](/glossary#state), through your basic desires. Secondary desires or ways of expression are the secrets of your [I AM](/glossary#i-am), the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
 
 *"For I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto those things, God shall add unto him the plagues that are written in this book; and if any man shall take away from the words of the book of this prophecy, God shall take away his part out of the book of life."* (Revelation, 22:18-19)
 
@@ -30,7 +30,7 @@ Your desires are the natural and automatic result of your present conception of 
 
 God, your unconditioned consciousness, is impersonal and no respecter of persons ([Acts 10:34](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV), [Romans 2:11](https://www.biblegateway.com/passage/?search=Romans+2:11&version=KJV)).
 
-Your unconditioned consciousness, God, gives to your conditioned consciousness, man, through the medium of your basic desires that which your conditioned state (your present conception of yourself) believes it needs.
+Your unconditioned consciousness, God, gives to your conditioned consciousness, man, through the medium of your basic desires that which your conditioned [state](/glossary#state) (your present conception of yourself) believes it needs.
 
 As long as you remain in your present conscious state so long will you continue desiring that which you now desire.
 
@@ -68,11 +68,11 @@ The nature of the gift is determined by your conception of yourself plus the una
 
 Make no mistake about this; law is no respecter of persons.
 
-Discover [the law](/glossary#the-law) of self-expression and live by it; then you will be free. With this understanding of the law, define your desire; know exactly what you want; make certain that it is desirable and acceptable.
+Discover [the law](/glossary#the-law) of self-expression and live by it; then you will be free. With this understanding of [the law](/glossary#the-law), define your desire; know exactly what you want; make certain that it is desirable and acceptable.
 
 The wise and disciplined man sees no barrier to the realization of his desire; he sees nothing to destroy. With a fixed attitude of mind he recognizes that the thing desired is already fully expressed, for he knows that a fixed subjective state has ways and means of expressing itself of which no man knows. *"Before they ask I have answered"* (approx., [Isaiah 65:24](https://www.biblegateway.com/passage/?search=Isaiah+65:24&version=KJV)), *"I have ways ye know not of"* (approx., [Isaiah 42:16](https://www.biblegateway.com/passage/?search=Isaiah+42:16&version=KJV)), *"My ways are past finding out"* ([Romans 11:33](https://www.biblegateway.com/passage/?search=Romans+11:33&version=KJV)).
 
-The undisciplined man, on the other hand, constantly sees opposition to the fulfillment of his desire, and, because of the frustration, he forms desires of destruction which he firmly believes must be expressed before his basic desire can be realized. When man discovers this law of one consciousness he will understand the great wisdom of the Golden Rule and so he will live by it and prove to himself that the kingdom of heaven is on earth.
+The undisciplined man, on the other hand, constantly sees opposition to the fulfillment of his desire, and, because of the frustration, he forms desires of destruction which he firmly believes must be expressed before his basic desire can be realized. When man discovers this law of one consciousness he will understand the great wisdom of [the Golden Rule](/glossary#the-golden-rule) and so he will live by it and prove to himself that the kingdom of heaven is on earth.
 
 You will realize why you should *"do unto others that which you would have them do unto you."* You will know why you should live by this Golden Rule because you will discover that it is just good common sense to do so since the rule is based upon life’s changeless law and is no respecter of persons.
 

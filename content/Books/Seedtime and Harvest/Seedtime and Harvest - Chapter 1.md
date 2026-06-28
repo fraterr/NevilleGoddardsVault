@@ -26,7 +26,7 @@ The purpose of this book, however, is not to give you a complete definition of B
 
 All I hope to have done is to have indicated the way in which you are most likely to succeed in realizing your desires.
 
-*"What things soever ye desire"* can be obtained only through the conscious, voluntary exercise of imagination in direct obedience to the laws of Mind.
+*"What things soever ye desire"* can be obtained only through the conscious, voluntary exercise of [imagination](/glossary#imagination) in direct obedience to the laws of Mind.
 
 Somewhere within this realm of imagination there is a mood, a [feeling](/glossary#feeling) of the wish fulfilled which, if appropriated, means success to you.
 
@@ -49,7 +49,7 @@ This realm, this Eden - your imagination - is vaster than you know and repays ex
 
 ### We Sleep in Adam, Awake in Christ
 
-- Adam represents collective sleep, Christ individual waking
+- Adam represents collective sleep, [Christ](/glossary#christ) individual waking
 - Bible records the dream of sleeping generic man
 
 ### Imaginative Readers Grasp Symbols

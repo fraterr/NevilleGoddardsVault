@@ -6,11 +6,11 @@
 
 The truth that sets man free is the knowledge that his consciousness is the resurrection and the life, that his consciousness both resurrects and makes alive all that he is conscious of being. Apart from consciousness there is neither resurrection nor life.
 
-When man gives up his belief in a [God](/glossary#god) apart from himself and begins to recognize his awareness of being to be God, as did Jesus and the prophets, he will transform his world with the realization, *“I and my Father are one but my Father is greater than I.”* He will know that his consciousness is God and that which he is conscious of being is the son bearing witness of God, the Father.
+When man gives up his belief in a [God](/glossary#god) apart from himself and begins to recognize his awareness of being to be [God](/glossary#god), as did Jesus and the prophets, he will transform his world with the realization, *“I and my Father are one but my Father is greater than I.”* He will know that his consciousness is God and that which he is conscious of being is the son bearing witness of God, the Father.
 
 The conceiver and the conception are one, but the conceiver is greater than his conception. Before Abraham was [I AM](/glossary#i-am). Yes, I was aware of being before I became aware of being man, and in that day when I shall cease to be conscious of being man I shall still be conscious of being.
 
-The consciousness of being is not dependent upon being anything. It preceded all conceptions of itself and shall be when all conceptions of itself shall cease to be. *“I AM the beginning and the end.”* That is, all things or conceptions of myself begin and end in me, but I, the formless awareness, remain forever.
+The consciousness of being is not dependent upon being anything. It preceded all conceptions of itself and shall be when all conceptions of itself shall cease to be. *“[I AM](/glossary#i-am) the beginning and the end.”* That is, all things or conceptions of myself begin and end in me, but I, the formless awareness, remain forever.
 
 Jesus discovered this glorious truth and declared Himself to be one with God, not the God that man had fashioned, for He never recognized such a God. Jesus found God to be His awareness of being and so told man that the Kingdom of God and Heaven were within.
 
@@ -18,7 +18,7 @@ When it is recorded that Jesus left the world and went to His Father it is simpl
 
 To rise in consciousness to the level of the thing desired and to remain there until such level becomes your nature is the way of all seeming miracles. *“And I, if I be lifted up, I shall draw all men unto me.”* If I be lifted up in consciousness to the naturalness of the thing desired, I shall draw the manifestation of that desire to me.
 
-*“No man comes unto me save the Father within me draws him, and I and my Father are one.”* My consciousness is the Father who draws the manifestation of life to me. The nature of the manifestation is determined by the state of consciousness in which I dwell. I am always drawing into my world that which I am conscious of being.
+*“No man comes unto me save the Father within me draws him, and I and my Father are one.”* My consciousness is the Father who draws the manifestation of life to me. The nature of the manifestation is determined by the [state](/glossary#state) of consciousness in which I dwell. I am always drawing into my world that which I am conscious of being.
 
 If you are dissatisfied with your present expression of life, then you must be born again. Rebirth is the dropping of that level with which you are dissatisfied and rising to that level of consciousness which you desire to express and possess.
 
@@ -38,7 +38,7 @@ This wonderful experience of rising and floating is the signal that you are abse
 
 When this expansion of consciousness is attained, within this formless deep of yourself, give form to the new conception by claiming and [feeling](/glossary#feeling) yourself to be that which you, before you entered into this state, desired to be. You will find that within this formless deep of yourself all things appear to be divinely possible. Anything that you sincerely feel yourself to be while in this expanded state becomes, in time, your natural expression.
 
-And God said, *“Let there be a firmament in the midst of the waters.”* Yes, let there be a firmness or conviction in the midst of this expanded consciousness by knowing and feeling I AM that, the thing desired.
+And God said, *“Let there be a firmament in the midst of the waters.”* Yes, let there be a firmness or conviction in the midst of this expanded consciousness by knowing and [feeling](/glossary#feeling) I AM that, the thing desired.
 
 As you claim and feel yourself to be the thing desired you are crystallizing this formless liquid light that you are into the image and likeness of that which you are conscious of being.
 

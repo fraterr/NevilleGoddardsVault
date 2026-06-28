@@ -12,7 +12,7 @@ The purpose of this teaching is to stir the highest in you to confidence and sel
   
 As we lift up our consciousness, our world reshapes itself in harmony with the level to which we have risen. One whose Prayer has been granted, rises from his Prayer a better man.  
   
-To change your present [state](/glossary#state) you, like Dr. Millikan, must rise to a higher level of consciousness. This rise is accomplished by affirming that you already are what you want to be, and assuming the feeling of your fulfilled desire.  
+To change your present [state](/glossary#state) you, like Dr. Millikan, must rise to a higher level of consciousness. This rise is accomplished by affirming that you already are what you want to be, and assuming the [feeling](/glossary#feeling) of your fulfilled desire.  
   
 The drama of life is a psychological one, brought about by your attitudes rather than by your acts. There is no escape from your present predicament other than a radical psychological transformation. Everything depends upon your attitude towards yourself, as that which you will not affirm as true of yourself, will not develop in your life.  
   
@@ -26,7 +26,7 @@ A meek man is so self-disciplined he sees only the finest and thinks only the be
   
 We rise to a higher level of consciousness, not because we have curbed our passions, but because we have cultivated our virtues. In truth, a meek man is one who is in complete control of his moods. And they are the highest, for he who desires to walk with the highest, must keep a high mood.  
   
-It is my belief that all men can change the course of their lives. I believe that Dr. Millikan's technique of making his desire a present fact is of great importance. His high purpose was to be of mutual benefit which is, inevitably the goal of us all. It is much easier to imagine the good for all, than to be purely selfish in our imagining. By our imagination we can change our future, and to the man of high purpose, this is a natural measure.  
+It is my belief that all men can change the course of their lives. I believe that Dr. Millikan's technique of making his desire a present fact is of great importance. His high purpose was to be of mutual benefit which is, inevitably the goal of us all. It is much easier to imagine the good for all, than to be purely selfish in our imagining. By our [imagination](/glossary#imagination) we can change our future, and to the man of high purpose, this is a natural measure.  
   
 If you are observant, you will notice the swift echo or response to your every mood and key it to the circumstances of your daily life. When you understand the relationship between circumstances, you will know that everyone you meet is part of yourself.  
   
@@ -34,7 +34,7 @@ In the creation of a new life, you must begin with a change of mood which opens 
   
 Individuals, as well as communities, grow spiritually in proportion to their higher ideals. If your ideal is low, you sink to its depths, but if it is exalted, you are elevated to heights unimagined. You must keep a high mood if you would walk with the highest.  
   
-All forms of creative imagination imply elements of feeling, for it is the ferment without which no creation is possible. There is nothing wrong with the desire to transcend your present state. The world would not progress without man's dissatisfaction with himself.  
+All forms of creative imagination imply elements of feeling, for it is the ferment without which no creation is possible. There is nothing wrong with the desire to transcend your present [state](/glossary#state). The world would not progress without man's dissatisfaction with himself.  
   
 It is natural to seek a more beautiful personal life. It is right to wish for greater understanding, health and security. This is so beautifully stated in the 16th chapter of the Book of John, 'Heretofore you have asked nothing in my name. Ask, and you shall receive that your joy may be full.'  
   

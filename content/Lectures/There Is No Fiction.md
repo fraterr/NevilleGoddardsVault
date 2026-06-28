@@ -8,9 +8,9 @@ Here is an imaginary act which has no support in fact. The tree was not withered
 
 Now when you pray you must immerse yourself in the [feeling](/glossary#feeling) of the wish fulfilled, for the word *"pray"* means, *"Motion towards; accession to; at or in the vicinity of."* Point yourself towards the wish fulfilled and accept that invisible [state](/glossary#state) as reality. Then go your way knowing the desire is now yours. You did it and you will not be surprised when it comes to pass.
 
-When you first practice this technique you will be surprised when it happens; but when you learn how to completely accept the state assumed, you will know you do not have to do a thing to make it come to pass, as the [Assumption](/glossary#assumption) contains its own plan of fulfillment. You will know that this world is imaginal and that an Assumption - with no external object to support its truth - will harden into fact when its truth is persisted in.
+When you first practice this technique you will be surprised when it happens; but when you learn how to completely accept the [state](/glossary#state) assumed, you will know you do not have to do a thing to make it come to pass, as the [Assumption](/glossary#assumption) contains its own plan of fulfillment. You will know that this world is imaginal and that an [Assumption](/glossary#assumption) - with no external object to support its truth - will harden into fact when its truth is persisted in.
 
-If an imaginal act produces an external fact to support it, then is not this world essentially imagined? If you dare to assume what your reason and senses deny and walk faithful to your Assumption, believing in its reality - and its corresponding effect is produced, can this seemingly solid, real world be anything other than imaginal? Everything is imagined, for you are [God](/glossary#god) - all imagination! God exists in you and you in Him. The world is all that you have imagined it to be, even though you cannot remember when or how you brought it into being.
+If an imaginal act produces an external fact to support it, then is not this world essentially imagined? If you dare to assume what your reason and senses deny and walk faithful to your Assumption, believing in its reality - and its corresponding effect is produced, can this seemingly solid, real world be anything other than imaginal? Everything is imagined, for you are [God](/glossary#god) - all [imagination](/glossary#imagination)! [God](/glossary#god) exists in you and you in Him. The world is all that you have imagined it to be, even though you cannot remember when or how you brought it into being.
 
 You cannot feed the mind violence and not expect violence in the world. Although the networks will deny this, a friend at NBC-TV studio told me that when it was official that Kennedy was dead, he received an order from New York that for the next four days no violent films were to be shown. He said pandemonium took place in the studio, as they went through their files trying to find enough non-violent film to cover four days! Lucky for them, most of the time will be taken up with the giant coverage of the funeral in New York City.
 
@@ -26,7 +26,7 @@ The Book of Genesis begins: *"In the beginning God"* and ends *"In a coffin in E
 
 Now, having said that interpretation belongs to God, Joseph then interpreted their Dreams. Two years later, he interpreted Pharaoh's dream and it came to pass, just as he said it would. If this story is true, is not the spirit of God upon man? Yes! Because God actually became as you are, that you may be as He is. Accept this literally, for it is true. 
 
-Imagination truly creates out of nothing! Thoughts call forth a thing that is not seen, as though it were happening. This is accomplished by an imaginal concept touched by feeling.
+Imagination truly creates out of nothing! Thoughts call forth a thing that is not seen, as though it were happening. This is accomplished by an imaginal concept touched by [feeling](/glossary#feeling).
 
 Hearing of the success of another and feeling their joy builds a structure which will project itself on the screen of space. Calling the projection reality, one may think it was created from the outside. But what happened had to happen as it did, for there are no accidents. Last night Kennedy could have used other exits but he had to use the one he did, for there is a time for every imaginal act to project itself, just as there is a time to be born and a time to die, a time to laugh and a time to cry.
 
@@ -94,7 +94,7 @@ The stories I have spoken of come from the eleventh chapter of the Book of Mark.
 
 In the meanwhile, believe me and test your creative power. You can bring anything out of nothing by conceiving a scene implying the fulfillment of a dream, and believing in its reality. Persist in your belief and your invisible dream will become a visible fact. That is falsifying the records - which is allowed.
 
-We are called upon to emulate the unjust steward. The word steward originally meant *"the keeper of the pig,"* the symbol of Jesus Christ, the human imagination! You are the steward of your imagination. Feed it loving thoughts for yourself and others. If you feed on violence, you will become violent, for you become what you eat.
+We are called upon to emulate the unjust steward. The word steward originally meant *"the keeper of the pig,"* the symbol of Jesus [Christ](/glossary#christ), the human imagination! You are the steward of your imagination. Feed it loving thoughts for yourself and others. If you feed on violence, you will become violent, for you become what you eat.
 
 Born in the little island of Barbados, we kept ducks and chickens for our own consumption. If mother wanted a pair of ducks for a Sunday dinner, ten days prior she would tell one of her nine sons to put a brace of ducks aside.
 
@@ -151,7 +151,7 @@ Now let us go into the silence.
 
 ### The Power of Thoughts
 - Thoughts have the potential to create reality, shaping one's experiences.
-- One's Mental diet influences the thoughts and results in corresponding actions and outcomes.
+- One's [Mental diet](/glossary#mental-diet) influences the thoughts and results in corresponding actions and outcomes.
 - Changing the diet of thoughts can lead to a fundamental change in one's reality.
 
 ### The Creative Power of Imagination

@@ -3,7 +3,7 @@
 [!info] Hear, O Israel 
 HEAR, O Israel: the Lord our [God](/glossary#god) is one Lord.
 Hear, O Israel:
-Hear, O man made of the very substance of God:
+Hear, O man made of the very substance of [God](/glossary#god):
 You and God are one and undivided!
 Man, the world and all within it are conditioned states
 of the unconditioned one, God.
@@ -24,7 +24,7 @@ and have their being,
 is your [I AM](/glossary#i-am),
 your unconditioned consciousness.
 
-Unconditioned consciousness is God, the one and only reality. By unconditioned consciousness is meant a sense of awareness; a sense of knowing that I AM apart from knowing who I AM; the consciousness of being, divorced from that which I am conscious of being.
+Unconditioned consciousness is God, the one and only reality. By unconditioned consciousness is meant a sense of awareness; a sense of knowing that [I AM](/glossary#i-am) apart from knowing who I AM; the consciousness of being, divorced from that which I am conscious of being.
 
 I AM aware of being man, but I need not be man to be aware of being. Before I became aware of being someone, I, unconditioned awareness, was aware of being, and this awareness does not depend upon being someone. I AM self-existent, unconditioned consciousness; I became aware of being someone; and I shall become aware of being someone other than this that I am now aware of being; but I AM eternally aware of being whether I am unconditioned formlessness or I am conditioned form.
 
@@ -42,13 +42,13 @@ The world is my conditioned consciousness objectified.
 
 That which I feel and believe to be true of myself is now projected in space as my world.
 
-The world – my mirrored self – ever bears witness of the state of consciousness in which I live.
+The world – my mirrored self – ever bears witness of the [state](/glossary#state) of consciousness in which I live.
 
 There is no chance or accident responsible for the things that happen to me or the environment in which I find myself. Nor is predestined fate the author of my fortunes or misfortunes. Innocence and guilt are mere words with no meaning to [the law](/glossary#the-law) of consciousness, except as they reflect the state of consciousness itself.
 
 The consciousness of guilt calls forth condemnation. The consciousness of lack produces poverty.
 
-Man everlastingly objectifies the state of consciousness in which he abides but he has somehow or other become confused in the interpretation of the law of cause and effect.
+Man everlastingly objectifies the state of consciousness in which he abides but he has somehow or other become confused in the interpretation of [the law](/glossary#the-law) of cause and effect.
 
 He has forgotten that it is the inner state which is the cause of the outer manifestation – *"As within, so without"* (*"Correspondence"*, the second of The Seven Principles of Hermes Trismegistus) – and in his forgetfulness he believes that an outside God has his own peculiar reason for doing things, such reasons being beyond the comprehension of mere man; or he believes that people are suffering because of past mistakes which have been forgotten by the conscious mind; or, again, that blind chance alone plays the part of God.
 

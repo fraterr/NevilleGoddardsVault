@@ -2,7 +2,7 @@
 
 *"The Nature of Visionary Fancy, or [Imagination](/glossary#imagination), is very little known, & the External nature & permanence of its ever Existent Images is consider'd as less permanent than the things of Vegetative & Generative Nature; yet the Oak dies as well as the Lettuce, but Its Eternal image & Individuality never dies, but renews by its seed; just so the Imaginative Image returns by the seed of Contemplative Thought."* (William Blake)
 
-The images of our imagination are the realities of which any physical manifestation is only the shadow.
+The images of our [imagination](/glossary#imagination) are the realities of which any physical manifestation is only the shadow.
 
 If we are faithful to vision, the image will create for itself the only physical manifestation of itself it has a right to make.
 
@@ -62,7 +62,7 @@ Nothing is so fatal as conformity. We must not allow ourselves to be girt about 
 
 Change the image, and thereby change the fact.
 
-R.O. employed the art of seeing and feeling to create her vision in imagination.
+R.O. employed the art of seeing and [feeling](/glossary#feeling) to create her vision in imagination.
 
 "A year ago I took my children to Europe leaving my furnished apartment in the care of my maid. When we returned a few months later to the United States, I found my maid and all my furniture gone. The apartment superintendent stated that the maid had had my furniture moved 'by my request'. There was nothing I could do at the moment, so I took my children and moved into a hotel. I, of course, reported the incident to the police and, also, brought in private detectives on the case. Both organizations investigated every moving company and every storage warehouse in New York City, but to no avail. There seemed to be absolutely no trace of my furniture, nor of my maid.
 

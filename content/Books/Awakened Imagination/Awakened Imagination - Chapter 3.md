@@ -28,7 +28,7 @@ There are two kinds of movement, one that is according to the inner body and ano
 
 Whenever the actions of the inner body match the actions which the outer must take to appease desire, that desire will be realized.
 
-Construct mentally a drama which implies that your desire is realized and make it one which involves movement of self. Immobilize your outer physical self. Act precisely as though you were going to take a nap, and start the predetermined action in imagination.
+Construct mentally a drama which implies that your desire is realized and make it one which involves movement of self. Immobilize your outer physical self. Act precisely as though you were going to take a nap, and start the predetermined action in [imagination](/glossary#imagination).
 
 A vivid representation of the action is the beginning of that action. Then, as you are falling asleep, consciously imagine yourself into the scene. The length of the sleep is not important, a short nap is sufficient, but carrying the action into sleep thickens fancy into fact.
 
@@ -36,7 +36,7 @@ At first your thoughts may be like rambling sheep that have no shepherd. Don't d
 
 In The Road to Xanadu, Professor John Livingston Lowes says:
 
-*"But I have long had the feeling, which this study had matured to a conviction, that Fancy and Imagination are not two powers at all, but one. The valid distinction which exists between them lies, not in the materials with which they operate, but in the degree of intensity of the operant power itself. Working at high tension, the imaginative energy assimilates and transmutes; keyed low, the same energy aggregates and yokes together those images which at its highest pitch, it merges indissolubly into one."*"
+*"But I have long had the [feeling](/glossary#feeling), which this study had matured to a conviction, that Fancy and Imagination are not two powers at all, but one. The valid distinction which exists between them lies, not in the materials with which they operate, but in the degree of intensity of the operant power itself. Working at high tension, the imaginative energy assimilates and transmutes; keyed low, the same energy aggregates and yokes together those images which at its highest pitch, it merges indissolubly into one."*"
 
 Fancy assembles, imagination fuses.
 
@@ -64,7 +64,7 @@ These inner movements not only produce corresponding outer movements: this is [t
 
 He who practices these exercises of bilocation will develop unusual powers of concentration and quiescence and will inevitably achieve waking consciousness on the inner and dimensionally larger world.
 
-Actualizing strongly, she fulfilled her desire, for, viewing the city from the feeling of her wish fulfilled, she matched the state desired and granted that to herself which sleeping men ask of God.
+Actualizing strongly, she fulfilled her desire, for, viewing the city from the feeling of her wish fulfilled, she matched the [state](/glossary#state) desired and granted that to herself which sleeping men ask of [God](/glossary#god).
 
 To realize your desire, an action must start in your imagination, apart from the evidence of the senses, involving movement of self and implying fulfillment of your desire. Whenever it is the action which the outer self takes to appease desire, that desire will be realized.
 

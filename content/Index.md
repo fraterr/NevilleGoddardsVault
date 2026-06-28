@@ -7,7 +7,7 @@ Welcome to the Neville Goddard Vault! This website contains the published works 
 
 Born in Barbados and based in New York City, Neville dedicated his life to understanding and teaching the power of [imagination](/glossary#imagination), faith, and manifestation according to his [mystical interpretation of Christianity](https://en.wikipedia.org/wiki/Christian_mysticism).
 
-Through his accessible lectures and over 10 books, Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and [assumption](/glossary#assumption) to manifest desires.
+Through his accessible lectures and over 10 books, Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use [imagination](/glossary#imagination), attention, and [assumption](/glossary#assumption) to manifest desires.
 
 Neville focused on [the promise](/glossary#the-promise) within Biblical stories and verses, communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
 

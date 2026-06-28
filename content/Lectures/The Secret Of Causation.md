@@ -1,6 +1,6 @@
 # The Secret Of Causation
 
-*"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire; for supreme power, supreme wisdom, and supreme delight, lie in the solution of this great mystery."* [Imagination](/glossary#imagination) is the [Jesus Christ](/lectures/jesus-christ) of scripture, and when you solve [the great mystery](/lectures/the-great-mystery) of imagining, you will have found the cause of the phenomena of life. Imagination is called *"Jehovah"* in the Old Testament and *"Jesus"* in the New, but they are one and the same being. Divine Imagination, containing all, reproduces itself in the human imagination; therefore, [all things exist](/lectures/all-things-exist) in the human imagination. When you solve the problem of imagining, you will have found Jesus [Christ](/glossary#christ), the secret of causation. 
+*"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire; for supreme power, supreme wisdom, and supreme delight, lie in the solution of this great mystery."* [Imagination](/glossary#imagination) is the [Jesus Christ](/lectures/jesus-christ) of scripture, and when you solve [the great mystery](/lectures/the-great-mystery) of imagining, you will have found the cause of the phenomena of life. [Imagination](/glossary#imagination) is called *"Jehovah"* in the Old Testament and *"Jesus"* in the New, but they are one and the same being. Divine Imagination, containing all, reproduces itself in the human imagination; therefore, [all things exist](/lectures/all-things-exist) in the human imagination. When you solve the problem of imagining, you will have found Jesus [Christ](/glossary#christ), the secret of causation. 
 
 Let me share with you two experiences which came to me this past week. The first lady said: "Returning from a wonderful cruise recently, I checked my baggage at La Guardia Airport, bound for Chicago, where I expected to spend a few days with friends. Arriving in Chicago, I discovered that the bag which contained most of my clothes and all of the presents I had bought for my friends and relatives - as well as a locket I had had made from the engagement and wedding band my late husband had given me - was missing. I immediately reported the loss to the airline, but when I arrived in California there was still no trace of it. 
 
@@ -8,7 +8,7 @@ Let me share with you two experiences which came to me this past week. The first
 
 *"When the grandchildren would ask about their presents, I told them that they were on their way, as I never admitted to anyone that the bag was lost. How could I, if I believe what I had imagined? Six weeks later I received a letter from the airline saying: 'If you do not pick up your bag within five days, you will be charged storage.' I picked up the bag to find everything there, and put them all away, just as I had imagined doing."* Then the lady added this thought: *"Love's labor is never lost. Everything in that bag was loved, and I knew that if this principle was true, it would prove itself in the testing - and it did."* 
 
-I can't thank her enough for sharing this experience with me, that I, in turn, may share it with you. Everything is created by the human imagination. There is [no other God](/lectures/no-other-god). You can use your imagination wisely and create a heaven here on earth, or use it foolishly and create the world's havoc; but there is only one power, called the Lord [God](/glossary#god) Jehovah in the Old Testament, and Jesus Christ in the New. 
+I can't thank her enough for sharing this experience with me, that I, in turn, may share it with you. Everything is created by the human imagination. There is [no other God](/lectures/no-other-god). You can use your imagination wisely and create a heaven here on earth, or use it foolishly and create the world's havoc; but there is only one power, called the Lord [God](/glossary#god) Jehovah in the Old Testament, and Jesus [Christ](/glossary#christ) in the New. 
 
 This lady's first impulse was to curse the person who stupidly lost the bag. Then, remembering what she had heard, she tried to revise the letter. When that didn't seem natural, she asked herself what she would do if the bag was now in her possession. Assuming it was there, she did everything she would do if it was a physical fact - and six weeks later it was. 
 
@@ -18,7 +18,7 @@ Now, another lady shared this experience with me: She found herself in a neighbo
 
 The neighbor's second husband had mistreated her, so the Mennonites killed him. Although she tried to tell them that it was wrong to take the life of another, as far as they were concerned it was the right thing to do. He had joined their society and knew their laws, which stated that if a man mistreated a woman, he was to be killed. No matter what argument she used, she could not persuade them that what they had done was wrong. 
 
-In the 16th chapter of the Book of Proverbs you will read: *"All the ways of a man are pure in his own eyes, but God weighs the heart. God has made everything for its purpose, even the wicked for the day of trouble."* Believing in an eye for an eye and a tooth for a tooth, they felt no remorse or guilt for their actions, for in their eyes it was perfect. 
+In the 16th chapter of the Book of Proverbs you will read: *"All the ways of a man are pure in his own eyes, but [God](/glossary#god) weighs the heart. God has made everything for its purpose, even the wicked for the day of trouble."* Believing in an eye for an eye and a tooth for a tooth, they felt no remorse or guilt for their actions, for in their eyes it was perfect. 
 
 Suddenly a limousine appeared and men dressed in black and carrying machine guns entered the house. As she watched, the leader, pointing his gun at the lady, ordered the others to search the house. Then the lady awoke, not to find herself on her bed, but standing in the room of her dream. Suddenly realizing that she was awake in her dream and the action was taking place within her, she stopped the activity, which allowed her to see anyone as alive and independent of her perception, and they all froze. 
 
@@ -114,7 +114,7 @@ Now let us go into the silence.
 ### Belief in Imagination and Creating Reality
 - Believing in one's imagination is believing in God's power and wisdom.
 - Imagination has the power to influence and produce desired outcomes.
-- One must awaken and think from the desired state instead of merely dreaming about it.
+- One must awaken and think from the desired [state](/glossary#state) instead of merely dreaming about it.
 
 ### Changing Thoughts to Change External Reality
 - Changing one's thoughts and beliefs will result in changes in external behavior.

@@ -2,7 +2,7 @@
 
 Recently I read a book called, Vanished Parts of Yesterday, by Lord Frederick Hamilton. In it he tells the story of Catherine the Great - who, when she found the first violet of spring, ordered a sentry to be placed over it to protect it from being plucked. Forgetting to rescind the order, day and night, summer and winter, a sentry stood where 150 years ago, a violet bloomed. The new generation did not know why the sentry was there and he didn't either. It was simply a tradition! 
 
-Make sure no sentry is now standing on your lawn, keeping you from the word of [God](/glossary#god); for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
+Make sure no sentry is now standing on your lawn, keeping you from the word of [God](/glossary#god); for you void the word of [God](/glossary#god) through the traditions of your fathers which have been handed down from generation to generation. 
 
 Now, the spirit of truth) comes to all who will accept it. And the incomplete form of the incarnate revelation will continue until [the spirit of truth](/lectures/the-spirit-of-truth) comes! It has come to this lady whose vision I would like to share with you now. 
 
@@ -28,9 +28,9 @@ You can test God through the act of [Assumption](/glossary#assumption). By assum
 
 I can remember buying a new hat and walking down the streets of New York City thinking everyone knew my hat was new. I was very conscious of my hat and a little embarrassed because of its newness. But when I had worn it long enough to throw it in the closet and unconsciously pick it up again, it was an old hat and I could wear it normally. You may deny this, but if you are honest with yourself you will admit that you are very conscious of a new suit or dress, even though those who meet you may not know or care whether your clothes are old or new. Only you are aware of the clothes you are wearing. 
 
-The same thing is true of an Assumption. At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your Assumption long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
+The same thing is true of an [Assumption](/glossary#assumption). At first your reasoning mind and your outer senses will deny its existence, for your thoughts are new and haven't been broken in yet. But when you wear your Assumption long enough, it becomes comfortable and you feel its naturalness, then it will externalize itself as the world reflects the truth of what you have assumed. 
 
-Remember: the source of all life is [I AM](/glossary#i-am)! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"I AM"*! And there is no other when you say, I am! 
+Remember: the source of all life is [I AM](/glossary#i-am)! We are told that the Lord will speak to man in a dream and make himself known in a vision. The word Lord may cause you to think of another, but the Hebrew word YAD HE VAU HE [pron. *"YOD HEY VAV HEY"*] means *"[I AM](/glossary#i-am)"*! And there is no other when you say, I am! 
 
 The spirit of truth) made himself known to this lady in a vision and will lead her into all things. Trained in the belief of an external God, she has overcome a great deal to receive him. 
 
@@ -38,7 +38,7 @@ Man must overcome the belief in a being outside of self before the spirit of tru
 
 The world rejects this revelation because they do not know the Father. They call him *"Lord"* and worship him as someone external to themselves, not knowing He is within. 
 
-Although you may believe that [Jesus Christ](/lectures/jesus-christ) is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, [Christ](/glossary#christ). Then you will tell those who have been conditioned to believe that Jesus Christ is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
+Although you may believe that [Jesus Christ](/lectures/jesus-christ) is the son of God, when David reveals you as his father you will realize you are Jesus and he is your power-filled son, [Christ](/glossary#christ). Then you will tell those who have been conditioned to believe that Jesus [Christ](/glossary#christ) is the son of God and God is someone other than self, and they will not believe you; for the conditioned mind must be dissolved in order for that individual to realize he is God. 
 
 If David calls me father and he calls you father, are we not one father? If there is only one son, only one God and father of all, and everyone individually has the identical son who calls him father - have we not proved the truth of that wonderful 4th chapter of Ephesians: *"There is only one body, one Spirit, one hope, one Lord, one faith, one baptism, one God and Father of all?"* 
 
@@ -84,9 +84,9 @@ There is no transforming power in what the world calls death. If you are prejudi
 
 It is said that God spoke to Moses, making it appear as though God spoke from without; but God always whispers from within. Knowing God to be himself, when the revelation came, Moses spoke to him face to face and no longer in dream, as told us in the 12th chapter of Numbers. 
 
-Test my words, for I know the human imagination is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your Assumption. Don't make them see you; let them see the change! 
+Test my words, for I know the human [imagination](/glossary#imagination) is God. Call forth your desire by calling it forth with God's name. Decide what you want and ask yourself what it would be like and how you would feel if it were true. Then dare to assume you have it. Let the people who know you now see you after your Assumption. Don't make them see you; let them see the change! 
 
-Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that [feeling](/glossary#feeling) as you now wear your present body of belief. Continue to wear that new state and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
+Think of the world as a sounding box, echoing and reflecting what you have assumed. Listen to your friends comment on your change. See their faces expressing their pleasure on your good fortune. Wear that [feeling](/glossary#feeling) as you now wear your present body of belief. Continue to wear that new [state](/glossary#state) and in no time at all your desire will objectify itself and become a fact in your world. Then you will know who the cause of the phenomena of life really is. 
 
 There is only one source. The world calls it God. That is a lovely name, but don't forget that God is your awareness! No one can see I am! They see what I tell them that I am. I walk the earth and they see that I am a man wearing a gray suit. I tell them where I live, and they know the names of my father and mother, sister and brothers; but these are only covers for the being that I am, as no one can see my true identity on this level. They only see my metamorphosis. 
 

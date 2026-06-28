@@ -2,13 +2,13 @@
 
 The Bible is addressed to the [Imagination](/glossary#imagination) - which is [spiritual sensation](/lectures/spiritual-sensation) - and only immediately to the understanding, or reason.   
   
-In the fifth chapter of the Book of Ephesians we are told to: *"Awake O sleeper and rise from the dead."* Now, reason could never comprehend these words, but the Bible is calling upon Imagination to awaken, telling Him that he is sleeping, dreaming his world into being. But Imagination, now a rational being, does not know this and therefore cannot believe it.   
+In the fifth chapter of the Book of Ephesians we are told to: *"Awake O sleeper and rise from the dead."* Now, reason could never comprehend these words, but the Bible is calling upon [Imagination](/glossary#imagination) to awaken, telling Him that he is sleeping, dreaming his world into being. But Imagination, now a rational being, does not know this and therefore cannot believe it.   
   
 All of the commands of scripture are addressed to and fulfilled by the Lord, who is all Imagination! It is your own wonderful human Imagination who is called upon to *"Rouse thyself! Why sleepest thou, O Lord? Awake!"* ([Psalms 44](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))   
   
 The greatest confession of faith man has ever received through revelation is called the Sh'ma. It is recorded in the 6th chapter of Deuteronomy as: *"Hear O Israel, the Lord our [God](/glossary#god), the Lord is one."* The Lord spoken of here is the Elohim, which is a compound unity of one, made up of others. I know, for I have stood in His presence. He embraced me and incorporated me into His body. Since that day back in 1929, I have been one with the body of the Risen Lord.   
   
-I believe we are the gods spoken of in the 82nd Psalm, which is quoted in the tenth chapter of John as: *"God has taken his place in the Divine Assembly. In the midst of the gods he holds judgment, saying: ‘You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you shall die as men and fall as one man, O princes.’"* You will notice that this statement begins in the past, claiming men are gods, sons of the Most High. Then the future is prophesied as: "You will fall as one man.”   
+I believe we are the gods spoken of in the 82nd Psalm, which is quoted in the tenth chapter of John as: *"[God](/glossary#god) has taken his place in the Divine Assembly. In the midst of the gods he holds judgment, saying: ‘You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you shall die as men and fall as one man, O princes.’"* You will notice that this statement begins in the past, claiming men are gods, sons of the Most High. Then the future is prophesied as: "You will fall as one man.”   
   
 This fall was not a punishment, but a plan - a pretense by an assumed appearance in order to conceal the real intention, which is an expansion of further existence and ultimate birth! Having chosen us in Himself before the foundation of the world, one man fell, fragmenting itself into the unnumbered men that now appear. We are the gods in disguise who do not recognize our brothers, or ourselves.   
   
@@ -26,7 +26,7 @@ That's how the mind of man thinks. Thinking of an external thing made with human
   
 Eve is your temple, your emanation, and your wife till the sleep of death is past. She is your soul, which God (Imagination) cleaves to and has become one with. There is no other Eve.   
   
-Falling in one body, you entered your cave and met your savior in the grave. Some found a female garment there and some a male, woven with care. I found a male garment. My wife found a female garment, but she is not female and I am not male, for in [Christ](/glossary#christ) there is no male or female, no bond or free, no Greek or Jew, no black or white. Being one with Christ, you - all imagination - are above the organization of eternal death.   
+Falling in one body, you entered your cave and met your savior in the grave. Some found a female garment there and some a male, woven with care. I found a male garment. My wife found a female garment, but she is not female and I am not male, for in [Christ](/glossary#christ) there is no male or female, no bond or free, no Greek or Jew, no black or white. Being one with [Christ](/glossary#christ), you - all imagination - are above the organization of eternal death.   
   
 In his great work called *"Jerusalem,"* Blake speaks of the sleep of Albion and his passage through eternal death - which is life as we know it. This world seems to be endless and without purpose, for when a rich man dies, he leaves his wealth behind. And when a poor man dies he is placed in a pauper's grave. But given the same length of time, their bodies will turn into dust and bones, and no one will be able to distinguish one bone from the other.   
   

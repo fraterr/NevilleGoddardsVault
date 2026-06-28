@@ -4,7 +4,7 @@ Christianity is the fulfillment of Judaism, the fulfillment of all that was prop
 
 In the 18th chapter of the Book of John, Pilate said: *"So you are a king?"* and Jesus replied: *"You say that I am, but my kingdom is not of this world. For this I was born. For this I came into the world, to bear witness to the truth."* Then Pilate asked: *"What is truth?"* and when there was no response, Pilate left, saying: *"I find nothing in this man worth condemnation."* Having already claimed: I am the truth, and my word is truth, here we find Jesus making the claim: I came to bear witness to the truth. 
 
-Peter tells us that *"The prophets who prophesied of the grace that was to be yours searched and inquired concerning this salvation. They inquired what person or time was indicated by the spirit of [Christ](/glossary#christ) in them, when predicting the suffering of Christ and the subsequent glory. It was revealed to them that they were serving not themselves, but you."* 
+Peter tells us that *"The prophets who prophesied of the grace that was to be yours searched and inquired concerning this salvation. They inquired what person or time was indicated by the spirit of [Christ](/glossary#christ) in them, when predicting the suffering of [Christ](/glossary#christ) and the subsequent glory. It was revealed to them that they were serving not themselves, but you."* 
 
 The prophets were doing a work, the full import of which was in [the promise](/glossary#the-promise). They were conditioned to hear - and quite often to see - the word of [God](/glossary#god). Although they recorded what they heard, they did not understand the writing. Daniel declared: *"I heard but did not understand."* Then he was told to *"Shut up the words and seal the book until the time of the end."* The time when the word, embodied in flesh, unfolds in a man who - having broken the seal - interprets the written word from experience. He came into the world and the world knew him not. Even today the word is still misunderstood. 
 
@@ -17,7 +17,7 @@ I stand before you knowing the truth, and it is not as it will be re-enacted thi
 
 The only Bible that the early Christians had was the Old Testament. Those who wrote the New Testament were called *"the people of the way"*. Do you know who they were? Jews! Although the unknown authors of the books Matthew, Mark, Luke, and John were Jews, they did not confess that they were, like Paul did. Paul's 13 letters, which form the bulk of the New Testament, came first. It was he who said; *"I am a Jew, a child of Abraham of the tribe of Jacob."* Paul never denied his Jewish ancestry, yet he laid the foundation of the Christian faith. Man forgets this, and thinks the Old and New Testaments represent two religions; but there is only one religion, whose foundation is Judaism and fulfillment (like the fruit appearing on a tree) is Christianity. 
 
-This is the greatest story that has ever been told. The crucifixion is over. I know, for [I remember when](/lectures/i-remember-when) I - a whirling vortex - crucified myself upon this body called Neville at six points: the hands, the feet, the head, and the right side. The Word of God, who is God, is nailed to your body by whirling vortices. This is the same Word who was in the beginning with God and was God. There was meaning in that Word, a plan, and a purpose, which was revealed to you before the world began. This is not some emergency thinking on the part of God; he chose us in him before that the world was! 
+This is the greatest story that has ever been told. The crucifixion is over. I know, for [I remember when](/lectures/i-remember-when) I - a whirling vortex - crucified myself upon this body called Neville at six points: the hands, the feet, the head, and the right side. The Word of [God](/glossary#god), who is God, is nailed to your body by whirling vortices. This is the same Word who was in the beginning with God and was God. There was meaning in that Word, a plan, and a purpose, which was revealed to you before the world began. This is not some emergency thinking on the part of God; he chose us in him before that the world was! 
 
 Christ is in us, crucified on our body. He became a slave that your body may be alive, and he will wear that body until he awakens. The body you now wear can be cremated and therefore gone from the mortal eye; yet you, its wearer, are still very much alive, continuing your act of slavery in a body just like the one you now wear. In my own case, however, I will not wear a body of death any longer; for the Word has erupted within me. I know scripture is true from beginning to end, for I have experienced it. I also know that those in whom it has not erupted will find themselves restored to life. 
 
@@ -128,7 +128,7 @@ Now let us go into the silence.
 - Only one who has fulfilled the Word can interpret scripture.
 
 ### Crucifixion and Resurrection
-- The crucifixion did not happen on a physical cross but on the living tree of the human imagination.
+- The crucifixion did not happen on a physical cross but on the living tree of the human [imagination](/glossary#imagination).
 - The Lord God Jehovah is the body of humanity.
 - The drama of salvation is concentrated in the Easter celebration.
 

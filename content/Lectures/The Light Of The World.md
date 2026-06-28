@@ -4,7 +4,7 @@ In all the revelations which await you, there is none so fundamental as the reve
 
 He who awakens in you is the Lord Jesus [Christ](/glossary#christ), but he is unseen by the mortal eye. As an individual the world knows you by your records. They know your date of birth, your parents, your brothers and sisters. Your friends know your weaknesses and limitations, but no one can know the being who awakens within you until the revelation is theirs.
 
-Tonight I will try to show you the Lord Jesus Christ, for he is your true identity. His most fantastic claim: *"I am the light of the world"* was not claimed by one little individual, but by the universal being who is the life of every child born of woman. 
+Tonight I will try to show you the Lord Jesus [Christ](/glossary#christ), for he is your true identity. His most fantastic claim: *"I am the light of the world"* was not claimed by one little individual, but by the universal being who is the life of every child born of woman. 
 
 The mortal mind, unable to understand this statement, questioned him, asking him to tell them who he really was and he answered: *"Even what I have told you from the beginning."* The beginning of what? The year 1 A.D.? No. Before that the world was, you and I were told that we would descend into and experience death. Then we would return, enhanced by reason of our experiences.
 
@@ -38,7 +38,7 @@ The day is coming when you will feel an activity within you, arrest it, and see 
 
 Jesus cannot be known or proved to exist externally. Only the incurrent eyewitnesses can know him. Only those whose immortal eyes are opened inward into the world of thought will see the truth of which I speak, for I have awakened from the dream of life and know myself to be the light of the world. 
 
-This is a fantastic claim, one I know you are going to experience. The day will come when you will know you are not only the light of the world, but that you are the sender of infinite, pulsing, living light of which there is no circumference. As light you will be pure, as not a thing will be in it; no worlds, no suns, no planets - but nothing! Just you, and you are infinite light. You will see me as light, yet we will know one another as beings of love, for God is love and in that awareness we are one with God.
+This is a fantastic claim, one I know you are going to experience. The day will come when you will know you are not only the light of the world, but that you are the sender of infinite, pulsing, living light of which there is no circumference. As light you will be pure, as not a thing will be in it; no worlds, no suns, no planets - but nothing! Just you, and you are infinite light. You will see me as light, yet we will know one another as beings of love, for [God](/glossary#god) is love and in that awareness we are one with God.
 
 Everything said of Jesus Christ in scripture you are going to experience, and those whose eye is opened inward into the world of thought will see you clothed in the garments of love, of power, of wisdom, and of light. 
 
@@ -160,7 +160,7 @@ Now let us go into the silence.
 ### Accepting Jesus Christ on Faith
 
 - Accept Jesus Christ on faith, even though He may be unknown.
-- Receive the spirit through faith, not through works of the law.
+- Receive the spirit through faith, not through works of [the law](/glossary#the-law).
 - Do not think of Jesus as a physical being, as flesh and blood cannot inherit the kingdom of heaven.
 
 ### The Unveiling of the Light Within

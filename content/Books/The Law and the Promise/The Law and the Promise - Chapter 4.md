@@ -10,7 +10,7 @@ Fable enacted as a sort of stage-play in the mind is what causes the physical fa
 
 Man believes that reality resides in the solid objects he sees around him, that it is in this world that the drama of life originates, that events spring suddenly into existence, created moment by moment out of antecedent physical facts.
 
-But causation does not lie in the external world of facts. The drama of life originates in the [imagination](/glossary#imagination) of man. The real act of becoming takes place within man's imagination and not without.
+But causation does not lie in the external world of facts. The drama of life originates in the [imagination](/glossary#imagination) of man. The real act of becoming takes place within man's [imagination](/glossary#imagination) and not without.
 
 The following stories could define *"causation"* as the assemblage of mental states, which occurring, creates that which the assemblage implies.
 
@@ -101,7 +101,7 @@ E.B., an author, is fully aware that *"today's fiction can become tomorrow's fac
 
 "The heroine of my story took a vacation trip to Vermont. To the small city of Stowe, Vermont, to be exact. When she reached her destination she was faced with such unpleasant behavior on the part of her companion that she either had to continue her lifetime pattern of allowing another's selfish demand dominate her or to break that pattern and leave. She broke it and returned to New York. When she returned (and the story continues) events took shape in a proposal of marriage which she happily accepted.
 
-*"For my part of this tale... as small events evolved... I began to remember the dictates of my own pen and in significant relationship. This is what happened to me! I received an invitation from a friend offering me a vacation at her summer place in Vermont. I accepted and was not startled, at first, when I learned her 'summer place' was in the city of Stowe. When I arrived, I found my hostess in such a highly nervous state I realized I was faced with either a wretched summer or the choice of 'walking out' on her. Never before in my life had I been strong enough to ignore what I thought were the claims of duty and friendship — but this time I did and without ceremony returned to New York. A few days after I returned to my home, I, too, received a proposal of marriage. But at this point fact and fiction parted. I refused the offer! I know, Neville, there is no such thing as fiction."* ...E.B.
+*"For my part of this tale... as small events evolved... I began to remember the dictates of my own pen and in significant relationship. This is what happened to me! I received an invitation from a friend offering me a vacation at her summer place in Vermont. I accepted and was not startled, at first, when I learned her 'summer place' was in the city of Stowe. When I arrived, I found my hostess in such a highly nervous [state](/glossary#state) I realized I was faced with either a wretched summer or the choice of 'walking out' on her. Never before in my life had I been strong enough to ignore what I thought were the claims of duty and friendship — but this time I did and without ceremony returned to New York. A few days after I returned to my home, I, too, received a proposal of marriage. But at this point fact and fiction parted. I refused the offer! I know, Neville, there is no such thing as fiction."* ...E.B.
 
 *"Forgetful is green earth, the gods alone remember everlastingly... by their great memories the gods are known."* (George Meredith, *"Ballads And Poems Of Tragic Life"*)
 

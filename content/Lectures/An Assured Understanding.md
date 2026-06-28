@@ -1,12 +1,12 @@
 # An Assured Understanding
 
-In Paul’s letter to the Colossians, he said: *"I strive for you to have the riches of an assured understanding and [the knowledge of God](/lectures/the-knowledge-of-god)’s mystery of [Christ](/glossary#christ)."* Now, you may think there is no mystery to Christ and believe - as any Christian believes - that Christ is Jesus, the son of [God](/glossary#god); but Paul doesn’t [state](/glossary#state) that. What Paul is trying to do is change your fixed ideas of the past, in order for you to have the same assured understanding and knowledge of God’s mystery of Christ that he has.
+In Paul’s letter to the Colossians, he said: *"I strive for you to have the riches of an assured understanding and [the knowledge of God](/lectures/the-knowledge-of-god)’s mystery of [Christ](/glossary#christ)."* Now, you may think there is no mystery to [Christ](/glossary#christ) and believe - as any Christian believes - that Christ is Jesus, the son of [God](/glossary#god); but Paul doesn’t [state](/glossary#state) that. What Paul is trying to do is change your fixed ideas of the past, in order for you to have the same assured understanding and knowledge of [God](/glossary#god)’s mystery of Christ that he has.
 
 Paul tells us that Christ is our human life. Now, if you took all of your experiences throughout all of the generations and condensed them into a single youth, it would be David. It is he in whom the Christ-seed flows. This is the same David who was anointed by the Lord and told that he would bring forth a son who would become the Lord’s son, being one with the Lord. In other words, David will bring forth a being who is his Father. That is the mystery.
 
 Housed in you, a human being, is the Christ-seed, which will bud and flower into fulfillment as Jesus the Lord. Until David is formed in you, you can describe [Christ in man](/lectures/christ-in-man)y ways, but *"No one can say ‘Jesus is Lord’ except by the Holy Spirit."* This is true, for the Holy Spirit brings to your remembrance all that you were told in the beginning.
 
-To understand this, let us look at the parable of the prodigal son. In the story, the one who remained at home complained, because when the son who entered the prodigal state returned, the father killed the fatted calf, and gave him the robe and ring. He was given shoes for his feet and much was made over him. Then the father said: *"Son, all that is mine is yours. It is right that we should make merry and be glad for this your brother was dead and he is alive, he was lost and is found."*
+To understand this, let us look at the parable of the prodigal son. In the story, the one who remained at home complained, because when the son who entered the prodigal [state](/glossary#state) returned, the father killed the fatted calf, and gave him the robe and ring. He was given shoes for his feet and much was made over him. Then the father said: *"Son, all that is mine is yours. It is right that we should make merry and be glad for this your brother was dead and he is alive, he was lost and is found."*
 
 May I tell you: before you entered this world of tribulation and death you were God the Father, but you did not know it. You had to come into this experience in order to know that the world is yours and all within it. And, since it is all the Father’s, the only way you can know it is all yours is to become the Father. You could own the earth, but if you did not know everything in it was [yours for the taking](/lectures/yours-for-the-taking), you could die of starvation, not knowing how to appropriate it.
 
@@ -64,7 +64,7 @@ Many years ago I had a vision to illustrate this point. I came upon an enormous 
 
 This is the story of scripture, but man is unaware of his inheritance until he is born from above. From then on he will not be concerned with making an effort to bring his desires into reality; he will know they already are real.
 
-But until that day, apply the law towards any desire of your heart by assuming you have it. Sleep as though it were true and it will be drawn to you. Keep on applying the law towards these many ends until the Christ-seed bursts into bloom. And when it does, your fleshly body will come off for the last time for you will know you are the Lord Jesus. No one can say that Jesus is Lord except by the Holy Spirit, and when the Holy Spirit comes he will bring to your remembrance all the things that I have told you by re-enacting the drama within you.
+But until that day, apply [the law](/glossary#the-law) towards any desire of your heart by assuming you have it. Sleep as though it were true and it will be drawn to you. Keep on applying the law towards these many ends until the Christ-seed bursts into bloom. And when it does, your fleshly body will come off for the last time for you will know you are the Lord Jesus. No one can say that Jesus is Lord except by the Holy Spirit, and when the Holy Spirit comes he will bring to your remembrance all the things that I have told you by re-enacting the drama within you.
 
 Having seen the preview of the play before the journey began, when the end comes you will enter the play to discover you are God the Father.
 
@@ -115,7 +115,7 @@ Now let us go into the silence.
 - The Christ-seed will burst into bloom, and we will know ourselves as the Lord Jesus.
 
 eality.
-- By assuming that we already have what we desire and sleeping in that Assumption, we will attract it to us.
+- By assuming that we already have what we desire and sleeping in that [Assumption](/glossary#assumption), we will attract it to us.
 - The Christ-seed will burst into bloom, and we will know ourselves as the Lord Jesus.
 
 esus.

@@ -6,7 +6,7 @@ These six days are not twenty-four-hour periods of time.
 
 They symbolize the psychological moment a definite subjective [state](/glossary#state) is fixed.
 
-These six days of work are subjective experiences, and consequently cannot be measured by sidereal time, for the real work of fixing a definite psychological state is done in consciousness.
+These six days of work are subjective experiences, and consequently cannot be measured by sidereal time, for the real work of fixing a definite psychological [state](/glossary#state) is done in consciousness.
 
 The time spent in consciously defining yourself as that which you desire to be is the measure of these six days.
 
@@ -16,13 +16,13 @@ The true meaning of six days of work (creation) is revealed in the mystery of th
 
 As previously explained in the mystery of the name of Jehovah, VAU means to nail or join.
 
-The creator is joined to his creation through [feeling](/glossary#feeling); and the time that it takes you to fix a definite feeling is the true measure of these six days of creation.
+The creator is joined to his creation through [feeling](/glossary#feeling); and the time that it takes you to fix a definite [feeling](/glossary#feeling) is the true measure of these six days of creation.
 
 Mentally separating yourself from the objective world and attaching yourself through the secret of feeling to the subjective state is the function of the sixth letter of the Hebrew alphabet, VAU, or the six days of work.
 
 There is always an interval between the fixed impression, or subjective state, and the outward expression of that state.
 
-The interval is called the Sabbath.
+The interval is called the [Sabbath](/glossary#sabbath).
 
 The Sabbath is the mental rest which follows the fixed psychological state; it is the result of your six days of work.
 
@@ -64,7 +64,7 @@ The Sabbath or rest which will be broken by the embodiment of the idea will soon
 
 Man has been stirred out of his sleep through the medium of desire, and can find no rest until he realizes his desire.
 
-But before he can enter into the rest of God, or keep the Sabbath, before he can walk unafraid and at peace, he must become a good spiritual marksman and learn the secret of hitting the mark or working six days – the secret by which he lets go the objective state and adjusts himself to the subjective.
+But before he can enter into the rest of [God](/glossary#god), or keep the Sabbath, before he can walk unafraid and at peace, he must become a good spiritual marksman and learn the secret of hitting the mark or working six days – the secret by which he lets go the objective state and adjusts himself to the subjective.
 
 This secret was revealed in the divine name Jehovah, and again in the story of Isaac blessing his son Jacob. If man will apply the formula as it is revealed on these Bible dramas he will hit a spiritual bull’s eye every time, for he will know that the mental rest or Sabbath is entered only as he succeeds in making a psychological adjustment.
 
@@ -90,7 +90,7 @@ You deny the evidence of the senses and begin to feel subjectively the joy of be
 
 The fixing of this subjective state – the crucifixion – takes place on the sixth day. Before the sun sets on this day you must have completed the fixation by feeling – *"It is so"* – *"It is finished."*
 
-The subjective knowing is followed by the Sabbath or mental rest. You will be as one buried or entombed for you will know that no matter how mountainous the barriers, how impassable the walls appear to be, your crucified and buried savior (your present subjective fixation) will resurrect himself. By keeping the Sabbath a period of mental rest, by assuming the attitude of mind that would be yours if you were already visibly expressing this freedom, you will receive the promise of the Lord, for the Word will be made flesh – the subjective fixation will embody itself. *"And God did rest the seventh day from all His works"* ([Hebrews 4:4](https://www.biblegateway.com/passage/?search=Hebrews+4:4&version=KJV)).
+The subjective knowing is followed by the Sabbath or mental rest. You will be as one buried or entombed for you will know that no matter how mountainous the barriers, how impassable the walls appear to be, your crucified and buried savior (your present subjective fixation) will resurrect himself. By keeping the Sabbath a period of mental rest, by assuming the attitude of mind that would be yours if you were already visibly expressing this freedom, you will receive [the promise](/glossary#the-promise) of the Lord, for the Word will be made flesh – the subjective fixation will embody itself. *"And God did rest the seventh day from all His works"* ([Hebrews 4:4](https://www.biblegateway.com/passage/?search=Hebrews+4:4&version=KJV)).
 
 Your consciousness is God resting in the knowledge that – *"It is well"* – *"It is finished."* And your objective senses shall confirm that it is so for the day shall reveal it.
 

@@ -1,6 +1,6 @@
 # The Source
 
-Man is seeking the source, the cause, of the phenomena of life. In his search, he grows and outgrows his many concepts of [God](/glossary#god) until he finds the one God he can never outgrow, and therefore can never lose. That is the God which he finds in a first person, present tense experience. 
+Man is seeking the source, the cause, of the phenomena of life. In his search, he grows and outgrows his many concepts of [God](/glossary#god) until he finds the one [God](/glossary#god) he can never outgrow, and therefore can never lose. That is the God which he finds in a first person, present tense experience. 
 
 Here is a true story that verges on this truth. While a friend was shaving, his little girl watched, and questioning him, asked: *"Where does God really live?"* and he absent mindedly answered: *"In the well."* Laughing at his silly answer, the little girl ran to tell her mother. At breakfast that morning when his wife asked why he had made such a statement, he could not answer, but later that day he remembered. 
 
@@ -22,7 +22,7 @@ I am not speaking of your mortal head. It is only a symbol, a reflection of your
 
 Man finds it difficult to believe he is the cause of all life, yet I say there is no other. Look into the eye of your friend - or enemy - and you will see only yourself. You will see Jacob, the apple (little man) of God's eye. 
 
-Imagination (God) is forever seeing himself reflected in the world, just as you, looking into the eye of another, see your reflected self. So the little boy looked into the well, and upon seeing his reflection said: *"It's me,"* and the wise man replied: *"Ah, now you know who God is."* 
+[Imagination](/glossary#imagination) (God) is forever seeing himself reflected in the world, just as you, looking into the eye of another, see your reflected self. So the little boy looked into the well, and upon seeing his reflection said: *"It's me,"* and the wise man replied: *"Ah, now you know who God is."* 
 
 Man can be told over and over again that he is not going to find God as another, but he cannot believe it until that pattern buried in the head unfolds. Then and only then will he know beyond all doubt who God is. 
 
@@ -34,7 +34,7 @@ Having seen the face of radiant love, and being incorporated into the body of lo
 
 Having revealed himself to me, he and I became one in a first person, singular, present tense experience. Then everything said of the pattern man we call Jesus, unfolded in me; and I now say, without embarrassment or any bowing of the head, I am He. As long as I continue to wear my frail little body of flesh and blood I cannot claim my heavenly inheritance, but I know it will be instantly mine when I leave this body for the last time. 
 
-There is conferred upon the Risen [Christ](/glossary#christ), in the experience of men, the divine name of Lord. When Philip said: *"O Lord, show us the Father and we will be satisfied,"* the Risen Christ replied: *"I have been so long with you and yet you do not know me? He who has seen me, has seen the Father."* This experience takes place after the resurrection, for the divine name of Lord is placed upon the Risen Christ. 
+There is conferred upon the Risen [Christ](/glossary#christ), in the experience of men, the divine name of Lord. When Philip said: *"O Lord, show us the Father and we will be satisfied,"* the Risen [Christ](/glossary#christ) replied: *"I have been so long with you and yet you do not know me? He who has seen me, has seen the Father."* This experience takes place after the resurrection, for the divine name of Lord is placed upon the Risen Christ. 
 
 This story is told as though a man of flesh and blood is speaking, but it is not. Scripture is completely supernatural. The discovery of God is supernatural, for he reveals himself only to the one who has the experience. And when you tell it, those who hear either believe your story or they disbelieve it. If someone has a concept of God as a little physical man, that concept must be outgrown; and man must grow and grow before he can comprehend what you are saying. So maybe those who hear your words can't take it, but do not despair; continue to tell it and maybe one percent of those present will grasp it. It doesn't matter how many can hear with understanding, you offer it anyway. 
 
@@ -62,7 +62,7 @@ John emphasizes over and over again that you must believe you are the one you wo
 
 When your belief becomes a fact and appears solidly real on the outside, it is because it is supported by you on the inside. The day you cease to believe in it, it will fade, for everything must be built on the foundation of belief. I believe I am a success. I will remain a success only to the extent that I continue to believe I am. The day I stop believing, failure enters and success fades. 
 
-You must believe you are in a certain state. You cannot forget it if you want to externalize that state. You may drop it after reaching a certain point, but if you want to keep it alive, you must do it within yourself; for nothing comes into being unsupported by an imaginal act, and nothing remains unless supported by that act. The day imaginal support is withdrawn the thing begins to vanish, and ceases to be in your world. This is true for a marriage, a friendship, or a business. 
+You must believe you are in a certain [state](/glossary#state). You cannot forget it if you want to externalize that state. You may drop it after reaching a certain point, but if you want to keep it alive, you must do it within yourself; for nothing comes into being unsupported by an imaginal act, and nothing remains unless supported by that act. The day imaginal support is withdrawn the thing begins to vanish, and ceases to be in your world. This is true for a marriage, a friendship, or a business. 
 
 If you know what you want, give it to yourself, for there is only one source of causation. That source is God. He is the dreamer in you who will awaken from this wonderful dream of life; and when he does, you will realize you have been dreaming all along. Many great poets have tried to tell this, but man cannot comprehend that the poet - in touch with a deeper layer of his own being - was awakened and recorded his experiences, until it happens in the individual. 
 
@@ -74,7 +74,7 @@ Figuring it out to the penny and believing she would be paid in cash, this lady 
 
 The next day, while in her room at a hotel on 34th street, her telephone rang and she was advised that a gentleman was downstairs and wanted to see her. She had never met this man before, but knew his reputation, and certainly never dreamed of him calling her. But she met him in the lobby, where they discussed business on the terms that she would be more and more the designer and less and less the seamstress. She then named the salary that we had discussed, and when he agreed, she promised to start working for him the following Monday. One week later, when she opened her envelope, she counted her money out to the very penny she had imagined only a week before. Now, how can you call that coincidence? She was eager to make a change and - believing - she played the part of Isaac. 
 
-Isaac was blind. He could not see, but he could feel. Knowing one son was covered with hair while the other had none, Isaac desired the one he could touch with [feeling](/glossary#feeling). When Jacob approached, clothed in hair, Isaac said: *"Although your voice sounds like Jacob, you feel like Esau."* Then, basing his conviction upon feeling rather than sound, Isaac gave his son Jacob the right of birth. And when Esau returned to discover that his brother had deceived his father, Isaac said: *"I have given him your blessing and I cannot take it back."* 
+Isaac was blind. He could not see, but he could feel. Knowing one son was covered with hair while the other had none, Isaac desired the one he could touch with [feeling](/glossary#feeling). When Jacob approached, clothed in hair, Isaac said: *"Although your voice sounds like Jacob, you feel like Esau."* Then, basing his conviction upon [feeling](/glossary#feeling) rather than sound, Isaac gave his son Jacob the right of birth. And when Esau returned to discover that his brother had deceived his father, Isaac said: *"I have given him your blessing and I cannot take it back."* 
 
 This lady gave her blessing to a better job and more money. Clothing it in tones of reality, she felt its existence and gave it the right to be born. This she did on Friday, and the very next day the new state came into being. 
 

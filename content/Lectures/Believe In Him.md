@@ -20,11 +20,11 @@ To believe in a man? No. The Lord Jesus is only a pattern of salvation which is 
 
 You may think that the few hundred or thousand people I have told would mean nothing against three billion people in the world; but I know a remnant has been prepared, and they believe. That is all that is needed. Having heard, their belief causes it to happen in them; and salvation’s story spreads once more, until those without vision organize and make a business out of it. Then it will once more grow barnacles and become a tradition, minus the spirit.
 
-In 1929 I did not volunteer, but was called. I stood in the presence of Infinite Love, who incorporated me into his body. I was sent as love - the body of the Risen Lord - back to a physical garment which is fragile, to tell those who are equally fragile that God is their own wonderful human [imagination](/glossary#imagination). Many, knowing my biological background, my large family with its limitations, reject my words. A few, however, have accepted them, and to that remnant it will happen.
+In 1929 I did not volunteer, but was called. I stood in the presence of Infinite Love, who incorporated me into his body. I was sent as love - the body of the Risen Lord - back to a physical garment which is fragile, to tell those who are equally fragile that [God](/glossary#god) is their own wonderful human [imagination](/glossary#imagination). Many, knowing my biological background, my large family with its limitations, reject my words. A few, however, have accepted them, and to that remnant it will happen.
 
 So what must you do to be doing the work of God? Believe in him whom He has sent. I tell you He has sent me. You may or may not believe me, that is your privilege. But I tell you: the experience so changed me that I have walked by faith in this vision through the mire of doubt, even when it came from my intimate circle.
 
-One is first called, incorporated into the body of love, and then sent. This goes on eternally until all are redeemed, for not one will be lost. Just as by Adam all die, so also by [Christ](/glossary#christ) shall all be made alive. This Christ is a pattern of the eternal purpose of God, for there is only one way to escape this world.
+One is first called, incorporated into the body of love, and then sent. This goes on eternally until all are redeemed, for not one will be lost. Just as by Adam all die, so also by [Christ](/glossary#christ) shall all be made alive. This [Christ](/glossary#christ) is a pattern of the eternal purpose of God, for there is only one way to escape this world.
 
 The pattern begins by your birth as spirit. This is followed by the discovery of the fatherhood of God. Your spiritual body will be torn from top to bottom as you ascend into heaven. And the symbol of the Holy Spirit will descend upon you to smother you with love, completing the pattern.
 
@@ -58,7 +58,7 @@ I did not choose to be sent. When I fell asleep that night, I would have been th
 
 But God does not see what man sees. God sees the heart. He sees the motive behind the act, never the outer picture. Was the thought brought forth in love, or to get even? Was its motive to inflict pain, or to express love? God sees the heart, and when He judges it as pure, that individual is called.
 
-In 1929 I was called, and for thirty years I only taught the law. [The promise](/glossary#the-promise) was there in scripture, but I did not know it until it erupted in me thirty years later. From that moment on I could do nothing but think about it, talk about it, and share my experiences of it; for that is what I was sent to do.
+In 1929 I was called, and for thirty years I only taught [the law](/glossary#the-law). [The promise](/glossary#the-promise) was there in scripture, but I did not know it until it erupted in me thirty years later. From that moment on I could do nothing but think about it, talk about it, and share my experiences of it; for that is what I was sent to do.
 
 My genealogy is known. My biological background - my father, mother, brothers, and sister, as well as my lack of education - is known; yet it is all recorded in scripture. When I shared my experiences with my family, they rejected them one hundred percent! My earthly father came the closest to understanding. One day a minister was at the house, and when he could not answer my questions, or throw any light upon my visions, my father said: *"Son, you must be an apostle."* My mother felt it in her womb when I was coming into this world; but she had no confirmation, as I became a dancer - and she had thought I would be a minister in the Anglican church.
 
@@ -66,7 +66,7 @@ But I tell you: this is the only way to salvation. Don’t believe in Neville. H
 
 I am told I am not discriminating enough, for I can find nothing to condemn. I do, however, admit to all of my weaknesses of the human flesh; yet in spite of that I was called and sent. At the time I did not know God’s purpose; but after his message erupted within me, I knew I was sent to refresh the atmosphere, and clean it up after centuries of misunderstanding of the Christian mystery.
 
-Christianity fulfills the promise of Judaism. Fulfilling the pattern called Jesus, we are gathered one by one into that one resurrected man, to be that one being in Christ. I don’t care what name you bear on earth, you will be sent as Jesus. You will play his part and share your experiences with all who will listen. Do not elaborate; but tell them that unless they believe, it will not happen to them and they will remain in the world of death.
+Christianity fulfills [the promise](/glossary#the-promise) of Judaism. Fulfilling the pattern called Jesus, we are gathered one by one into that one resurrected man, to be that one being in Christ. I don’t care what name you bear on earth, you will be sent as Jesus. You will play his part and share your experiences with all who will listen. Do not elaborate; but tell them that unless they believe, it will not happen to them and they will remain in the world of death.
 
 It is not enough to believe only that Christ existed. That is like saying to a friend: *"I believe you exist."* What an insult! The question is: do you trust Christ? Do you believe in him? Now I - a man - tell you the story of salvation as I have experienced it. Do you believe in my story? If you do, you believe in me; then forget all you hear about me as a man.
 
@@ -126,8 +126,8 @@ Now let us go into the silence.
 ### Believing in Two Stories
 
 - Belief in both the world of Caesar (material reality) and the world of God (spiritual reality) is necessary.
-- Assuming the feeling of the wish fulfilled on the material level can lead to its manifestation.
-- Applying the law of Assumption and believing in the incredible story of spiritual birth will lead to salvation.
+- Assuming the [feeling](/glossary#feeling) of the wish fulfilled on the material level can lead to its manifestation.
+- Applying the law of [Assumption](/glossary#assumption) and believing in the incredible story of spiritual birth will lead to salvation.
 
 ### True Belief
 

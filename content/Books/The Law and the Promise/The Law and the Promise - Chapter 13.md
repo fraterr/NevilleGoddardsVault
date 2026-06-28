@@ -13,7 +13,7 @@ Life on earth is a kindergarten for image making. The bigness or littleness of t
 The following stories are concerned with the acquiring of seemingly little things, or 'toys' as I call them, but they are important because of the clear imaginal images that created the toys. The author of the first story is one of whom it is said, 'she has everything'. This is true. She has financial, social and intellectual security.
 
 She writes:
-"As you know, through your teaching and through my practice of that teaching, I have completely changed myself and my life. Two weeks ago when you spoke of 'toys', I realized I had never used my imagination for the getting of 'things' and I decided it would be fun to try it. You told of a young woman who was given a hat by merely wearing that hat in her imagination. The last thing on earth I needed was a hat, but I wanted to test my imagination for this 'getting of things', so I selected a hat pictured in a fashion magazine. I cut the picture out and stuck it on the mirror of my dressing table. I studied the picture carefully. Then, I shut my eyes, and in my imagination, I put that hat on my head and 'wore' it as I walked out of the house. I did this just once.
+"As you know, through your teaching and through my practice of that teaching, I have completely changed myself and my life. Two weeks ago when you spoke of 'toys', I realized I had never used my [imagination](/glossary#imagination) for the getting of 'things' and I decided it would be fun to try it. You told of a young woman who was given a hat by merely wearing that hat in her imagination. The last thing on earth I needed was a hat, but I wanted to test my imagination for this 'getting of things', so I selected a hat pictured in a fashion magazine. I cut the picture out and stuck it on the mirror of my dressing table. I studied the picture carefully. Then, I shut my eyes, and in my imagination, I put that hat on my head and 'wore' it as I walked out of the house. I did this just once.
 
 *"The following week I met some friends for luncheon and one of them was wearing 'the' hat. We all admired it. The very next day, I received a parcel by special delivery messenger. 'The' hat was in the parcel. The friend who had worn it the day before had sent the hat to me with a note saying she did not particularly care for the hat and didn't know why she had bought it in the first place, but for some reason she thought it would look well on me — and would I please accept it!"* ...G.L.
 
@@ -76,7 +76,7 @@ Size doesn't matter. Distinct, sharp images are more alive. Leave this out and y
 
 ### Woman imagined wearing a hat
 
-Just once. Soon a friend who'd bought it sent it, feeling it would suit her better.
+Just once. Soon a friend who'd bought it sent it, [feeling](/glossary#feeling) it would suit her better.
 
 ### Move from Dreams to things by imagination
 

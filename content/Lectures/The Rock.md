@@ -2,13 +2,13 @@
 
 In the 32nd chapter of the Book of Deuteronomy, we are told: *"The rock, his work is perfect."* Then this question is asked: *"Is he not your father who created you? Separating the sons of men, he fixed bounds to the people according to the number of the Sons of [God](/glossary#god)."* Today there is much talk about curtailing the population explosion. This we will never do, for the bounds are already recorded.
 
-Not one child could be born were it not for a son of God giving it life. For it is the sons of God who become the perfect Rock. In the Book of Psalms, it is said: *"I will behold thy face in righteousness and I will be satisfied when I awaken with thy likeness."* Although it is hard to believe that the Rock could be God, it is true, for the Rock is the only foundation, and no other foundation can anyone lay than that which is made, which is [Christ](/glossary#christ).
+Not one child could be born were it not for a son of [God](/glossary#god) giving it life. For it is the sons of God who become the perfect Rock. In the Book of Psalms, it is said: *"I will behold thy face in righteousness and I will be satisfied when I awaken with thy likeness."* Although it is hard to believe that the Rock could be God, it is true, for the Rock is the only foundation, and no other foundation can anyone lay than that which is made, which is [Christ](/glossary#christ).
 
 When scriptural truth is experienced it is literally true. The rock first becomes a person, whose work is perfect. And we are urged to *"Be perfect as our Father in heaven is perfect."*
 
 When the question is asked: *"Is he not your father who created you?"* the statement is made: *"He has set bounds to the people according to the number of the sons of God."* The word translated *"God"* here means a compound unity of one made up of others. That unity knows the name of each son. You may not believe me, but we are all God's sons, all destined to be God Himself. Although it does not yet appear what we shall be, we know that when He appears we shall be like him and we shall see him as He is!
 
-No matter how handsome or beautiful you are, when you look in the mirror you are not perfect in your own eyes. But you are promised: *"You shall be perfect as your Father in heaven is perfect,"* and Christ is called the Father, the Rock!
+No matter how handsome or beautiful you are, when you look in the mirror you are not perfect in your own eyes. But you are promised: *"You shall be perfect as your Father in heaven is perfect,"* and [Christ](/glossary#christ) is called the Father, the Rock!
 
 Now I will share my personal experience of scripture. In 1934, while sitting quietly not thinking of anything in particular, I closed my eyes and watched golden, pulsing light come out of my head. Suddenly a solid rock, such as a quartz, appeared before my eyes. As I watched, it fragmented into numberless little pieces, then quickly reassembled itself into the human form seated in the lotus posture. No longer was it a stone, but now a breathing, living being!
 
@@ -89,7 +89,7 @@ I am always amused to hear these wise men who, although they can speak many lang
 
 If God has put bounds to the people according to the number of the sons of God, and his sons are clothing themselves in mortal flesh, how can any man stop it? I am one of ten children. We are the result of God's sons Meditation, and no one can stop God's sons from coming in for the experiment.
 
-Dwell upon the fact that you are the perfect son of God. Live in the consciousness of that perfection and one day you will see your face woven into the likeness of the Father in you, who is Jesus Christ. And remember: all things are possible to him. Do not turn to anyone on the outside, turn only to the son of God within you who is your human imagination!
+Dwell upon the fact that you are the perfect son of God. Live in the consciousness of that perfection and one day you will see your face woven into the likeness of the Father in you, who is Jesus Christ. And remember: all things are possible to him. Do not turn to anyone on the outside, turn only to the son of God within you who is your human [imagination](/glossary#imagination)!
 
 Now that you have heard the true story of the Rock, dare to assume you are that perfection, for you already are perfect. In the beginning you said: *"Let us make man in our image, after our likeness."* That was your challenge and that is your destination.
 
@@ -142,7 +142,7 @@ Now let us go into the silence.
 - The author advises against seeking outside solutions and emphasizes the power of individual imagination.
 
 ### Assumption and Fulfillment
-- The author teaches that all things are possible to imagine and encourages readers to assume the feeling of their wishes fulfilled.
+- The author teaches that all things are possible to imagine and encourages readers to assume the [feeling](/glossary#feeling) of their wishes fulfilled.
 - They stress that the being within individuals knows the way to fulfill their desires and that individuals should not try to dictate the methods.
 - The author emphasizes the importance of walking and living as though the desired reality already exists and letting the son of God within manifest it.
 esires and that individuals should not try to dictate the methods.

@@ -30,7 +30,7 @@ The following story tells of one who went *"through the glass"* and broke the ch
 
 *"We walk by faith), not by sight."*  ([2Cor. 5:7](https://www.biblegateway.com/passage/?search=2+Corinthians+5:7&version=KJV))
 
-When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only imagination sees.
+When we walk by sight, we know our way by objects which our eyes see. When we walk by faith), we order our life by scenes and actions which only [imagination](/glossary#imagination) sees.
 
 Man perceives by the Eye of Imagination or by Sense.
 
@@ -58,13 +58,13 @@ It is possible to pass from thinking of to thinking from; but the crucial matter
 
 Self-abandonment. That is the secret.
 
-We have to abandon ourselves to the state, in our love for the state, and in so doing live the life of the state and no more our present state. Imagination seizes upon the life of the state and gives itself to the expression of the life of that state.
+We have to abandon ourselves to the [state](/glossary#state), in our love for the state, and in so doing live the life of the state and no more our present state. Imagination seizes upon the life of the state and gives itself to the expression of the life of that state.
 
 Faith plus Love is self-commission. We can't commit ourselves to what we do not love. *"Never would you have made anything if you had not loved it."* (*"For you love all the things that are, and despise nothing which you have made: For never would you have made anything, if you hated it."*, Book of [Wisdom 11:24](https://www.biblegateway.com/passage/?search=Wisdom+11:24&version=KJV)).
 
 And to make the state alive, one must become it.
 
-*"I live, yet not I, [God](/glossary#god) lives in me: and the life I now live in the flesh, I live by the faith of God, Who loved me and gave Himself for me."* (*"I am crucified with [Christ](/glossary#christ): nevertheless I live; yet not I, but Christ lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+*"I live, yet not I, [God](/glossary#god) lives in me: and the life I now live in the flesh, I live by the faith of [God](/glossary#god), Who loved me and gave Himself for me."* (*"I am crucified with [Christ](/glossary#christ): nevertheless I live; yet not I, but [Christ](/glossary#christ) lives in me: and the life which I now live in the flesh I live by the faith of the Son of God, Who loved me, and gave Himself for me."*, [Galatians 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God loved man, His created, and became man in faith that this act of self-commission would transform the created into the creative.
 

@@ -6,15 +6,15 @@ Creation is finished. Creativeness is only a deeper receptiveness, for the entir
 
 The whole of creation exists in you, and it is your destiny to become increasingly aware of its infinite wonders and to experience ever greater and grander portions of it.
 
-If creation is finished, and all events are taking place now, the question that springs naturally to the mind is *“what determines your time track?”* That is, what determines the events which you encounter? And the answer is your concept of yourself . Concepts determine the route that attention follows. Here is a good test to prove this fact. Assume the feeling of your wish fulfilled and observe the route that your attention follows.
+If creation is finished, and all events are taking place now, the question that springs naturally to the mind is *“what determines your time track?”* That is, what determines the events which you encounter? And the answer is your concept of yourself . Concepts determine the route that attention follows. Here is a good test to prove this fact. Assume the [feeling](/glossary#feeling) of your wish fulfilled and observe the route that your attention follows.
 
-You will observe that as long as you remain faithful to your [Assumption](/glossary#assumption), so long will your attention be confronted with images clearly related to that Assumption. For example; if you assume that you have a wonderful business, you will notice how in your [imagination](/glossary#imagination) your attention is focused on incident after incident relating to that Assumption. Friends congratulate you, tell you how lucky you are.
+You will observe that as long as you remain faithful to your [Assumption](/glossary#assumption), so long will your attention be confronted with images clearly related to that [Assumption](/glossary#assumption). For example; if you assume that you have a wonderful business, you will notice how in your [imagination](/glossary#imagination) your attention is focused on incident after incident relating to that Assumption. Friends congratulate you, tell you how lucky you are.
 
 Others are envious and critical. From there your attention goes to larger offices, bigger bank balances, and many other similarly related events.
 
 Persistence in this Assumption will result in actually experiencing in fact that which you assumed.
 
-The same is true regarding any concept. If your concept of yourself is that you are a failure, you would encounter in your imagination a whole series of incidents in conformance to that concept.
+The same is true regarding any concept. If your concept of yourself is that you are a failure, you would encounter in your [imagination](/glossary#imagination) a whole series of incidents in conformance to that concept.
 
 Thus it is clearly seen how you, by your concept of yourself, determine your present, that is, the particular portion of creation which you now experience, and your future, that is, the particular portion of creation which you will experience.
 

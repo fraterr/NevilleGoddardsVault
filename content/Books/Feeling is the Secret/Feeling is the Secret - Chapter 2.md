@@ -7,7 +7,7 @@ So it is with sleep that we are now concerned. The conscious two-thirds of our l
 
 It is in sleep and in Prayer, a [State](/glossary#state) akin to sleep, that man enters the subconscious to make his impressions and receive his instructions. In these states the conscious and subconscious are creatively joined. The male and female become one flesh. Sleep is the time when the male or conscious mind turns from the world of sense to seek its lover or subconscious self.
 
-The subconscious – unlike the woman of the world who marries her husband to change him – has no desire to change the conscious, waking state, but loves it as it is and faithfully reproduces its likeness in the outer world of form.
+The subconscious – unlike the woman of the world who marries her husband to change him – has no desire to change the conscious, waking [state](/glossary#state), but loves it as it is and faithfully reproduces its likeness in the outer world of form.
 
 The conditions and events of your life are your children formed from the molds of your subconscious impressions in sleep. They are made in the image and likeness of your innermost [feeling](/glossary#feeling) that they may reveal you to yourself.
 
@@ -21,7 +21,7 @@ The unconsciousness of sleep is the normal state of the subconscious. Because al
 
 You never draw out of the deep of yourself that which you want; you always draw that which you are, and you are that which you feel yourself to be as well as that which you feel as true of others.
 
-To be realized, then, the wish must be resolved into the feeling of being or having or witnessing the state sought. This is accomplished by assuming the feeling of the wish fulfilled. The feeling which comes in response to the question *"How would I feel were my wish realized?"* is the feeling which should monopolize and immobilize your attention as you relax into sleep. You must be in the consciousness of being or having that which you want to be or to have before you drop off to sleep.
+To be realized, then, the wish must be resolved into the [feeling](/glossary#feeling) of being or having or witnessing the state sought. This is accomplished by assuming the feeling of the wish fulfilled. The feeling which comes in response to the question *"How would I feel were my wish realized?"* is the feeling which should monopolize and immobilize your attention as you relax into sleep. You must be in the consciousness of being or having that which you want to be or to have before you drop off to sleep.
 
 Once asleep, man has no freedom of choice. His entire slumber is dominated by his last waking concept of self.
 

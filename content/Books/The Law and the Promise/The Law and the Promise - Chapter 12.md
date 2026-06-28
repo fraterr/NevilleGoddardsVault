@@ -20,7 +20,7 @@ Four months later as I was again walking my dog, the same man approached me and 
 
 *"I have no silver and gold, but I give you what I have."* ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV))
 
-None is to be discarded, all must be saved, and our Imagination reshaping memory is the process whereby this salvation is brought to pass. To condemn the man for having lost his way is to punish the already punished. *"O whom should I pity if I pity not the sinner who is gone astray?"* (William Blake, *"Jerusalem"*).
+None is to be discarded, all must be saved, and our [Imagination](/glossary#imagination) reshaping memory is the process whereby this salvation is brought to pass. To condemn the man for having lost his way is to punish the already punished. *"O whom should I pity if I pity not the sinner who is gone astray?"* (William Blake, *"Jerusalem"*).
 
 Not what the man was, but what he may become should be our imaginal activity.
 
@@ -43,9 +43,9 @@ Inasmuch as imagining is creative, our memory of another either furthers or hind
 
 *"There is no coal of character so dead that it will not glow and flame if but slightly turned."* The following story shows that imagining can make rings, and husbands, and move people *"to China"*!
 
-"My husband, child of a broken home and raised by beloved grandparents, was never 'close' to his mother — nor she to him. A woman of sixty-three and a divorcee for thirty-two of those years, she was lonely and embittered; and my relationship with her was strained as I attempted to 'stay in the middle'. By her own admission, her great desire was to remarry for companionship, but she believed this to be impossible at her age. My husband would often state to me that he hoped she would remarry and, as he fervently put it, 'perhaps live way out of town'!
+"My husband, child of a broken home and raised by beloved grandparents, was never 'close' to his mother — nor she to him. A woman of sixty-three and a divorcee for thirty-two of those years, she was lonely and embittered; and my relationship with her was strained as I attempted to 'stay in the middle'. By her own admission, her great desire was to remarry for companionship, but she believed this to be impossible at her age. My husband would often [state](/glossary#state) to me that he hoped she would remarry and, as he fervently put it, 'perhaps live way out of town'!
 
-I had the same wish and, as I put it, 'perhaps move to China?' Being wary of my personal motive for this wish, I knew I must change my feeling toward her in my imaginal drama and at the same time 'give' her what she wanted. I began by seeing her in my imagination as a completely changed personality — a happy, joyous woman, secure and contented in a new relationship. Every time I thought of her, I would see her mentally as a 'new' woman.
+I had the same wish and, as I put it, 'perhaps move to China?' Being wary of my personal motive for this wish, I knew I must change my [feeling](/glossary#feeling) toward her in my imaginal drama and at the same time 'give' her what she wanted. I began by seeing her in my imagination as a completely changed personality — a happy, joyous woman, secure and contented in a new relationship. Every time I thought of her, I would see her mentally as a 'new' woman.
 
 About three weeks later, she came to our house for a visit bringing a friend she had met many months previously. The man had recently become a widower; he was her age, secure financially and had grown children and grandchildren. We liked him and I was excited because it was obvious they liked each other. But my husband still thought 'it' was impossible. I didn't.
 

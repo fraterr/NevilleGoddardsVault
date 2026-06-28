@@ -10,11 +10,11 @@ It is now my purpose to retell and to emphasize an experience of mine printed by
 
 Then I seemed to be walking in the night. I soon came upon a scene that might have been the ancient Pool of Bethesda for in this place lay a great multitude of impotent folk –blind, halt, withered – waiting not for the moving of the water as of tradition, but waiting for me. As I came near, without thought or effort on my part they were, one after the other, molded as by the Magician of the Beautiful. Eyes, hands, feet – all missing members – were drawn from some invisible reservoir and molded in harmony with that perfection which I felt springing within me. When all were made perfect, the chorus exulted, “It is finished. Then the scene dissolved and I awoke.
 
-I know the vision was the result of my intense Meditation upon the idea of perfection, for my meditations invariably bring about union with the state contemplated. I had been so completely absorbed within the idea that for a while I had become what I contemplated, and the high purpose with which I had for that moment identified myself drew the companionship of high things and fashioned the vision in harmony with my inner nature. The ideal with which we are united works by association of ideals to awaken a thousand moods to create a drama in keeping with the central idea.
+I know the vision was the result of my intense Meditation upon the idea of perfection, for my meditations invariably bring about union with the [state](/glossary#state) contemplated. I had been so completely absorbed within the idea that for a while I had become what I contemplated, and the high purpose with which I had for that moment identified myself drew the companionship of high things and fashioned the vision in harmony with my inner nature. The ideal with which we are united works by association of ideals to awaken a thousand moods to create a drama in keeping with the central idea.
 
 My mystical experiences have convinced me that there is no way to bring about the outer perfection we seek other than by the transformation of ourselves.
 
-In the divine economy nothing is lost. We cannot lose anything save by descent from the sphere where the thing has its natural life. There is no transforming power in death and, whether we are here or there, we fashion the world that surrounds us by the intensity of our [imagination](/glossary#imagination) and feeling, and we illuminate or darken our lives by the concepts we hold of ourselves. Nothing is more important to us than our conception of ourselves, and especially is this true of our concept of the dimensionally great One within us.
+In the divine economy nothing is lost. We cannot lose anything save by descent from the sphere where the thing has its natural life. There is no transforming power in death and, whether we are here or there, we fashion the world that surrounds us by the intensity of our [imagination](/glossary#imagination) and [feeling](/glossary#feeling), and we illuminate or darken our lives by the concepts we hold of ourselves. Nothing is more important to us than our conception of ourselves, and especially is this true of our concept of the dimensionally great One within us.
 
 Those who help or hinder us, whether they know it or not, are the servants of that law which shapes outward circumstances in harmony with our inner nature.
 
@@ -28,7 +28,7 @@ There can be no outer change until there is first an inner change. As within, so
 
 Everything we do, unaccompanied by a change of consciousness, is but futile readjustment of surfaces.
 
-However we toil or struggle, we can receive no more than our assumptions affirm. To protest against anything which happens to us is to protest against the law of our being and our rulership over our own destiny.
+However we toil or struggle, we can receive no more than our assumptions affirm. To protest against anything which happens to us is to protest against [the law](/glossary#the-law) of our being and our rulership over our own destiny.
 
 The circumstances of my life are too closely related to my conception of myself not to have been formed by my own spirit from some dimensionally larger storehouse of my being. If there is pain to me in these happenings, I should look within myself for the cause, for I am moved here and there and made to live in a world in harmony with my concept of myself.
 

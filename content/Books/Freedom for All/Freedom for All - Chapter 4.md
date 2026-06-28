@@ -1,6 +1,6 @@
 # Freedom for All - Chapter 4
 
-The secret of [feeling](/glossary#feeling) or the calling of the invisible into visible states is beautifully told in the story of Isaac blessing his second son Jacob by the belief, based solely upon feeling, that he was blessing his first son Esau ([Genesis 27:1-35](https://www.biblegateway.com/passage/?search=Genesis+27:1-35&version=KJV)).
+The secret of [feeling](/glossary#feeling) or the calling of the invisible into visible states is beautifully told in the story of Isaac blessing his second son Jacob by the belief, based solely upon [feeling](/glossary#feeling), that he was blessing his first son Esau ([Genesis 27:1-35](https://www.biblegateway.com/passage/?search=Genesis+27:1-35&version=KJV)).
 
 It is recorded that Isaac, who was old and blind, felt that he was about to leave this world and wishing to bless his first son Esau before he died, sent Esau hunting for savory venison with [the promise](/glossary#the-promise) that upon his return from the hunt he would receive his father’s blessing.
 
@@ -10,7 +10,7 @@ Placing the skins upon his smooth body to give him the feel of his hairy and rou
 
 Simple human decency should tell man that this story cannot be taken literally. There must be a message for man hidden somewhere in this treacherous and despicable act of Jacob! The hidden message, the formula of success buried in this story was intuitively revealed to the writer in this manner. Isaac, the blind father, is your consciousness; your awareness of being.
 
-Esau, the hairy son, is your present objectified world – the rough or sensibly felt; the present moment; the present environment; your present conception of yourself; in short, the world you know by reason of your objective senses. Jacob, the smooth-skinned lad, the second son, is your desire or subjective [state](/glossary#state), an idea not yet embodied, a subjective state which is perceived and sensed but not objectively known or seen; a point in time and space removed from the present. In short, Jacob is your defined objective. The smooth-skinned Jacob – or subjective state seeking embodiment or the right of birth – when properly felt or blessed by his father (when consciously felt and fixed as real), becomes objectified; and in so doing he supplants the rough, hairy Esau, or the former objectified state. Two things cannot occupy a given place at one and the same time, and so as the invisible is made visible, the former visible state vanishes.
+Esau, the hairy son, is your present objectified world – the rough or sensibly felt; the present moment; the present environment; your present conception of yourself; in short, the world you know by reason of your objective senses. Jacob, the smooth-skinned lad, the second son, is your desire or subjective [state](/glossary#state), an idea not yet embodied, a subjective [state](/glossary#state) which is perceived and sensed but not objectively known or seen; a point in time and space removed from the present. In short, Jacob is your defined objective. The smooth-skinned Jacob – or subjective state seeking embodiment or the right of birth – when properly felt or blessed by his father (when consciously felt and fixed as real), becomes objectified; and in so doing he supplants the rough, hairy Esau, or the former objectified state. Two things cannot occupy a given place at one and the same time, and so as the invisible is made visible, the former visible state vanishes.
 
 Your consciousness is the cause of your world. The conscious state in which you abide determines the kind of world in which you live. Your present concept of yourself is now objectified as your environment, and this state is symbolized as Esau, the hairy, of sensibly felt; the first son. That which you would like to be or possess is symbolized as your second son, Jacob, the smooth-skinned lad who is not yet seen but is subjectively senses and felt, and will, if properly touched, supplant his brother Esau, or your present world.
 
@@ -40,7 +40,7 @@ The secret of Isaac – the sensing, feeling state – is simply the act of ment
 
 With the objective senses tightly shut Isaac made, and you can make the insensibly felt (the subjective state) seem real or sensibly known, for faith is knowledge.
 
-Knowing [the law](/glossary#the-law) of self-expression, the law by which the invisible is made visible, is not enough.
+Knowing [the law](/glossary#the-law) of self-expression, [the law](/glossary#the-law) by which the invisible is made visible, is not enough.
 
 It must be applied; and this is the method of application.
 
@@ -82,7 +82,7 @@ Here are a few practical examples of this drama.
 
 First: The blessing or making a thing real.
 
-Sit in your living room and name a piece of furniture, rug or lamp that you would like to have in this particular room. Look at that area of the room where you would place it if you had it. Close your eyes and let all that now occupies that area of the room vanish. In your imagination see this area as empty space – there is absolutely nothing there. Now begin to fill this space with the desired piece of furniture; sense and feel that you have it in this very area, imagine you are seeing that which you desired to see. Continue in this consciousness until you feel the thrill of possession.
+Sit in your living room and name a piece of furniture, rug or lamp that you would like to have in this particular room. Look at that area of the room where you would place it if you had it. Close your eyes and let all that now occupies that area of the room vanish. In your [imagination](/glossary#imagination) see this area as empty space – there is absolutely nothing there. Now begin to fill this space with the desired piece of furniture; sense and feel that you have it in this very area, imagine you are seeing that which you desired to see. Continue in this consciousness until you feel the thrill of possession.
 
 Second. The blessing or the making of a place real.
 

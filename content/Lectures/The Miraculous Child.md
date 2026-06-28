@@ -2,7 +2,7 @@
 
 Tonight's subject is 'The Miraculous Child.' This child will not appear to the world, for they are so fixed in their misconceptions of Scripture, and there is no dead weight so heavy. But tonight I wish you would pay special attention, as I want to introduce you to this miraculous child. For 'Though [Christ](/glossary#christ) a thousand times in Bethlehem be born, if he is not born in thee, thy soul is still forlorn.'
 
-[God](/glossary#god) participates in human history and is known in those through whom his timeless purpose is working in time. He who began a good work in you will bring it to completion at the day of [Jesus Christ](/lectures/jesus-christ), and he appears, symbolized as a child. This miraculous child is not Christ, but a sign that Christ is born, in you. Now listen to one in whom God's timeless purpose has been fulfilled in time.
+[God](/glossary#god) participates in human history and is known in those through whom his timeless purpose is working in time. He who began a good work in you will bring it to completion at the day of [Jesus Christ](/lectures/jesus-christ), and he appears, symbolized as a child. This miraculous child is not [Christ](/glossary#christ), but a sign that Christ is born, in you. Now listen to one in whom [God](/glossary#god)'s timeless purpose has been fulfilled in time.
 
 Always remember that all the characters of Scripture are states of consciousness personified. Abraham, Isaac, Jacob, none of these forefathers of Jesus appear in any Near Eastern work whatsoever. They do not appear either as individuals or as tribes. Appearing only in Scripture, they are [eternal states](/lectures/eternal-states) through which God passes as he unfolds his purpose in you. And his purpose is to give himself to you as though there were no other, just God and you, and finally only you, for you are He.
 
@@ -66,7 +66,7 @@ Now let us go into the silence.
 
 ### The Promise of a Child
 
-- The promise of a child is found in the book of Genesis and was made to Abraham.
+- [The promise](/glossary#the-promise) of a child is found in the book of Genesis and was made to Abraham.
 - Sarah, beyond childbearing age, gave birth to Isaac.
 - Isaac is a prototype of what must be born within oneself.
 

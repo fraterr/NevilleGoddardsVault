@@ -4,7 +4,7 @@
 BLAKE SAW all possible human situations as *"already-made"* states. He saw every aspect, every plot and drama as already worked out as *"mere possibilities"* as long as we are not in them, but as overpowering realities when we are in them.  
 He described these states as *"Sculptures of Los's Halls"*.  
 Distinguish therefore states from Individuals in those States. States change but Individual Identities never change nor cease... The [Imagination](/glossary#imagination) is not a [State](/glossary#state). Said Blake,  
-It is the Human Existence itself. Affection or Love becomes a State when divided from imagination.  
+It is the Human Existence itself. Affection or Love becomes a [State](/glossary#state) when divided from [imagination](/glossary#imagination).  
 Just how important this is to remember is almost impossible to say, but the moment the individual realizes this for the first time is the most momentous in his life, and to be encouraged to feel this is the highest form of encouragement it is possible to give.  
 This truth is common to all men, but the consciousness of it – and much more, the self-consciousness of it – is another matter. The day I realized this great truth – that everything in my world is a manifestation of the mental activity which goes on within me, and that the conditions and circumstances of my life only reflect the state of consciousness with which I am fused – is the most momentous in my life.  
 But the experience that brought me to this certainty is so remote from ordinary existence, I have long hesitated to tell it, for my reason refused to admit the conclusions to which the experience impelled me. Nevertheless, this experience revealed to me that I am supreme within the circle of my own state of consciousness and that it is the state with which I am identified that determines what I experience.  
@@ -20,7 +20,7 @@ The world of creation is finished and its original is within us. We saw it befor
 This inner procession is the activity of imagination that must be consciously directed. We, by a series of mental transformations, become aware of increasing portions of that which already is, and by matching our own mental activity to that portion of creation which we desire to experience, we activate it, resurrect it, and give it life.  
 This experience of mine not only shows the world as a manifestation of the mental activity of the individual observer, but it also reveals our course of time as jumps of attention between eternal moments. An infinite abyss separates any two moments of ours.  
 We, by the movements of our attention, give life to the *"Sculptures of Los's Halls"*.  
-Think of the world as containing an infinite number of states of consciousness from which it could be viewed. Think of these states as rooms or mansions in the House of God ([John 14:2](https://www.biblegateway.com/passage/?search=John+14:2&version=KJV)), and like the rooms of any house, they are fixed relative to one another.  
+Think of the world as containing an infinite number of states of consciousness from which it could be viewed. Think of these states as rooms or mansions in the House of [God](/glossary#god) ([John 14:2](https://www.biblegateway.com/passage/?search=John+14:2&version=KJV)), and like the rooms of any house, they are fixed relative to one another.  
 But think of yourself, the Real Self, the Imaginative You, as the living, moving occupant of God's House.  
 Each room contains some of Los's Sculptures, with infinite plots and dramas and situations already worked out but not activated.  
 They are activated as soon as Human Imagination enters and fuses with them. Each represents certain mental and emotional activities. To enter a state, man must consent to the ideas and feelings which it represents.  
@@ -49,13 +49,13 @@ and *"the mouth of God"* is the mind of man.
 Become a drinker and an eater of the ideals you wish to realize. Have a set, definite aim or your mind will wander, and wandering it eats every negative suggestion.  
 If you live right mentally, everything else will be right.  
 By a change of Mental [diet](/glossary#diet), you can alter the course of observed events.  
-But unless there is a change of Mental diet, your personal history remains the same.  
+But unless there is a change of [Mental diet](/glossary#mental-diet), your personal history remains the same.  
 You illuminate or darken your life by the ideas to which you consent.  
 Nothing is more important to you than the ideas on which you feed. And you feed on the ideas from which you think. If you find the world unchanged, it is a sure sign that you are wanting in fidelity to the new Mental diet, which you neglect in order to condemn your environment. You are in need of a new and sustained attitude.  
 You can be anything you please if you will make the conception habitual, for any idea which excludes all others from the field of attention discharges in action.  
 The ideas and moods to which you constantly return define the state with which you are fused.  
 Therefore train yourself to occupy more frequently the [feeling](/glossary#feeling) of your wish fulfilled. This is creative magic. It is the way to work toward fusion with the desired state.  
-If you would assume the feeling of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your [Assumption](/glossary#assumption) for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
+If you would assume the [feeling](/glossary#feeling) of your wish fulfilled more frequently, you would be master of your fate, but unfortunately you shut out your [Assumption](/glossary#assumption) for all but the occasional hour. Practice making real to yourself the feeling of the wish fulfilled.  
 After you have assumed the feeling of the wish fulfilled, do not close the experience as you would a book, but carry it around like a fragrant odor.  
 Instead of being completely forgotten, let it remain in the atmosphere communicating its influence automatically to your actions and reactions. A mood, often repeated, gains a momentum that is hard to break or check. So be careful of the feelings you entertain. Habitual moods reveal the state with which you are fused.  
 It is always possible to pass from thinking of the end you desire to realize, to thinking from the end.  

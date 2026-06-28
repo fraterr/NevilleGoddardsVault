@@ -4,15 +4,15 @@ In his poem called *"Europe,"* which is a prophecy about you, William Blake said
 
 Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all [imagination](/glossary#imagination). Entering into his image (his Enitharmon), Los Dreams it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
 
-In my case, 1,959 years had fled as though they had not been. And I had no idea I had entered into an image called Neville and made it real. But I, all imagination, so loved the shadow I had cast, I entered into it and made it alive. 
+In my case, 1,959 years had fled as though they had not been. And I had no idea I had entered into an image called Neville and made it real. But I, all [imagination](/glossary#imagination), so loved the shadow I had cast, I entered into it and made it alive. 
 
 To those in immortality I seemed to be as one sleeping on a couch of gold, but to myself I was a wanderer. Although lost in dreary night, I kept the divine vision in time of trouble. I kept on dreaming I was Neville until I awoke, not knowing I had slept; yet 1,959 years had fled as though they had not been. 
 
 Blake tells us that in the beginning we were all united with [God](/glossary#god) in a death like his. Then we heard the story and entered into our shadows. Now, a shadow is a representation, either in painting or drama, in distinction from the reality portrayed. Paul recognized the shadow when he asked the Galatians: *"Who has bewitched you, before whose eyes [Jesus Christ](/lectures/jesus-christ) was publicly portrayed as crucified. Let me ask you only this: did you receive the spirit by works of [the law](/glossary#the-law) or by hearing with faith? Are you so foolish, having begun with the spirit are you now ending with the flesh, by seeing Jesus [Christ](/glossary#christ) as someone on the outside?"*
 
-Having heard the story of Jesus Christ, you are called upon to enter into it as the central character and remain there until the story externalizes itself. 
+Having heard the story of Jesus [Christ](/glossary#christ), you are called upon to enter into it as the central character and remain there until the story externalizes itself. 
 
-God destined us, in love, to be his sons through Jesus Christ according to the purpose of his will. Falling in love with his image, God entered it and became his son. Having declared what he was going to do, God does it through his pattern called Jesus Christ. 
+[God](/glossary#god) destined us, in love, to be his sons through Jesus Christ according to the purpose of his will. Falling in love with his image, God entered it and became his son. Having declared what he was going to do, God does it through his pattern called Jesus Christ. 
 Knowing what you want, when you conceive a scene that implies you have it, that objective becomes the pattern for your desire to unfold. Jesus Christ is God's pattern, his purpose which he set forth for the fullness of time. Christ is the plan, the image God entered and made so real he claims he is the image. 
 
 God’s plan has completely unfolded in me. When I awoke I knew not that I had slept, and 1,959 years were fled as though they had not been. This is true for every child born of woman, for we were all gathered together and united with him in a death like his; therefore, we shall certainly be united with him in a resurrection like his.
@@ -43,7 +43,7 @@ Before awakening there are barriers that separate God and his image, but once hi
 
 Christmas is not the incarnation of God, but the awakening of man as God. Having fallen asleep and entering his image, God made it a living being. In Blake's case it took 1800 years. Why does it take one 2,000 and another 1,000 years to awaken? It depends upon the degree God is lost in the dream. 
 
-To what degree are you lost in your dream of success? Your world is your dream pushed out. When you can persuade yourself 100% that you are successful, success is yours! You must become so intense that you completely forget it was only a desire. You must tame the wild, new state you have entered until its naturalness causes you to forget all else. That is how God became you. 
+To what degree are you lost in your dream of success? Your world is your dream pushed out. When you can persuade yourself 100% that you are successful, success is yours! You must become so intense that you completely forget it was only a desire. You must tame the wild, new [state](/glossary#state) you have entered until its naturalness causes you to forget all else. That is how God became you. 
 
 Jesus Christ, God's pattern of salvation begins to unfold as you awake and resurrect from the tomb God entered. Being life itself, God entered you - his shadow, which has no life of its own - and made it alive. Entering death's door, his image – God - lay down in the grave of that image, in visions of eternity until he awakes. 
 

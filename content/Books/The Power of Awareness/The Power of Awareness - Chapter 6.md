@@ -4,7 +4,7 @@
 
 Attention is forceful in proportion to the narrowness of its focus, that is, when it is obsessed with a single idea or sensation. It is steadied and powerfully focused only by such an adjustment of the mind as permits you to see one thing only, for you steady the attention and increase its power by confining it. The desire which realizes itself is always a desire upon which attention is exclusively concentrated, for an idea is endowed with power only in proportion, to the degree of attention fixed on it. Concentrated observation is the attentive attitude directed [from] some specific end. The attentive attitude involves selection, for when you pay attention, it signifies that you have decided to focus your attention on one object or [state](/glossary#state) rather than on another.
 
-Therefore, when you know what you want, you must deliberately focus your attention on the [feeling](/glossary#feeling) of your wish fulfilled until that feeling fills the mind and crowds all other ideas out of consciousness.
+Therefore, when you know what you want, you must deliberately focus your attention on the [feeling](/glossary#feeling) of your wish fulfilled until that [feeling](/glossary#feeling) fills the mind and crowds all other ideas out of consciousness.
 
 The power of attention is the measure of your inner force. Concentrated observation of one thing shuts out other things and causes them to disappear. [The great secret](/lectures/the-great-secret) of success is to focus the attention on the feeling of the wish fulfilled without permitting any distraction. All progress depends upon an increase of attention. The ideas which impel you to action are those which dominate the consciousness, those which possess the attention. [The idea which excludes all others from the field of attention discharges in action.]
 
@@ -14,7 +14,7 @@ This means you, this one thing you can do, *“forgetting those things that are 
 
 To the unenlightened man this will seem to be all fantasy, yet all progress comes from those who do not take the accepted view, nor accept the world as it is. As was stated heretofore, if you can imagine what you please, and if the forms of your thought are as vivid as the forms of nature, you are by virtue of the power of your [imagination](/glossary#imagination) master of your fate.
 
-Your imagination is you yourself, and the world as your imagination sees it is the real world.
+Your [imagination](/glossary#imagination) is you yourself, and the world as your imagination sees it is the real world.
 
 When you set out to master the movements of attention, which must be done if you would successfully alter the course of observed events, it is then you realize how little control you exercise over your imagination and how much it is dominated by sensory impressions and by a drifting on the tides of idle moods.
 

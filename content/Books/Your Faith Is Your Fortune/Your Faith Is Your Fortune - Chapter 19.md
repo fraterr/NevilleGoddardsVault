@@ -4,7 +4,7 @@
 
 Psychically, this world appears as an ocean of light containing within itself all things, including man, as pulsating bodies enveloped in liquid light. The Biblical story of the Flood is the [state](/glossary#state) in which man lives. Man is actually inundated in an ocean of liquid light in which countless numbers of light-beings move.
 
-The story of the Flood is really being enacted today. Man is the Ark containing within himself the male-female principles of every living thing. The dove or idea which is sent out to find dry land is man’s attempt to embody his ideas. Man’s ideas resemble birds in flight — like the dove in the story, returning to man without finding a place to rest. If man will not let such fruitless searches discourage him, one day the bird will return with a green sprig. After assuming the consciousness of the thing desired he will be convinced that it is so; and he will feel and know that he is that which he has consciously appropriated, even though it is not yet confirmed by his senses. One day man will become so identified with his conception that he will know it to be himself, and he will declare, *“[I AM](/glossary#i-am); I AM that which I desire to be (I AM that I AM).”* He will find that as he does so he will begin to embody his desire (the dove or desire will this time find dry land) thereby realizing the mystery of the word made flesh.
+The story of the Flood is really being enacted today. Man is the Ark containing within himself the male-female principles of every living thing. The dove or idea which is sent out to find dry land is man’s attempt to embody his ideas. Man’s ideas resemble birds in flight — like the dove in the story, returning to man without finding a place to rest. If man will not let such fruitless searches discourage him, one day the bird will return with a green sprig. After assuming the consciousness of the thing desired he will be convinced that it is so; and he will feel and know that he is that which he has consciously appropriated, even though it is not yet confirmed by his senses. One day man will become so identified with his conception that he will know it to be himself, and he will declare, *“[I AM](/glossary#i-am); [I AM](/glossary#i-am) that which I desire to be (I AM that I AM).”* He will find that as he does so he will begin to embody his desire (the dove or desire will this time find dry land) thereby realizing the mystery of the word made flesh.
 
 Everything in the world is a crystallization of this liquid light. I AM [the light of the world](/lectures/the-light-of-the-world) Your awareness of being is the liquid light of the world which crystallizes into the conceptions you have of yourself.
 
@@ -15,7 +15,7 @@ The world is an ocean of liquid light in countless different states of crystalli
 
 ## Summary
 - The world appears as an ocean of liquid light containing all things.
-- The Biblical flood story represents man's state of being immersed in liquid light.
+- The Biblical flood story represents man's [state](/glossary#state) of being immersed in liquid light.
 - Man is the ark containing the male-female principles of all life.
 - Man's ideas are like doves seeking dry land, trying to embody his desires.
 - When man knows he is his desire, the dove finds dry land and he declares "I AM."

@@ -4,7 +4,7 @@ The book of Genesis is made up of three records, called the J, P, and E manuscri
 
 *"Abraham believed and it was accounted unto him for righteousness."* 
 
-Here we discover that it is not what man is, but what he trusts [God](/glossary#god) to do, that saves him. Believing that God the Father has prepared the way for his banished sons to return, in the [state](/glossary#state) of faith you accepted the verdict that you would be enslaved for four hundred years.
+Here we discover that it is not what man is, but what he trusts [God](/glossary#god) to do, that saves him. Believing that [God](/glossary#god) the Father has prepared the way for his banished sons to return, in the [state](/glossary#state) of faith you accepted the verdict that you would be enslaved for four hundred years.
 
 Now when you read this statement you may think in terms of time as we know it, but that is not part of the mystery. In the Hebrew alphabet each letter has a numerical - as well as a symbolic - value. The last letter of the Hebrew alphabet is "taf. Its numerical value is four hundred, and its symbolic value is that of a cross. That cross is the body you wear. It doesn't mean that it will take four hundred years for you to reach the end of the journey, but that a way has been prepared to bring you out of this journey into death.
 
@@ -12,11 +12,11 @@ Everything begins, waxes, wanes, and dies here; but God has prepared a way for u
 
 In this world your possessions enslave you. Buy a home, and the minute you have the [feeling](/glossary#feeling) of possession you must insure your property against all the elements. Buy a large diamond of which you are so proud, and you must insure it and pay for that insurance the rest of your days. 
 
-People who own a fortune in diamonds often place them in a vault and never see them, yet pay insurance on them year after year - but they have the feeling of possession. So you see: regardless of how great you determine your earthly possessions to be, you cannot take them with you. So what is the great possession that you will return with? Life in yourself!
+People who own a fortune in diamonds often place them in a vault and never see them, yet pay insurance on them year after year - but they have the [feeling](/glossary#feeling) of possession. So you see: regardless of how great you determine your earthly possessions to be, you cannot take them with you. So what is the great possession that you will return with? Life in yourself!
 
 The Old Testament is a prophetic blueprint of experiences which take place in the New. And even that which is recorded in the New is not conclusive and vivid. So we search the scriptures to see what we must experience in order to acquire our promised great possession.
 
-You and I preexisted, for there is only God. Diversifying himself into the many by falling into a deep sleep, God the Father is now bearing his cross by wearing our garments of flesh and blood and dreaming our life into being. In this world we do not recognize ourselves in the other, for - wearing a mask - we are hidden from view. Now an animated body, we are destined to be gathered one by one and brought back into that original state with great possessions. That great possession is to have life in ourselves!
+You and I preexisted, for there is only God. Diversifying himself into the many by falling into a deep sleep, God the Father is now bearing his cross by wearing our garments of flesh and blood and dreaming our life into being. In this world we do not recognize ourselves in the other, for - wearing a mask - we are hidden from view. Now an animated body, we are destined to be gathered one by one and brought back into that original [state](/glossary#state) with great possessions. That great possession is to have life in ourselves!
 
 
 The word *"Zechariah"* means *"Jehovah remembers,"* and Zechariah's book is all about remembering. In the 8th chapter the Lord speaks, saying: *"I will return to Zion and I will dwell in the midst of Jerusalem, and Jerusalem shall be called the faithful city, the mountain of the Lord of hosts, the holy mountain. And the streets of the city shall be full of boys and girls playing in its streets."*
@@ -75,7 +75,7 @@ Now, forget the individual and return to scripture, for you are only here to ful
 
 Everything contains within itself the capacity for symbolic significance. There isn't a dream that is insignificant, but we are past masters of their misinterpretation. We cannot see the story behind the story. But I tell you: you are here for one grand purpose and that is to awaken from the dream, and when you do you will have power in yourself. *"As the Father has power in himself, so he has granted the son also to have power in himself. Do not marvel at this, for the hour is coming when those who are in the tomb will hear his voice and come forth,"* and as you come forth your power is exercised.
 
-There is a note, a tone that will awaken you when the boys and girls play in the streets of the Jerusalem within you. Zion is within you and the Lord is within you, for the entire drama unfolds in the imagination. One day you will be so completely carried away with the beauty of something produced by a note that you will arrest it. That sustained note will cause you to awaken to the truth that you are the [Christ](/glossary#christ) of scripture, the Jehovah of the Old Testament. Then you will know that you have returned with your great possession, for you will have transformed an animated body into a life-giving Spirit.
+There is a note, a tone that will awaken you when the boys and girls play in the streets of the Jerusalem within you. Zion is within you and the Lord is within you, for the entire drama unfolds in the [imagination](/glossary#imagination). One day you will be so completely carried away with the beauty of something produced by a note that you will arrest it. That sustained note will cause you to awaken to the truth that you are the [Christ](/glossary#christ) of scripture, the Jehovah of the Old Testament. Then you will know that you have returned with your great possession, for you will have transformed an animated body into a life-giving Spirit.
 
 Now let us go into the silence.
 

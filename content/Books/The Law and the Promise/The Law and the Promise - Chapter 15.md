@@ -1,8 +1,8 @@
 # The Law and the Promise - Chapter 15
 
-In all I have related thus far — with the exception of G.B.'s Vision of the Child —[imagination](/glossary#imagination) was consciously exercised. Men and women created stage plays in their imagination, plays implying the fulfillment of their desires. Then, by imagining themselves participating in these dramas, they created that which their imaginal acts implied.
+In all I have related thus far — with the exception of G.B.'s Vision of the Child —[imagination](/glossary#imagination) was consciously exercised. Men and women created stage plays in their [imagination](/glossary#imagination), plays implying the fulfillment of their desires. Then, by imagining themselves participating in these dramas, they created that which their imaginal acts implied.
 
-This is the wise use of [God](/glossary#god)'s Law. But *"No man is justified before God by [the Law](/glossary#the-law)"*, ([Gal. 3:11](https://www.biblegateway.com/passage/?search=Galatians+3:11&version=KJV))
+This is the wise use of [God](/glossary#god)'s Law. But *"No man is justified before [God](/glossary#god) by [the Law](/glossary#the-law)"*, ([Gal. 3:11](https://www.biblegateway.com/passage/?search=Galatians+3:11&version=KJV))
 
 Many people are interested in Imaginism as a way of life, but are not at all interested in its framework of faith, a faith leading to the fulfillment of God's promise.
 
@@ -10,7 +10,7 @@ Many people are interested in Imaginism as a way of life, but are not at all int
 
 [The Promise](/glossary#the-promise) that God will bring forth from our body a son who will be *"born, not of blood nor of the will of the flesh nor of the will of man, but of God"* ([John 1:13](https://www.biblegateway.com/passage/?search=John+1:13&version=KJV)) does not concern them. They want to know God's Law, not His Promise. However, this miraculous birth has been stated clearly as a must for all mankind from the earliest days of the Christian fellowship.
 
-*"You must be born from above” (John. 3:7). My purpose here is to [state](/glossary#state) it again and to state it in such language and with such reference to my own personal mystical experiences that the reader will see that this birth "*from above" is far more than a part of a dispensable superstructure, that it is the sole purpose for God's creation.
+*"You must be born from above” (John. 3:7). My purpose here is to [state](/glossary#state) it again and to [state](/glossary#state) it in such language and with such reference to my own personal mystical experiences that the reader will see that this birth "*from above" is far more than a part of a dispensable superstructure, that it is the sole purpose for God's creation.
 
 Specifically, my purpose in recording these four mystical experiences is to show what *"[Jesus Christ](/lectures/jesus-christ) the faithful witness, the firstborn from the dead"* ([Rev. 1:5](https://www.biblegateway.com/passage/?search=Revelation+1:5&version=KJV)) was trying to say about this birth from above. *"How can men preach unless they are sent?"* ([Rom. 10:15](https://www.biblegateway.com/passage/?search=Romans+10:15&version=KJV)).
 
@@ -22,7 +22,7 @@ My mystical experiences have brought me to accept literally, the saying that all
 
 The play begins with the crucifixion of God on man — as man — and ends with the resurrection of man — as God. God becomes as we are, that we may be as He is. God becomes man that man may become, first — a living being, and secondly — a life-giving spirit.
 
-*"I have been crucified with Christ; it is no longer I who live, but Christ who lives in me; and the life I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me."* ([Gal. 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
+*"I have been crucified with [Christ](/glossary#christ); it is no longer I who live, but Christ who lives in me; and the life I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me."* ([Gal. 2:20](https://www.biblegateway.com/passage/?search=Galatians+2:20&version=KJV))
 
 God took upon Himself the form of man and became obedient unto death — even death on the cross of man — and is crucified on Golgotha, the skull of man. God Himself enters death's door — the human skull — and lies down in the grave of man to make man a living being. God's mercy turned death into sleep. Then began the prodigious and unthinkable metamorphosis of man, the transformation of man into God.
 
@@ -94,7 +94,7 @@ My brother lifted the infant wrapped in swaddling clothes and laid him on the be
 
 Tennyson has a description of Death as a warrior — a skeleton *"high on a night-black horse"*, issuing forth at midnight. But when Gareth's sword cut through the skull, there was in it... *"... the bright face of a blooming boy Fresh as a flower new-born."* (Idylls of the King)
 
-Two other visions I will tell because they bear out the truth of my assertion that the Bible is mystical fact, that everything written about the promised child in the law of Moses and the Prophets and the Psalms must be mystically experienced in the imagination of the individual.
+Two other visions I will tell because they bear out the truth of my assertion that the Bible is mystical fact, that everything written about the promised child in [the law](/glossary#the-law) of Moses and the Prophets and the Psalms must be mystically experienced in the imagination of the individual.
 
 The child's birth is a sign and a portent, signaling the resurrection of David, the Lord's anointed, of whom He said, *"You are My Son, today I have begotten You"*, ([Psalms 2:7](https://www.biblegateway.com/passage/?search=Psalms+None&version=KJV))
 
@@ -126,7 +126,7 @@ No longer will I cry to *"our father David, thy child"*, ([Acts. 4:25](https://w
 
 If the Bible were history, it would not be a mystery.
 
-*"Wait for the promise of the Father"*, ([Acts. 1:4](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)), that is, for David — God's Son — who will reveal you as the Father. This promise, says Jesus, you heard from Me ([Luke 24:44](https://www.biblegateway.com/passage/?search=Luke+24:44&version=KJV)) and to its fulfillment at that moment in time when it pleases God to give you His Son — as *"your offspring, which is Christ"*, ([Gal. 3:16](https://www.biblegateway.com/passage/?search=Galatians+3:16&version=KJV)).
+*"Wait for [the promise](/glossary#the-promise) of the Father"*, ([Acts. 1:4](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)), that is, for David — God's Son — who will reveal you as the Father. This promise, says Jesus, you heard from Me ([Luke 24:44](https://www.biblegateway.com/passage/?search=Luke+24:44&version=KJV)) and to its fulfillment at that moment in time when it pleases God to give you His Son — as *"your offspring, which is Christ"*, ([Gal. 3:16](https://www.biblegateway.com/passage/?search=Galatians+3:16&version=KJV)).
 
 A figure of speech is used for the purpose of calling attention to, emphasizing and intensifying the reality of the literal sense. The truth is literal; the words used are figurative.
 

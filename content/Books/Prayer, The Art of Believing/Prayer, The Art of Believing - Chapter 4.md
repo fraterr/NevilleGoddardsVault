@@ -6,7 +6,7 @@ He is amenable to control by suggestion. In hypnosis, the objective senses are p
 
 The activity and power of the subjective mind are proportionate to the sleep of the objective mind. Suggestions which appear powerless when presented directly to the objective consciousness are highly efficacious when the subject is in a hypnotic [state](/glossary#state).
 
-The hypnotic state is simply being unaware, objectively.
+The hypnotic [state](/glossary#state) is simply being unaware, objectively.
 
 In hypnotism, the conscious mind is put to sleep and the subconscious powers are exposed as to be directly reached by suggestion. It is easy to see from this, providing you accept the truth of mental suggestions, that anyone not objectively aware of you is in a profound hypnotic state relative to you.
 
@@ -26,7 +26,7 @@ A mental conversation with the subjective image of another must be in a manner w
 
 If you have the least idea that you do not believe what you have imagined you have heard and seen, the subject will not comply, for your subjective mind will transmit only your fixed ideas. Only fixed ideas can awaken their vibratory correlates in those toward whom they are directed.
 
-In the controlled reverie, ideas must be suggested with the utmost care. If you do not control your [imagination](/glossary#imagination) in the reverie, your imagination will control you.
+In the controlled reverie, ideas must be suggested with the utmost care. If you do not control your [imagination](/glossary#imagination) in the reverie, your [imagination](/glossary#imagination) will control you.
 
 Whatever you suggest with confidence is law to the subjective mind; it is under obligation to objectify that which you mentally affirm.
 

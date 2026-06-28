@@ -3,7 +3,7 @@
 *"[All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your [imagination](/glossary#imagination) of which this world of mortality is but a shadow."*   
 (William Blake)  
   
-The world of imagination is infinite and eternal, whereas the world of generation is finite and temporary. In that eternal world, the permanent realities of everything exist. Their reflections are here, cast in a glass called nature. 
+The world of [imagination](/glossary#imagination) is infinite and eternal, whereas the world of generation is finite and temporary. In that eternal world, the permanent realities of everything exist. Their reflections are here, cast in a glass called nature. 
 
 “The oak is cut down by the ax  
 And the lamb falls by the knife,   
@@ -43,7 +43,7 @@ Now, I want to share an experience of a lady who wrote, saying: “About a year 
   
 *"Startled, I raised myself off the pillow to see you standing in mid-air. Dressed in a gray suit, you smiled, raised your arms, and removed the eyes from your head. Then you came over and calling me brother, you pressed them into my eyes. Bending your head, I watched it grow transparent and enormous in size. Then I saw that every living thing in the universe was there. You straightened up, and as you did your head returned to its normal size. Again, raising your right hand, you took off the top of your head and handed it to me, where I saw the greenest of green grass growing there, and you vanished."*  
   
-Yes, I called this lady brother advisedly, for regardless of the sex worn here, we are immortal brothers, all of us. So I say: “Go unto my brothers and say to them, ‘I have ascended unto my God and your God, unto my Father and your Father.   
+Yes, I called this lady brother advisedly, for regardless of the sex worn here, we are immortal brothers, all of us. So I say: “Go unto my brothers and say to them, ‘I have ascended unto my [God](/glossary#god) and your God, unto my Father and your Father.   
   
 It was over a year ago when I placed my eyes into her sockets and gave her sight. Now she has become the incurrent eyewitness. In her vision she saw a long table. A man dressed in the white robe of a judge, carrying a gavel in his hand, entered the room. Looking directly at her, the gavel hit the table and he said: *"I pronounce you the incurrent eyewitness."*   
   
@@ -52,7 +52,7 @@ The word incurrent means, giving passage to a current that flows inward. This la
 Start now to practice what the Bible calls repentance, which is a radical change of attitude. No matter what it is, if it does not conform to your ideal change it by subjectively appropriating your goal. Remain faithful to it and no earthly power can keep you from attaining it.   
   
 Go all out and walk on the water! Don’t be like Peter, whose understanding told him imagination didn’t make sense (symbolized as his feet), or you will drown in the sea of illusion. Imagination, speaking to his faith, said: *"Peter, come,"* and as Peter walked, he looked down to see how this was possible, and sank. My friend, who did not look down, walked on the water in the direction of his wish fulfilled - and it was.   
-All of the Bible stories will be fulfilled literally on different levels of your being. You will experience them all, because you are Jesus Christ. Blake tells us so beautifully: *"Desires and perceptions of Man, untaught by anything but organs of sense must be limited to objects of sense; therefore, God becomes Man that Man may become God."*  
+All of the Bible stories will be fulfilled literally on different levels of your being. You will experience them all, because you are Jesus [Christ](/glossary#christ). Blake tells us so beautifully: *"Desires and perceptions of Man, untaught by anything but organs of sense must be limited to objects of sense; therefore, God becomes Man that Man may become God."*  
   
 If you only knew what your organs of sense reveal, you would never perceive anything beyond them. It would be horrible to remain an organ of sense and never transcend it. But God brought creation with him when he became humanity, and you are here to awaken to that fact! If God did not become you, you would be an animated body, limited to all that your sense organs would reveal. But having become you, God is awakening and will give you desires and their fulfillments, far beyond the wildest Dreams of those who are still limited to the organs of sense.   
   
@@ -85,7 +85,7 @@ Now let us go into the silence.
 
 - A friend revised a call from another friend who feared being fired, leading to his friend receiving praise for his work.
 - Another person imagined using the word "Mister" before a prominent man's name in an ad, and the man later requested the change in a radio commercial.
-- Every moment of time is an opportunity to put the law into practice, just like the symbolism of stuffing a pig (Christ) with love and imagination.
+- Every moment of time is an opportunity to put [the law](/glossary#the-law) into practice, just like the symbolism of stuffing a pig (Christ) with love and imagination.
 
 ### Dreams as Revelations
 

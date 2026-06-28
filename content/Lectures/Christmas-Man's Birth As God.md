@@ -1,6 +1,6 @@
 # Christmas-Man's Birth As God
 
-*"In the beginning was the Word and the Word was with [God](/glossary#god) and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the [Assumption](/glossary#assumption) by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
+*"In the beginning was the Word and the Word was with [God](/glossary#god) and the Word was [God](/glossary#god). The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the [Assumption](/glossary#assumption) by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
   
@@ -21,7 +21,7 @@ As the source God is David's father, called Jesse or [I AM](/glossary#i-am). As 
   
 Here we see that the root and the offspring are one. I (the root of David) am the cause of all life. In spite of that I come out of David, recognize him and say: *"Thou art my son, today I have begotten thee."*   
   
-As God the Father, I assume the limitations of the flesh; and using one who is a man after my heart and will do all my will, I become conscious of being a rich man, a poor man, a beggar, and a thief, until David reveals me as his father. *"I came to do the will of my Father yet I am the Father, for God the Father and the Son of God is one I AM."*   
+As God the Father, I assume the limitations of the flesh; and using one who is a man after my heart and will do all my will, I become conscious of being a rich man, a poor man, a beggar, and a thief, until David reveals me as his father. *"I came to do the will of my Father yet I am the Father, for God the Father and the Son of God is one [I AM](/glossary#i-am)."*   
   
 There is only God in the world. As the father God created a perfect play. As the son God plays all the parts. As the son God is restricted in his activities. But when the drama is finished God leaves the world of Caesar - greatly expanded - and returns to himself, the Father.   
   
@@ -77,7 +77,7 @@ I have seen this great flood of illusion as crystal clear atmosphere and now kno
   
 Recently a great doctor was asked about the flu which is spreading all over our country. Questioning where the bug goes when the flu subsides, he answered: *"It doesn't go anywhere. It remains in man to be activated again."* I say moods activate it.   
   
-Leprosy doesn't come from without. Cancer doesn't either. Everything is within man. Read the paper and react. That reaction sets a [feeling](/glossary#feeling) in motion, be it anger, frustration, or irritation. When the feeling leaves, where does it go? Back to sleep within you, for you contain the world and all that is in it.   
+Leprosy doesn't come from without. Cancer doesn't either. Everything is within man. Read the paper and react. That reaction sets a [feeling](/glossary#feeling) in motion, be it anger, frustration, or irritation. When the [feeling](/glossary#feeling) leaves, where does it go? Back to sleep within you, for you contain the world and all that is in it.   
   
 God became you and, containing all, God is absolute. The world teaches that God is all good and never evil. But if there is evil, and God is not evil, then God is not absolute.   
   

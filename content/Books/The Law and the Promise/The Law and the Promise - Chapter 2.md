@@ -10,7 +10,7 @@ Man, through the medium of a controlled, waking dream, can predetermine his futu
 
 If we live in the dream — thinking from it, and not of it — then the creative power of imagining will answer our adventurous fancy, and the wish fulfilled will break in upon us and take us unawares.
 
-Man is all [imagination](/glossary#imagination); therefore, man must be where he is in imagination, for his imagination is himself.
+Man is all [imagination](/glossary#imagination); therefore, man must be where he is in [imagination](/glossary#imagination), for his imagination is himself.
 
 To realize that imagination is not something tied to the senses or enclosed within the spatial boundary of the body is most important.
 
@@ -26,7 +26,7 @@ For many years a doctor and his wife *"dreamed"* about their "stately habitation
 
 "But now your teaching awakened a new concept, boldly telling us we could have what we most desired through the controlled use of our imagination and that realizing a desire was made more convincing 'without money'. We decided to put it to a test to forget about 'money' and concentrate our attention on the thing we desired most in this world — the new apartment building.
 
-"With this principle in mind, we mentally constructed the new building as we wanted it, actually drawing physical plans so we could better formulate our mental picture of the completed structure. Never forgetting to think from the end (in our case, the completed, occupied building), we took many imaginative trips through our apartment house, renting the units to imaginary tenants, examining in detail every room and enjoying the feeling of pride as friends offered congratulations on the unique planning. We brought into our imaginal scene one friend in particular (I shall call her Mrs. X), a lady we had not seen for some time as she had 'given us up' socially, believing us a bit peculiar in our new way of thinking. In our imaginal scene, we took her through the building and asked how she liked it. Hearing her voice distinctly, we had her reply, 'Doctor, I think it is beautiful'.
+"With this principle in mind, we mentally constructed the new building as we wanted it, actually drawing physical plans so we could better formulate our mental picture of the completed structure. Never forgetting to think from the end (in our case, the completed, occupied building), we took many imaginative trips through our apartment house, renting the units to imaginary tenants, examining in detail every room and enjoying the [feeling](/glossary#feeling) of pride as friends offered congratulations on the unique planning. We brought into our imaginal scene one friend in particular (I shall call her Mrs. X), a lady we had not seen for some time as she had 'given us up' socially, believing us a bit peculiar in our new way of thinking. In our imaginal scene, we took her through the building and asked how she liked it. Hearing her voice distinctly, we had her reply, 'Doctor, I think it is beautiful'.
 
 "One day, while talking together of our building, my wife mentioned a contractor who had constructed several apartment houses in our neighborhood. We knew of him only by the name that appeared on signs adjacent to buildings under construction. But realizing that if we were Living in the end, we would not be looking for a contractor, we promptly forgot this angle. Continuing these periods of daily imagining for several weeks, we both felt we were now 'fused' with our desire and had successfully been Living in the end.
 

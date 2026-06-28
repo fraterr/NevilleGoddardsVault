@@ -1,8 +1,8 @@
 # Trust In God
 
-Ask any religious person if he believes in [God](/glossary#god), and he will say yes. But if you ask him who God is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
+Ask any religious person if he believes in [God](/glossary#god), and he will say yes. But if you ask him who [God](/glossary#god) is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
 
-Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, [I AM](/glossary#i-am) has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be I AM, the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
+Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, [I AM](/glossary#i-am) has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be [I AM](/glossary#i-am), the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
 
 The word translated 'Lord' in the statement: *"[I am the Lord](/lectures/i-am-the-lord)' is YOD HE VAU HE, [pron. YOD HEY VAV HEY] which means 'I AM'. So this statement could read, "*I am the I AM.*" It is impossible to say I am and speak of another; and your awareness - your I am - is he who declares: "*I am the Lord, and my glory I will not give to another." 
 
@@ -12,17 +12,17 @@ There is [no other God](/lectures/no-other-god), other than he who is housed wit
 
 A friend recently shared a wonderful experience with me. It seems a neighbor was forever dropping in on her, constantly telling horrible stories about her friends. She tried to tell the woman how to change things by using her [imagination](/glossary#imagination), but she would not listen. And although she imagined her as a fine, positive, happy person, she remained in her negative [state](/glossary#state). 
 
-Realizing the lady was a character my friend had to overcome, she began to change her thoughts. In her imagination she told the neighbor that she loved her. This she persisted in doing, until one day she realized she really did. That night she had this dream. 
+Realizing the lady was a character my friend had to overcome, she began to change her thoughts. In her [imagination](/glossary#imagination) she told the neighbor that she loved her. This she persisted in doing, until one day she realized she really did. That night she had this dream. 
 
 She found herself sitting in the shade of a beautiful tree. A figure approached, looking like a goddess, in a long white gown with loose sleeves and a silver belt. Suddenly she realized it was her friend, who came to say goodbye. They embraced and she felt a surge of love for that woman like she had never known for anyone before. 
 
 The next day this lady came to her door and said: *"I gave my notice this morning and have come to say goodbye."* Then my friend added this thought: *"If I could fall as much in love with the being within me as I did with this lady, I would be completely transformed - which in turn, would produce great changes in my outer world of effects, for now I know my friend's transformation took place within me."* 
 
-Scripture tells us to love God because he first loved us, and that we should imitate him as a dear child. How is this done? By falling in love! Whether your desire be for wealth, fame, health, or marriage, you must fall in love with the state. My friend fell in love, and so transformed the lady she will never again encounter that state. 
+Scripture tells us to love God because he first loved us, and that we should imitate him as a dear child. How is this done? By falling in love! Whether your desire be for wealth, fame, health, or marriage, you must fall in love with the [state](/glossary#state). My friend fell in love, and so transformed the lady she will never again encounter that state. 
 
 God uses man to express love and hate, for man is the agent to express the qualities of I AM. There is no other God! You will find other characteristics of God, but those who know his name put their trust in I AM! 
 
-Put your trust in God's name. Knowing what you want, believe that your [Assumption](/glossary#assumption) will make it a fact. Believe that you need no one on the outside to aid you, for [all things are possible](/lectures/all-things-are-possible) to God. Assume things are as you want them to be, for an Assumption, persisted in will harden into fact! 
+Put your trust in God's name. Knowing what you want, believe that your [Assumption](/glossary#assumption) will make it a fact. Believe that you need no one on the outside to aid you, for [all things are possible](/lectures/all-things-are-possible) to God. Assume things are as you want them to be, for an [Assumption](/glossary#assumption), persisted in will harden into fact! 
 
 Another lady found herself, in dream, with her sister, mother, brother-in-law, and a man she knew to be her first husband. Having agreed to cross the desert on foot and return, they began their journey as the sun blistered her body and the sand burned her feet. At one point she fell, struck her head on a rock, and knew excruciating pain. But at the journey's end she found her Father. Then she returned to the group and they began their journey home. 
 

@@ -16,7 +16,7 @@ Looking outwardly, you see the book first, but actually, the meaning comes first
 
 The Lord and meaning are one - the Creator, the cause of the phenomena of life.
 
-*"In the beginning was the Word, and the Word was with God, and the Word was God."* ([John 1:1](https://www.biblegateway.com/passage/?search=John+1:1&version=KJV))
+*"In the beginning was the Word, and the Word was with [God](/glossary#god), and the Word was God."* ([John 1:1](https://www.biblegateway.com/passage/?search=John+1:1&version=KJV))
 
 In the beginning was the intention - the meaning - and the intention was with the intender, and the intention was the intender. The objects and events in time and space occupy a lower level of significance than the level of meaning which produced them. All things were made by meaning, and without meaning was not anything made that was made. The fact that everything seen can be regarded as the effect, on a lower level of significance, of an unseen higher order of significance is a very important one to grasp.
 
@@ -26,7 +26,7 @@ Most of us live on the level of what happened - the accident was an event in spa
 
 In this case, the ruined car was driven by a widow, who, though she felt she could not afford to, greatly desired to change her environment. Having heard that, by the proper use of her [imagination](/glossary#imagination), she could do and be all she wished to be, this widow had been imagining herself actually living in the city of her desire. At the same time, she was living in a consciousness of loss, both personal and financial. Therefore, she brought upon herself an event which was seemingly another loss, but the sum of money the insurance company paid her allowed her to make the desired change in her life.
 
-When we see the *"why"* behind the seeming accident, the state of consciousness that produced the accident, we are led to the conclusion that there is no accident. Everything in life has its in-visible meaning.
+When we see the *"why"* behind the seeming accident, the [state](/glossary#state) of consciousness that produced the accident, we are led to the conclusion that there is no accident. Everything in life has its in-visible meaning.
 
 The man who learns of an accident, the man who knows *"how"* it happened, and the man who knows *"why"* it happened are on three different levels of awareness in regard to that accident. On the ascending scale, each higher level carries us a step in advance towards the truth of the accident.
 

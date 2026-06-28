@@ -92,7 +92,7 @@ Commentary
 
 VIII
 
-Man discovers his awareness of being to be the inexhaustible treasure of the universe. In that day when man makes this discovery he dies as man and awakes as God.
+Man discovers his awareness of being to be the inexhaustible treasure of the universe. In that day when man makes this discovery he dies as man and awakes as [God](/glossary#god).
 
 Yes, Edmond Dantés becomes the Count of Monte Cristo. Man becomes [Christ](/glossary#christ).
 
@@ -114,7 +114,7 @@ Commentary
 
 I
 
-My awareness is my Lord and Shepherd, That which I AM aware of being is the sheep that follow me. So good a shepherd is my awareness of being it has never lost one sheep or thing that I AM aware of being.
+My awareness is my Lord and Shepherd, That which [I AM](/glossary#i-am) aware of being is the sheep that follow me. So good a shepherd is my awareness of being it has never lost one sheep or thing that I AM aware of being.
 
 My consciousness is a voice calling in the wilderness of human confusion; calling all that I AM conscious of being to follow me. So well do my sheep know my voice they have never failed to respond to my call; nor will there come a time when that which I am convinced that I AM will fail to find me.
 

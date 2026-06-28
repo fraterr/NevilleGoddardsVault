@@ -4,11 +4,11 @@ Every fact is a dream made visible, so I invite you to live as though your dream
 
 I also know, not only from personal experience but from eternal vision, that the spiritual states of the soul are eternal. That like a traveler, individual man passes through states but the states remain forever.
 
-Without the help of any man or government you could lose everything you possess and become dependent upon society. All you need do is enter the [state](/glossary#state) of poverty. Or again: without asking for help you could assume wealth by occupying the state. Remain faithful to it and you will discover that the state has its own way of externalizing itself. You must, however, give the desired state occupancy.
+Without the help of any man or government you could lose everything you possess and become dependent upon society. All you need do is enter the [state](/glossary#state) of poverty. Or again: without asking for help you could assume wealth by occupying the [state](/glossary#state). Remain faithful to it and you will discover that the state has its own way of externalizing itself. You must, however, give the desired state occupancy.
 
 How do you occupy a state? By asking yourself how you would feel, what you would see, hear, touch, taste, and smell if your dream were real. Take time to set the stage. Being the star of your production, place yourself center stage, then allow a friend to enter and see you in your new state. Write the script - the words he would say when he sees you. Feel his touch. 
 
-Clothe yourself with the reality of the state you have just created in your [imagination](/glossary#imagination). You need not ask anyone's permission or help, but moving into the new state in your imagination, simply remain there until you feel its reality. Then let the [feeling](/glossary#feeling) go its way toward fulfillment.
+Clothe yourself with the reality of the state you have just created in your [imagination](/glossary#imagination). You need not ask anyone's permission or help, but moving into the new state in your [imagination](/glossary#imagination), simply remain there until you feel its reality. Then let the [feeling](/glossary#feeling) go its way toward fulfillment.
 
 A friend recently wrote, saying: "Not understanding why I read the Bible but never attend church, a friend brought a group of missionaries from the Mormon church to the house to convert me. Regretfully, I invited them in, and no matter what I said they would not listen. Rather, they expressed their own opinions and would not let me speak.
 
@@ -18,7 +18,7 @@ A friend recently wrote, saying: "Not understanding why I read the Bible but nev
 
 My friend was shown how discriminating one must become. The moment you contemplate something you become the very thing you behold. Entertaining a state in sympathy, my friend entered it. That night her heavenly Father taught her a great lesson. That no matter how awake one may be in this world, no one is exempt from falling into a state.
 
-Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly Dreams of good and evil, when it left paradise following the serpent."* The serpent, the wisest of [God](/glossary#god)'s creations, is the personification of God's wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
+Blake understood this truth when he said: *"From this I realize that neither the just nor the wicked are in a supreme state, but to be every one of them states of the sleep which the soul may fall into in its deadly Dreams of good and evil, when it left paradise following the serpent."* The serpent, the wisest of [God](/glossary#god)'s creations, is the personification of [God](/glossary#god)'s wisdom and power. It was he who told the woman: *"You will not surely die, but will become as the gods, knowing good and evil."*
 
 Entering a world of death, you will seem to die to those who cannot follow you - but not to yourself. Instead, you are restored to an unaccountably young body. You may leave an old body with missing hair and teeth, to find yourself in a healthy, new body with your hair and teeth intact. This I know to be true, for my vision is open and I have seen those who have departed this life. I know they are not gone, but are restored to wear a new, young, and healthy body.
 
@@ -51,7 +51,7 @@ If God - the creator of all life - wants to be known and loved by you, He must b
 
 Being a thinking being, you are unable to know a thought greater than yourself; for God - the Father of all life - became individualized in order for you to discover that you are He. And because God is a Father, he must have a child. Therefore, one day God's son, David, will call you Father and your true identity will be revealed. There is no other way to discover your Fatherhood.
 
-I urge you to dream nobly. Although your dream may seem impossible, invite it into your consciousness by feeling it is real. Wear this feeling as you would a suit of clothes, and persist until the feeling takes on the tones of reality. Do that, and in a way no one knows, your desire will appear as an eruption of your continuous thought.
+I urge you to dream nobly. Although your dream may seem impossible, invite it into your consciousness by [feeling](/glossary#feeling) it is real. Wear this feeling as you would a suit of clothes, and persist until the feeling takes on the tones of reality. Do that, and in a way no one knows, your desire will appear as an eruption of your continuous thought.
 
 Your desire started in motion when you wore it. Its appearance is simply a hidden continuity which came to the surface. Dwell upon a thought, and you will realize that it is not original. That the thought itself is complete and therefore every thought is Divine plagiarism!
 
@@ -83,7 +83,7 @@ You do not have to have a dream of the night to influence the behavior of others
 
 You can sit quietly and enter a glorious dream. If it's shadowy, you are not in it. Persist until you enter it, and it will become the only reality. Live in the state of your fulfilled desire now, knowing that in a way unknown and unnoticed by you it will erupt to become an objective fact.
 
-Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your Assumption and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
+Take the challenge of scripture: *"Whatever you desire, believe you have received it and you will."* Dare to believe you have what reason and your senses deny. Persist in your [Assumption](/glossary#assumption) and it will harden into fact. Try it and see! And remember: the Father who became you is speaking to you through the medium of dream and revealing himself in vision, for this world is His play!
 
 One day you will leave this play, knowing you are God the Father who conceived it all. Beginning as the one God, we fell as the gods. But we will return to the one God, for it takes all of us to form the Lord. *"Hear O Israel, the Lord our God, is one Lord."*
 

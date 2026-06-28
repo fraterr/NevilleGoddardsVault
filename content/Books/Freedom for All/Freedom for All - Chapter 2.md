@@ -18,7 +18,7 @@ The first letter, JOD, represents the absolute [state](/glossary#state) or consc
 
 In the terminology of today JOD is [I AM](/glossary#i-am), or unconditioned consciousness.
 
-The second letter, HE, represents the only begotten Son, a desire, an imaginary state. It symbolizes an idea; a defined subjective state or clarified mental picture.
+The second letter, HE, represents the only begotten Son, a desire, an imaginary [state](/glossary#state). It symbolizes an idea; a defined subjective state or clarified mental picture.
 
 The third letter, VAU, symbolizes the act of unifying or joining the conceiver (JOD), the consciousness desiring to the conception (HE), the state desired, so that the conceiver and the conception become one.
 
@@ -32,7 +32,7 @@ The world is the image and likeness of the subjective conscious state which crea
 
 The visible world of itself can do nothing; it only bears record of is creator, the subjective state. It is the visible Son (HE) bearing witness of the invisible Father, Son and Mother – JOD HE VAU – a Holy Trinity which can only be seen when made visible as man or manifestation.
 
-Your unconditioned consciousness (JOD) is your I AM which visualizes or imagines a desirable state (HE), and then becomes conscious of being that state imagined by feeling and believing itself to be the imagined state. The conscious union between you who desire and that which you desire to be, is made possible through the VAU, or your capacity to feel and believe.
+Your unconditioned consciousness (JOD) is your [I AM](/glossary#i-am) which visualizes or imagines a desirable state (HE), and then becomes conscious of being that state imagined by [feeling](/glossary#feeling) and believing itself to be the imagined state. The conscious union between you who desire and that which you desire to be, is made possible through the VAU, or your capacity to feel and believe.
 
 Believing is simply living in the feeling of actually being the state imagined – by assuming the consciousness of being the state desired. The subjective state symbolized as JOD HE VAU then objectifies itself as HE, thereby completing the mystery of the creator’s name and nature, JOD HE VAU HE (Jehovah).
 

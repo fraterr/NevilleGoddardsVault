@@ -6,7 +6,7 @@ The higher concept is waiting for you to incarnate it in the world of experience
 
 *"Now unto Him that is able to do exceeding abundantly above all that we ask or think, according to the power that worketh in us, unto him be glory."* ([Eph. 3:20](https://www.biblegateway.com/passage/?search=Ephesians+3:20&version=KJV))
 
-Him, that is able to do more than you can ask or think, is your [imagination](/glossary#imagination), and the power that worketh in us is your attention. Understanding imagination to be HIM that is able to do all that you ask, and attention to be the power by which you create your world, you can now build your ideal world. Imagine yourself to be the ideal you dream of and desire. Remain attentive to this imagined [state](/glossary#state), and as fast as you completely feel that you are already this ideal it will manifest itself as reality in your world.
+Him, that is able to do more than you can ask or think, is your [imagination](/glossary#imagination), and the power that worketh in us is your attention. Understanding [imagination](/glossary#imagination) to be HIM that is able to do all that you ask, and attention to be the power by which you create your world, you can now build your ideal world. Imagine yourself to be the ideal you dream of and desire. Remain attentive to this imagined [state](/glossary#state), and as fast as you completely feel that you are already this ideal it will manifest itself as reality in your world.
 
 He was in the world, and the world was made by him and the world knew him not.
 
@@ -16,7 +16,7 @@ The *“He,”* in the first of these quotations, is your imagination. As previo
 
 The mystery, [Christ](/glossary#christ) in you, referred to in the second quotation, is your imagination, by which your world is molded. The hope of glory is your awareness of the ability to rise perpetually to higher levels.
 
-Christ is not to be found in history nor in external forms. You find Christ only when you become aware of the fact that your imagination is the only redemptive power. When this is discovered, the *“towers of dogma will have heard the trumpets of Truth, and, like the walls of Jericho, crumble to dust.”*
+[Christ](/glossary#christ) is not to be found in history nor in external forms. You find Christ only when you become aware of the fact that your imagination is the only redemptive power. When this is discovered, the *“towers of dogma will have heard the trumpets of Truth, and, like the walls of Jericho, crumble to dust.”*
 
 
 

@@ -4,9 +4,9 @@ There is nothing that appears in perception which cannot be duplicated in fancy,
 
 Having smelled an Easter lily, can you not discriminate between the smell of a rose and a lily, imaginatively? Then they do not exist independent of you, but live on some level (or levels) of your [imagination](/glossary#imagination)! Can you call upon your memory of an experience of long ago, bring it back, and duplicate it in fancy? If so, then this world is no different from your imaginal one! 
 
-In 1820, William Blake wrote 'The Presence of the Divine Teacher,' in which he said: *"Man is all Imagination and [God](/glossary#god) is Man and exists in us and us in Him. The Divine Body Jesus, we are his members."* In this statement Blake does not separate the members from the one body, the one spirit, one hope, one Lord, one faith, one God and Father of us all. There is only one Imaginal Body. We are all His members, for we are all Imagination! 
+In 1820, William Blake wrote 'The Presence of the Divine Teacher,' in which he said: *"Man is all [Imagination](/glossary#imagination) and [God](/glossary#god) is Man and exists in us and us in Him. The Divine Body Jesus, we are his members."* In this statement Blake does not separate the members from the one body, the one spirit, one hope, one Lord, one faith, one [God](/glossary#god) and Father of us all. There is only one Imaginal Body. We are all His members, for we are all Imagination! 
 
-You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. [There is no fiction](/lectures/there-is-no-fiction) in the true sense of the world, for when a [state](/glossary#state) is imagined, it is created. Prayer is imagination drenched in [feeling](/glossary#feeling). A desire, drenched in the feeling of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
+You can reproduce and duplicate any perception you have ever encountered, in your imagination. A friend or dear one does not need to be physically present for you to think of him. Nor do you have to be in your living room in order to see its contents. You can see the plains of Kansas, the mountains of Colorado, or the great Mississippi River without being there. So when we think from the premise of this as a world of imagination, we start on solid ground, for imagination is He who creates reality. [There is no fiction](/lectures/there-is-no-fiction) in the true sense of the world, for when a [state](/glossary#state) is imagined, it is created. Prayer is imagination drenched in [feeling](/glossary#feeling). A desire, drenched in the [feeling](/glossary#feeling) of fulfillment, objectifies itself. This I know to be true; so regardless of what the world thinks, when you reproduce anything in your mind it takes on form in your outer world. 
 
 Everything here was once only imagined. The clothes you wear, the chair in which you are now seated, the building which houses you - all were first only imagined. Everything begins and ends in the human imagination. The source of all phenomena is Divine Imagining, which is God Himself! 
 
@@ -24,7 +24,7 @@ God has risen and is rising in all. He deliberately took upon himself man's natu
 
 Having fallen, God must now rescue himself. This he will do, for he has prepared a way for his return. You see, no man or group of men killed Jesus. It is he who said: *"No man takes my life, I lay it down myself. I have the power to lay it down and the power to lift it up again."* Experiencing death by taking upon himself the animal nature of man, Imagination takes that energy and transforms it into his own likeness. 
 
-God is the great lover and artist who will transform you - his son of division, into himself - the image of love! Loving you so much He died to begin his good work in you, he will complete it at the day of Jesus Christ. On that day you will rise to His level, to discover that you and He are one creative power of love! 
+God is the great lover and artist who will transform you - his son of division, into himself - the image of love! Loving you so much He died to begin his good work in you, he will complete it at the day of Jesus [Christ](/glossary#christ). On that day you will rise to His level, to discover that you and He are one creative power of love! 
 
 There is only one way to return to the awareness of being God the Father, and that is to [follow the pattern](/lectures/follow-the-pattern) of the true words which you have heard from me. I tell you from experience: you will awaken, rise and are born from above. Five months later David will stand before you and call you Father. Four months from that date, your spiritual body will be split and He who wove it for you will unwind himself as you! Then two years and nine months later, the Holy Spirit, in the form of a dove, will descend upon you and smother you with love. 
 
@@ -44,7 +44,7 @@ He who started the journey is wearing your mask right now, and He will continue 
 
 Many believe scripture is a myth, but when it is experienced in the depth of the soul, it is literally true. This you will know from experience. Having reached the limit of contraction to experience the nature of man, you will ascend into a limitless expansion as God. 
 
-Returning with all that you have experienced, your tremendous power is added to God's already existing power. Then God, forever expanding, will decide on another adventure and we will all once again fall into a state like this in order to grow and grow and grow in our own wonderful human imagination! 
+Returning with all that you have experienced, your tremendous power is added to God's already existing power. Then God, forever expanding, will decide on another adventure and we will all once again fall into a [state](/glossary#state) like this in order to grow and grow and grow in our own wonderful human imagination! 
 
 Now remember: nothing appears in perception that cannot be duplicated in fancy. If you can perceive your desire, it exists. You cannot perceive an object that does not exist on some level (or levels) of imagination. Identify your human imagination with God, and because God calls a thing that is not now seen as though it were seen, you can call a state into being by assuming you are in it. And if you believe you have received your desire, you will, for belief will lead the way to its fulfillment. 
 
@@ -72,7 +72,7 @@ Now let us go into the silence.
 - The fallen state of humanity is seen as temporary, as God will ultimately bring all individuals back together to form the collective presence of unity.
 
 ### Jesus Christ and Imagination
-- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of Assumption.
+- Jesus Christ serves as a pattern for mankind, as He took on the nature of man through the act of [Assumption](/glossary#assumption).
 - He did not embody a specific individual like Neville, but rather the nature of every human being.
 - By doing so, Jesus became the type upon which each individual is molded, raising human existence to divine levels.
 

@@ -8,7 +8,7 @@ Whenever we imagine things as they ought to be, rather than as they seem to be, 
 
 Satan, Blake writes, is a *"Reactor"*. He never acts; he only reacts. And if our attitude to the happenings of the day is *"reactionary"*, are we not playing Satan's part?
 
-Man is only reacting in his natural or Satan [state](/glossary#state); he never acts or creates, he only re-acts or re-creates. One real creative moment, one real [feeling](/glossary#feeling) of the wish fulfilled, is worth more than the whole natural life of re-action. In such a moment, God's work is done.
+Man is only reacting in his natural or Satan [state](/glossary#state); he never acts or creates, he only re-acts or re-creates. One real creative moment, one real [feeling](/glossary#feeling) of the wish fulfilled, is worth more than the whole natural life of re-action. In such a moment, [God](/glossary#god)'s work is done.
 
 Once more, we may say with Blake,
 *"[God only Acts](/lectures/god-only-acts) and Is, in existing beings or Men."* (The Marriage of Heaven and Hell", 1793)
@@ -39,7 +39,7 @@ This story tells of a young woman who found the Moment and, by acting out her dr
 
 The fancy satisfied my feelings regarding the 'real' incident, and I immediately forgot it. Four blocks farther, I was still in the center lane and again had to stop for a red signal. My attention at this time was turned inward on something I have now forgotten, when suddenly someone tapped on the closed window of my car and I looked up to see a lovely-appearing elderly lady with grey hair, dressed all in grey. Smiling, she asked if she might ride a few blocks with me as she had missed her bus. She was out of breath, as though from running, and I was so stunned by her sudden appearance in the middle of a busy street at my window that for a moment I could only react physically, and without answering, leaned over and opened my car door. She got in and said, 'It's so annoying to rush so and then miss a bus. I wouldn't have imposed on you like this, but I'm supposed to meet some friends a few blocks down the street and if I had to walk now, I would miss them.' Six blocks farther on, she exclaimed, 'Oh, good! They're still waiting for me.' I let her out and she thanked me again and walked away. "I'm afraid I drove to my own destination by automatic reflex, for I had fully recognized that I had just observed a waking dream take form in physical action. I recognized what was happening while it was happening. As soon as I could, I wrote down each part of the incident and found a startling consistency between the 'waking dream' and the subsequent 'reality'. Both women were elderly, gracious in manner, dressed all in grey, and out of breath from hurrying to catch a bus and missing it. Both wished to meet friends (who for some reason could not wait for them much longer) and both left my car within the space of a few blocks after successfully completing their contact with their friends.
 
-*"I am amazed, confounded and elated! If there is no such thing as coincidence or accident — then I witnessed imagination become 'reality' almost instantaneously."* ...J.R.B.
+*"I am amazed, confounded and elated! If there is no such thing as coincidence or accident — then I witnessed [imagination](/glossary#imagination) become 'reality' almost instantaneously."* ...J.R.B.
 
 *"There is a Moment in each Day that Satan cannot find. Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."*
 
@@ -53,7 +53,7 @@ The fancy satisfied my feelings regarding the 'real' incident, and I immediately
 
 "Last Friday, I drove to our country home — nothing was unusual about the day or evening. I worked on a manuscript and, not being tired, did not try to fall off to sleep until around two the following morning. Then I turned off the light and drifted into that floating sensation, not asleep but drowsy, as I call it, half awake and half asleep.
 
-"Often, while in this state — lovely, unknown faces float before me — but this morning the experience was different. A perfect face of a child came before me in profile — then it turned and smiled at me. It was glowing with light and seemed to fill my own head with light.
+"Often, while in this [state](/glossary#state) — lovely, unknown faces float before me — but this morning the experience was different. A perfect face of a child came before me in profile — then it turned and smiled at me. It was glowing with light and seemed to fill my own head with light.
 
 *"I was aglow and excited and thought 'this must be the Christos'; but something within me, without sound, said, 'No, this is you'. I feel I will never be the same again and some day I may experience the 'Promise'."* ...G.B.
 

@@ -8,7 +8,7 @@
 
 *"[Four Mighty Ones](/lectures/four-mighty-ones) are in every man."* (William Blake)
 
-The *"Four Mighty Ones"* constitute the selfhood of man, or God in man. There are *"Four Mighty Ones"* in every man, but these *"Four Mighty Ones"* are not four separate beings, separated one from the other as are the fingers of his hand.
+The *"Four Mighty Ones"* constitute the selfhood of man, or [God](/glossary#god) in man. There are *"Four Mighty Ones"* in every man, but these *"Four Mighty Ones"* are not four separate beings, separated one from the other as are the fingers of his hand.
 
 The *"Four Mighty Ones"* are four different aspects of his mind, and differ from one another in function and character without being four separate selves inhabiting one man's body.
 
@@ -39,7 +39,7 @@ This function may be likened to a controlled and consciously directed attention 
 
 *"The form of the Fourth is like the Son of God"* - human [imagination](/glossary#imagination), the actor.
 
-This fourth *"Mighty One"* performs within himself, in imagination, the pre-determined action which implies the fulfillment of the wish. This function does not visualize or observe the action. This function actually enacts the drama, and does it over and over again until it takes on the tones of reality.
+This fourth *"Mighty One"* performs within himself, in [imagination](/glossary#imagination), the pre-determined action which implies the fulfillment of the wish. This function does not visualize or observe the action. This function actually enacts the drama, and does it over and over again until it takes on the tones of reality.
 
 Without the dramatized vision of fulfilled desire, the theme remains a mere theme and sleeps forever in the vast chambers of unborn themes. Nor without the co-operant attention, obedient to the dramatized vision of fulfilled desire, will the vision perceived attain objective reality.
 
@@ -83,7 +83,7 @@ In January of 1946, I took my wife and little daughter to Barbados in the Britis
 
 A few days later, the ship from New York was anchored in the harbor. I observed it very carefully, and decided that this was the ship we should take. I returned to my hotel and determined on an inner action that would be mine were we actually sailing on that ship. I settled down in an easy chair in my bedroom, to lose myself in this imaginative action.
 
-In Barbados, we take a motor launch or rowboat out into the deep harbor when we embark on a large steamer. I knew I must catch the [feeling](/glossary#feeling) that we were sailing on that ship. I chose the inner action of stepping from the tender and climbing up the gangplank of the steamer. The first time I tried, my attention wandered after I had reached the top of the gangplank. I brought myself back down, and tried again and again. I do not recall how many times I carried out this action in my imagination until I reached the deck and looked back at the port with the feeling of sweet sadness at departing. I was happy to be returning to my home in New York, but nostalgic in saying goodbye to the lovely island and our family and friends. I do recall that in one of my many attempts at walking up the gangplank in the feeling that I was sailing, I fell asleep. After I awoke, I went about the usual social activities of the day and evening.
+In Barbados, we take a motor launch or rowboat out into the deep harbor when we embark on a large steamer. I knew I must catch the [feeling](/glossary#feeling) that we were sailing on that ship. I chose the inner action of stepping from the tender and climbing up the gangplank of the steamer. The first time I tried, my attention wandered after I had reached the top of the gangplank. I brought myself back down, and tried again and again. I do not recall how many times I carried out this action in my imagination until I reached the deck and looked back at the port with the [feeling](/glossary#feeling) of sweet sadness at departing. I was happy to be returning to my home in New York, but nostalgic in saying goodbye to the lovely island and our family and friends. I do recall that in one of my many attempts at walking up the gangplank in the feeling that I was sailing, I fell asleep. After I awoke, I went about the usual social activities of the day and evening.
 
 The following morning, I received a call from the steamship company requesting me to come down to their office and pick up our tickets for the April sailing. I was curious to know why Barbados had been chosen to receive the cancellation and why I, at the end of the long waiting list, was to have the reservation, but all that the agent could tell me was that a cable had been received that morning from New York, offering passage for three. I was not the first the agent had called, but for reasons she could not explain,those she had called said that now they found it inconvenient to sail in April. We sailed on April 20th and arrived in New York on the morning of May the first.
 

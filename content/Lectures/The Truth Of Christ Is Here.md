@@ -2,7 +2,7 @@
 
 There is something in this changing, changing world that never changes, and Scripture refers to that which never changes as Truth, So, Paul said, 'The Truth of [Christ](/glossary#christ) is here.'
 
-Now he defines Christ as 'the power of [God](/glossary#god) and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
+Now he defines [Christ](/glossary#christ) as 'the power of [God](/glossary#god) and the wisdom of [God](/glossary#god).' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
 
 He saw Christ as a plan ' God's plan of redemption) of man. But really, it was the redemption of himself, because [God became man](/lectures/god-became-man), that man might become God. So, he saw Christ differently and there was no one to this day who was greater than Paul concerning the spread of the knowledge of the truth of Christ.
 
@@ -44,7 +44,7 @@ Now let me share with you a simple, simple technique. You might have done this. 
 
 So, we turn back to the 43rd Psalm: 'Send me Thy light and Thy truth to lead me and to bring me to the Holy Hill and to Thy dwelling place.'
 
-Well, I have found it. I'm sitting in the silence, and then this whole thing envelops me, all golden, liquid light. Thinking of a friend and what the friend would like in this world, I bring that friend before me. But his request, or her request, must conform to the Golden Rule. In other words, I will ask nothing for anyone that I would not ask for myself. If they ask me to hear that you are dead that they may inherit your wealth, I could not be the one to whom they should turn. Turn elsewhere, but don't come to me to ask me to hurt anyone for your personal gain. But ask me anything and it's a simple matter.
+Well, I have found it. I'm sitting in the silence, and then this whole thing envelops me, all golden, liquid light. Thinking of a friend and what the friend would like in this world, I bring that friend before me. But his request, or her request, must conform to [the Golden Rule](/glossary#the-golden-rule). In other words, I will ask nothing for anyone that I would not ask for myself. If they ask me to hear that you are dead that they may inherit your wealth, I could not be the one to whom they should turn. Turn elsewhere, but don't come to me to ask me to hurt anyone for your personal gain. But ask me anything and it's a simple matter.
 
 In the silence, to just see is the most obvious thing in the world, these wonderful, golden, liquid circles that surround your head, and then they go off like someone blowing smoke rings, only instead of smoke, they are made of golden, liquid light. So, 'Send me your light and your truth,' for we are told: You shall know the Truth, and the Truth will make you free' , in this light, for 'I am the Light of the world.'
 
@@ -74,7 +74,7 @@ But God is not someone other than your Self. God-in-action is your own wonderful
 
 Everything that man has imagined, is now imagining, or will imagine, will be expressed, and humanity will express it. The individual comes out, but He is playing all the parts, and He can say, 'Forgive them. They know not what they do.' But each will come out, having played all the parts, and then he will be confronted with one being, a youth named David, and David will call him 'Father'; and then the drama is over and he knows who he is. He is God the Father.
 
-For the whole search of man is for the key, the Source of the phenomena of life. And there's only one God, and that God is your own wonderful human imagination. So, you are in search of that God, You will find Him, may I tell you, because Truth in Scripture is that which is firm and unchangeable. Let no one tell you that you will find it by dieting, by going to holy places, by attending services on Sunday morning, by going to Mass, by any outside ritual. Forget it.
+For the whole search of man is for the key, the Source of the phenomena of life. And there's only one God, and that God is your own wonderful human [imagination](/glossary#imagination). So, you are in search of that God, You will find Him, may I tell you, because Truth in Scripture is that which is firm and unchangeable. Let no one tell you that you will find it by dieting, by going to holy places, by attending services on Sunday morning, by going to Mass, by any outside ritual. Forget it.
 
 You are told: 'Blessed are [the pure in heart](/lectures/the-pure-in-heart), for they shall see God.' ([Matthew 5:8](https://www.biblegateway.com/passage/?search=Matthew+5:8&version=KJV)) Well, how do I think I'm 'pure in heart'? By diets? By going to church? By doing all the things that people tell me to do? No.
 
@@ -112,7 +112,7 @@ She grew into the consciousness of being wealthy. And they do it as you would fi
 
 'Hear, O Israel, the Lord our God, the Lord is one.'
 
-There are [infinite states](/lectures/infinite-states) of consciousness, and we are pilgrims passing through. When you pass through and you are in the state of poverty, and I say, 'Who is poor?' you would answer, 'I am.' Well, you have called the name of God! And then I meet some one who thinks he has a billion or two billion dollars, and I say, 'Who is a fabulously wealthy person?' and he will say, 'I am,' with great pride; but he doesn't differ in name, the name of God, from the poor one who can't pay the rent. It's only a difference in state.
+There are [infinite states](/lectures/infinite-states) of consciousness, and we are pilgrims passing through. When you pass through and you are in the [state](/glossary#state) of poverty, and I say, 'Who is poor?' you would answer, 'I am.' Well, you have called the name of God! And then I meet some one who thinks he has a billion or two billion dollars, and I say, 'Who is a fabulously wealthy person?' and he will say, 'I am,' with great pride; but he doesn't differ in name, the name of God, from the poor one who can't pay the rent. It's only a difference in state.
 
 'So I do not consider either the just or the wicked to be in a supreme state, but to be everyone of them states of the sleep into which the Soul may fall in its deadly dream of good and evil.' [Blake, from 'A Vision of the Last Judgment']
 
@@ -140,7 +140,7 @@ Why should I turn to someone else when He dwells in me? Well, find out Who He Is
 
 I bring before my mind's eye a scene, which implies that I am the man that I would like to be, and I re-enact that scene in my imagination. That is subjectively appropriating the objective hope. I re-enact the whole thing in my imagination, and then I reap the reality of that subjective appropriation, and do nothing about it. Capture that mood until life begins to really pulse, and then, while they are pulsing, you have sent it into the world. It impinges on everyone in the world, and they, whether they want to or not, are under compulsion to aid the purpose of that subjective hope and you will become the one that you've assumed that you are.
 
-Do it with love. Always do it in love and you're doing it the right way. I'm told by Paul, the first great convert by his own experience, because he said, 'When it pleased God to reveal His Son in me, I conferred not with flesh and blood.' He reveals His Son in you. Where else can He reveal him when the whole drama takes place within man? All things take place within the human imagination. 'And it pleased God to reveal His Son in me.' Well then, His Son is standing before me. I'll see him, and he is not His son; he's my son. Then I know who He is that I formerly worshipped. It's not any he ' I AM.
+Do it with love. Always do it in love and you're doing it the right way. I'm told by Paul, the first great convert by his own experience, because he said, 'When it pleased God to reveal His Son in me, I conferred not with flesh and blood.' He reveals His Son in you. Where else can He reveal him when the whole drama takes place within man? All things take place within the human imagination. 'And it pleased God to reveal His Son in me.' Well then, His Son is standing before me. I'll see him, and he is not His son; he's my son. Then I know who He is that I formerly worshipped. It's not any he ' [I AM](/glossary#i-am).
 
 That's the story. 'For no one knows who the son is except the Father, and no one knows who the Father is except the son.' So, no one ever sees God! But 'the son, who is in the bosom of the Father, he hath made him known.' So the son appears and calls you 'Father.' Then, and only then, do you know you are the Father.
 

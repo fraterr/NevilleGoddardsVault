@@ -4,7 +4,7 @@
 
 Nothing appears or continues in being by a power of its own. Events happen because comparatively stable imaginal activities created them, and they continue in being by virtue of the support they receive from such imaginal activities. The part which imagining the wish fulfilled plays in consciously creating circumstances is obvious in this series of stories.
 
-You will see how the telling of one story of the successful use of imagination can serve as a spur and a challenge to others to *"try"* it and *"see"*.
+You will see how the telling of one story of the successful use of [imagination](/glossary#imagination) can serve as a spur and a challenge to others to *"try"* it and *"see"*.
 
 One night a gentleman rose in my audience. He said that he had no question to ask but would like to tell me something. This was his story:
 
@@ -20,7 +20,7 @@ This was my entire imaginal drama; and for three weeks, night after night, I ena
 
 *"After three weeks I traveled physically to the Caliente Race Track, and on that day every detail of my imaginative play was actually realized. The only change in the scene was that the cashier gave me a check for a total of $84,000.00 instead of currency."* ...T.K.
 
-After my lecture the night this story was told, a man in the audience asked me if I thought it possible for him to duplicate T.K.'s experience. I told him he must decide the circumstances of his imaginal scene himself but that whatever scene he chose, he must create a drama he could make natural to himself and imagine the end intently with all the feeling he could muster; he must not labor for the means to the end but live imaginatively in the feeling of the wish fulfilled.
+After my lecture the night this story was told, a man in the audience asked me if I thought it possible for him to duplicate T.K.'s experience. I told him he must decide the circumstances of his imaginal scene himself but that whatever scene he chose, he must create a drama he could make natural to himself and imagine the end intently with all the [feeling](/glossary#feeling) he could muster; he must not labor for the means to the end but live imaginatively in the feeling of the wish fulfilled.
 
 One month later he showed me a check for $16,000.00 which he had won in another 5-10 pool at the same Caliente Race Track the previous day.
 

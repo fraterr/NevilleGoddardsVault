@@ -1,12 +1,12 @@
 # What Are You Doing
 
-Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For [God](/glossary#god)'s name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human [imagination](/glossary#imagination) and there is [no other God](/lectures/no-other-god). 
+Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For [God](/glossary#god)'s name is I Am, not I did! Always thinking of [God](/glossary#god) as someone outside of himself, man finds it difficult to keep the tense, but God is the human [imagination](/glossary#imagination) and there is [no other God](/lectures/no-other-god). 
 
 When you imagine you may include others, but do not think in terms of influence. Rather, think only in terms of clarity of form. 
 
 Perhaps a friend would like a better job, more money, and greater responsibility. Before you imagine, take a moment and clarify the form your imaginal act will take. Are you giving the celebration party or is he? Who will be there? Fill the room with those who would want to share in the celebration. Raise your glass and say: *"Here's to your fabulous new job, your salary increase, and the challenge of your greater responsibility!"* Don't think in terms of trying to influence the friend's boss, for he could die or be discharged. Just go to the end. Toast the event, and do not think of influencing others. 
 
-[The law](/glossary#the-law), to be effective, needs [feeling](/glossary#feeling) with form. Build a structure that would imply your desire is already fulfilled, and enter its form with feeling. You do not have to be concerned about influencing others, as they are not the cause - your imaginal act is! Those who have a billion dollars are not causing your world. You and you alone are doing it, as your imaginal acts influence people. Everyone is yourself pushed out, so when you imagine, you are influencing yourself! 
+[The law](/glossary#the-law), to be effective, needs [feeling](/glossary#feeling) with form. Build a structure that would imply your desire is already fulfilled, and enter its form with [feeling](/glossary#feeling). You do not have to be concerned about influencing others, as they are not the cause - your imaginal act is! Those who have a billion dollars are not causing your world. You and you alone are doing it, as your imaginal acts influence people. Everyone is yourself pushed out, so when you imagine, you are influencing yourself! 
 
 Knowing what you want, place your attention on its clarity of form, and then watch what you are imagining. Are you remembering when you imagined something greater than what you have? If so, you are confessing you are not now imagining your desire fulfilled. If imagining creates reality, you must change your memory and become aware of what you are imagining right now. 
 
@@ -28,7 +28,7 @@ On this level no one sees that body, but she saw it in the spirit and brought th
 
 Now a dream is egocentric, with every aspect of it taking place in the individual. Although the dream unfolds in one, that one contains all. In her dream the father is unseen, but projects himself into the teacher - who tells her that her father is the God of love. 
 
-Returning to this level, the first words given us by the one who comes to reveal this truth - that imagining creates reality - are: 'Repent and believe in the gospel.' Repentance, which is a radical change of attitude, can cause your powerful imagination to burst through this world of death. So I ask you to repent. To test this wonderful law by changing your attitude towards life and watch what happens. 
+Returning to this level, the first words given us by the one who comes to reveal this truth - that imagining creates reality - are: 'Repent and believe in the gospel.' Repentance, which is a radical change of attitude, can cause your powerful [imagination](/glossary#imagination) to burst through this world of death. So I ask you to repent. To test this wonderful law by changing your attitude towards life and watch what happens. 
 
 A gentleman recently dreamed he was peeling his head, bringing the skin down to his neck then pulling it back again. As he did, he realized that he was generating light from the inside and knew that the outside was completely dark. This gentleman saw the truth. Blake said it so beautifully: '[All that you behold](/lectures/all-that-you-behold), though it appears without it is within, in your imagination of which this world of mortality is but a shadow.' Now he knows that the outer world is being lit by the light of awareness which comes from within. 
 
@@ -72,7 +72,7 @@ Now let us go into the silence.
 
 ### Influencing Others through Imaginal Acts:
 - When imagining for someone else, clarify the form of the imaginal act and focus on the celebration rather than trying to influence others.
-- The law needs feeling with form to be effective.
+- [The law](/glossary#the-law) needs feeling with form to be effective.
 - Your imaginal acts influence people, as everyone is yourself pushed out.
 
 ### Awareness of Current Imagining:
@@ -91,12 +91,12 @@ Now let us go into the silence.
 - The awakening of the sleeping one within all is essential, as everyone receives the same message and blows.
 
 ### Common Fatherhood and Individuality:
-- Everyone is the father of the same child, Jesus Christ.
+- Everyone is the father of the same child, Jesus [Christ](/glossary#christ).
 - Our common fatherhood proves our brotherhood and unity.
 
 ### Clarity of Form and Influence:
 - Clarity of form influences others, but focusing on influencing reduces miracles to magic.
-- Draw your outline and make your picture clear, focusing on your desired state.
+- Draw your outline and make your picture clear, focusing on your desired [state](/glossary#state).
 - Movement in the imagination influences others, as they are only yourself pushed out.
 
 ### Transience of Earthly Desires and Persistence in Imagination:

@@ -26,7 +26,7 @@ These two states then, your problem and its solution, are the two birds you brin
 
 First: Take one of the birds (your problem) and kill it by extracting the blood from it. Blood is man’s consciousness. *"He hath made of one blood all nations of men to dwell on all the face of the earth"* ([Acts 17:26](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)).
 
-Your consciousness is the one and only reality which animates and makes real that which you are conscious of being. So turning your attention away from the problem is equivalent to extracting the blood from the bird. Your consciousness is the one blood which makes all states living realities. By removing your attention from any given [state](/glossary#state) you have drained the lifeblood from that state. You kill or eliminate the first bird (your problem) by removing your attention from it. Into this blood (your consciousness) you dip the live bird (the solution), or that which heretofore you desired to be or possess. This you do by freeing yourself to be the desirable state now.
+Your consciousness is the one and only reality which animates and makes real that which you are conscious of being. So turning your attention away from the problem is equivalent to extracting the blood from the bird. Your consciousness is the one blood which makes all states living realities. By removing your attention from any given [state](/glossary#state) you have drained the lifeblood from that [state](/glossary#state). You kill or eliminate the first bird (your problem) by removing your attention from it. Into this blood (your consciousness) you dip the live bird (the solution), or that which heretofore you desired to be or possess. This you do by freeing yourself to be the desirable state now.
 
 The dipping of the live bird into the blood of the bird that was killed is similar to the blessing of Jacob by his blind father Isaac. As you recall, blind Isaac could not see his objective world, his son Esau. You, too, are blind to your problem – the first bird – for you have removed your attention from it and therefore you do not see it. Your attention (blood) is now placed upon the second bird (subjective state), and you feel and sense the reality of it.
 
@@ -74,7 +74,7 @@ Living in this fixed attitude of mind, living in the consciousness that you are 
 
 ### You are the high priest and the leper
 
-- Your I AM is the high priest.
+- Your [I AM](/glossary#i-am) is the high priest.
 - You are the leper.
 - Problem is the killed bird. Solution is the freed bird.
 

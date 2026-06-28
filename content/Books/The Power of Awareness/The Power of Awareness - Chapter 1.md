@@ -2,13 +2,13 @@
 
 *"All things when they are admitted are made manifest by the light: for everything that is made manifest is light."* ([Eph. 5:13](https://www.biblegateway.com/passage/?search=Ephesians+5:13&version=KJV)).
 
-The *“light”* is consciousness. Consciousness is one, manifesting in legions of forms or levels of consciousness. There is no one that is not all that is, for consciousness, though expressed in an infinite series of levels, is not divisional. There is no real separation or gap in consciousness. [I AM](/glossary#i-am) can not be divided. I may conceive myself to be a rich man, a poor man, a beggar man or a thief, but the center of my being remains the same regardless of the concept I hold of myself. At the center of manifestation there is only one I AM manifesting in legions of forms or concepts of itself and *“I am that I am.”*
+The *“light”* is consciousness. Consciousness is one, manifesting in legions of forms or levels of consciousness. There is no one that is not all that is, for consciousness, though expressed in an infinite series of levels, is not divisional. There is no real separation or gap in consciousness. [I AM](/glossary#i-am) can not be divided. I may conceive myself to be a rich man, a poor man, a beggar man or a thief, but the center of my being remains the same regardless of the concept I hold of myself. At the center of manifestation there is only one [I AM](/glossary#i-am) manifesting in legions of forms or concepts of itself and *“I am that I am.”*
 
 I AM is the self-definition of the absolute, the foundation on which everything rests. I AM is the first cause- substance. I AM is the self-definition of [God](/glossary#god).
 
-I AM hath sent me unto you. I AM THAT I AM. Be still and know that I AM God.
+I AM hath sent me unto you. I AM THAT I AM. Be still and know that I AM [God](/glossary#god).
 
-I AM is a [feeling](/glossary#feeling) of permanent awareness. The very center of consciousness is the feeling of I AM I may forget who I am, where I am, what I am but I cannot forget that I AM. The awareness of being remains, regardless of the degree of forgetfulness of who, where, and what I am.
+I AM is a [feeling](/glossary#feeling) of permanent awareness. The very center of consciousness is the [feeling](/glossary#feeling) of I AM I may forget who I am, where I am, what I am but I cannot forget that I AM. The awareness of being remains, regardless of the degree of forgetfulness of who, where, and what I am.
 
 I AM is that which, amid unnumbered forms is ever the same. This great discovery of cause reveals that, good or bad, man is actually the arbiter of his own fate, and that it is his concept of himself that determines the world in which he lives [and his concept of himself is his reactions to life]. In other words. If you are experiencing ill health, knowing the truth about cause, you cannot attribute the illness to anything other than to the particular arrangement of the basic cause-substance, an arrangement which [was produced by your reactions to life, and] is defined by your concept *“I am unwell.”* This is why you are told “Let the weak man say, ‘I am strong’ “ ([Joel 3:10](https://www.biblegateway.com/passage/?search=Joel+3:10&version=KJV)), for by his [Assumption](/glossary#assumption), the cause-substance — I AM — is rearranged and must, therefore, manifest that which its rearrangement affirms. This principle governs every aspect of your life, be it social, financial, intellectual, or spiritual.
 
@@ -55,7 +55,7 @@ Leaving thine outgrown shell by life’s unresting sea!
 
 ### Consciousness Explains Life's Phenomena
 
-- State of consciousness explains the phenomena of life.
+- [State](/glossary#state) of consciousness explains the phenomena of life.
 - Different self-concepts would create different worlds.
 - You are the infinite I AM displaying a limited aspect of itself.
 - Build more stately mansions, leave the low-vaulted past.

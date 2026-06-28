@@ -1,8 +1,8 @@
 # The Power of Awareness - Chapter 14
 
-The principle of *“Least Action”* governs everything in physics from the path of a planet to the path of a pulse of light. Least Action is the minimum of energy, multiplied by the minimum of time. Therefore, in moving from your present [state](/glossary#state) to the state desired, you must use the minimum of energy and take the shortest possible time. Your journey from one state of consciousness to another is a psychological one, so, to make the journey, you must employ the psychological equivalent of *“Least Action,”* and the psychological equivalent is mere [Assumption](/glossary#assumption).
+The principle of *“Least Action”* governs everything in physics from the path of a planet to the path of a pulse of light. Least Action is the minimum of energy, multiplied by the minimum of time. Therefore, in moving from your present [state](/glossary#state) to the [state](/glossary#state) desired, you must use the minimum of energy and take the shortest possible time. Your journey from one state of consciousness to another is a psychological one, so, to make the journey, you must employ the psychological equivalent of *“Least Action,”* and the psychological equivalent is mere [Assumption](/glossary#assumption).
 
-The day you fully realize the power of Assumption, you discover that it works in complete conformity with this principle. It works by means of attention, minus effort. Thus, with least action through an Assumption you hurry without haste and reach your goal without effort. Because creation is finished, what you desire already exists. It is excluded from view because you can see only the contents of your own consciousness. It is the function of an Assumption to call back the excluded view and restore full vision. It is not the world but your assumptions that change. An Assumption brings the invisible into sight. It is nothing more nor less than seeing with the eye of [God](/glossary#god), i.e., [imagination](/glossary#imagination).
+The day you fully realize the power of [Assumption](/glossary#assumption), you discover that it works in complete conformity with this principle. It works by means of attention, minus effort. Thus, with least action through an Assumption you hurry without haste and reach your goal without effort. Because creation is finished, what you desire already exists. It is excluded from view because you can see only the contents of your own consciousness. It is the function of an Assumption to call back the excluded view and restore full vision. It is not the world but your assumptions that change. An Assumption brings the invisible into sight. It is nothing more nor less than seeing with the eye of [God](/glossary#god), i.e., [imagination](/glossary#imagination).
 
 For the Lord seeth not as a man seeth, for man looketh on the outward appearance, but the Lord looketh on the heart.
 
@@ -37,7 +37,7 @@ Looking on heart means seeing assumptions that determine experience.
 ### Present Moment Control
 
 Now is when assumptions can be controlled.
-Future must become present in mind to use law of Assumption.
+Future must become present in mind to use [law of Assumption](/glossary#law-of-assumption).
 
 ### Be Still and Become It
 
@@ -46,7 +46,7 @@ Longing should end in being. Translate Dreams into being.
 
 ### Fallacy of Unfulfilled Future Pictures
 
-Picturing desires without feeling of wish fulfilled is futile daydreaming.
+Picturing desires without [feeling](/glossary#feeling) of wish fulfilled is futile daydreaming.
 
 
 

@@ -12,7 +12,7 @@ Those who have had the pleasure of fishing know what a thrill it is to feel the 
 
 Fishermen know that if they wish to catch big fish, they must fish in deep waters; if you would catch a large measure of life, you must leave behind you the shallow waters with its many reefs and barriers and launch out into the deep blue waters where the big ones play. To catch the large manifestations of life you must enter into deeper and freer states of consciousness; only in these depths do the big expressions of life live.
 
-Here is a simple formula for successful fishing. First decide what it is you want to express or possess. This is essential. You must definitely know what you want of life before you can fish for it. After your decision is made, turn from the world of sense, remove your attention from the problem and place it on just being by repeating quietly but with [feeling](/glossary#feeling), *“[I AM](/glossary#i-am).”* As your attention is removed from the world round about you and placed upon the I AM so that you are lost in the feeling of simply being, you will find yourself slipping the anchor that tied you to the shallows of your problem; and effortlessly you will find yourself moving out into the deep.
+Here is a simple formula for successful fishing. First decide what it is you want to express or possess. This is essential. You must definitely know what you want of life before you can fish for it. After your decision is made, turn from the world of sense, remove your attention from the problem and place it on just being by repeating quietly but with [feeling](/glossary#feeling), *“[I AM](/glossary#i-am).”* As your attention is removed from the world round about you and placed upon the [I AM](/glossary#i-am) so that you are lost in the [feeling](/glossary#feeling) of simply being, you will find yourself slipping the anchor that tied you to the shallows of your problem; and effortlessly you will find yourself moving out into the deep.
 
 The sensation which accompanies this act is one of expansion. You will feel yourself rise and expand as though you were actually growing. Do not be afraid of this floating, growing experience for you are not going to die to anything but your limitations. However, your limitations are going to die as you move away from them for they live only in your consciousness.
 
@@ -59,7 +59,7 @@ Walk knowing your felt reality will soon manifest visibly.
 
 ### Life's Joy in Landing Your Wish
 
-Suddenly you will express your inner state. Like landing a big fish, this brings great joy!
+Suddenly you will express your inner [state](/glossary#state). Like landing a big fish, this brings great joy!
 
 ### Right Consciousness Attracts
 

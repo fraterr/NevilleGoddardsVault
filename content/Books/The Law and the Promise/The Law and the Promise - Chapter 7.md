@@ -12,7 +12,7 @@ Moods are not only the result of the conditions of our life; they are also the c
 
 In *"The Psychology of Emotions”, Professor Ribot writes, "* An idea which is only an idea produces nothing and does nothing; it only acts if it is felt, if it is accompanied by an effective [state](/glossary#state), if it awakens tendencies, that is to say, motor elements."
 
-The lady in the following story so successfully felt the feeling of her wish fulfilled, she made her mood the character of the night — frozen in a delightful dream.
+The lady in the following story so successfully felt the [feeling](/glossary#feeling) of her wish fulfilled, she made her mood the character of the night — frozen in a delightful dream.
 
 "Most of us read and love fairy stories, but we all know that stories of improbable riches and good fortune are for the delight of the very young. But are they? I want to tell you of something unbelievably wonderful that happened to me through the power of my [imagination](/glossary#imagination) — and I am not 'young' in years.
 
@@ -20,7 +20,7 @@ We live in an age which believes in neither fable nor magic, and yet everything 
 
 "At the time this wonderful thing happened to me I was out of a job and had no family to fall back upon for support. I needed just about everything. To find a decent job I needed a car to look for it, and though I had a car, it was so worn out it was ready to fall apart. I was behind in my rent; I had no proper clothes to seek a job; and today it's no fun for a woman of fifty-five to apply for a job of any kind. My bank account was almost depleted and there was no friend to whom I could turn.
 
-"But I had been attending your lectures for almost a year and my desperation forced me to put my imagination to the test. Indeed, I had nothing to lose. It was natural for me, I suppose, to begin by imagining myself having everything I needed. But I needed so many things and in such short order that I found myself exhausted when I finally got through the list, and by that time I was so nervous I could not sleep. One lecture night I heard you tell of an artist who captured the 'feeling', or 'word', as you called it, of 'isn't it wonderful!' in his personal experience.
+"But I had been attending your lectures for almost a year and my desperation forced me to put my [imagination](/glossary#imagination) to the test. Indeed, I had nothing to lose. It was natural for me, I suppose, to begin by imagining myself having everything I needed. But I needed so many things and in such short order that I found myself exhausted when I finally got through the list, and by that time I was so nervous I could not sleep. One lecture night I heard you tell of an artist who captured the 'feeling', or 'word', as you called it, of 'isn't it wonderful!' in his personal experience.
 
 "I began to apply this idea to my case. Instead of thinking of and imagining every article I needed, I tried to capture the 'feeling' that something wonderful was happening to me — not tomorrow, not next week — but right now.
 

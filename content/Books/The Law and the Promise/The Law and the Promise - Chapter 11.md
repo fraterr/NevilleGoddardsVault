@@ -4,11 +4,11 @@
 
 The word translated 'Potter' means [imagination](/glossary#imagination). Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
-This conception of creation as a work of imagination, and the Lord our Father as our imagination, will take us further into the mystery of creation than any other guide.
+This conception of creation as a work of [imagination](/glossary#imagination), and the Lord our Father as our imagination, will take us further into the mystery of creation than any other guide.
 
 The only reason people do not believe in this identity of [God](/glossary#god) and human imagination is that they are unwilling to assume the responsibility for their frightful misuse of imagination. Divine Imagination has descended to the level of human imagination, that human imagination may ascend to Divine Imagination.
 
-The 8th Psalm says that man was made a little lower than God — not a little lower than the angels — as the King James Version mistakenly translates it. Angels are the emotional dispositions of man and are therefore his servant — and not his superior — as the author of Hebrews tells us. ([Heb. 1:14](https://www.biblegateway.com/passage/?search=Hebrews+1:14&version=KJV).)
+The 8th Psalm says that man was made a little lower than [God](/glossary#god) — not a little lower than the angels — as the King James Version mistakenly translates it. Angels are the emotional dispositions of man and are therefore his servant — and not his superior — as the author of Hebrews tells us. ([Heb. 1:14](https://www.biblegateway.com/passage/?search=Hebrews+1:14&version=KJV).)
 
 Imagination is the Real Man and is one with God.
 
@@ -64,7 +64,7 @@ This lady imaginatively played *"Queen"* by being where she wanted to be in her 
 
 "Standing before the ticket window, my confidence dwindled as I gazed at the prices and saw three-seventy-five for orchestra seats.
 
-With a feeling of dismay I turned away quickly and walked across the street to a cafe for a cup of tea. I had spent sixteen cents on my tea before I remembered seeing the price of balcony seats on the ticket window list. Hurriedly, I counted my change and found I had one dollar and sixty-six cents left. Running back to the theatre, I bought the cheapest seat available which cost a dollar and fifty-five cents. With one dime left in my purse, I went through the entrance and the usher tore my ticket in half saying, *"Upstairs, left, please"*. The performance was about to begin, but ignoring the usher's instructions, I walked into the main floor lady's restroom. Still determined to sit in the orchestra section, I sat down, closed my eyes and kept my inward 'sight' riveted on the stage from the direction of the orchestra. At that moment, a group of women walked into the restroom, all talking at once, but I heard only one conversation as a woman speaking to her companion, said, 'But I waited and waited until the last moment. Then she called and said she couldn't make it. I would have given her ticket away but it's too late now. Not realizing it, I handed the usher both tickets and he tore them in half before I could stop him'.
+With a [feeling](/glossary#feeling) of dismay I turned away quickly and walked across the street to a cafe for a cup of tea. I had spent sixteen cents on my tea before I remembered seeing the price of balcony seats on the ticket window list. Hurriedly, I counted my change and found I had one dollar and sixty-six cents left. Running back to the theatre, I bought the cheapest seat available which cost a dollar and fifty-five cents. With one dime left in my purse, I went through the entrance and the usher tore my ticket in half saying, *"Upstairs, left, please"*. The performance was about to begin, but ignoring the usher's instructions, I walked into the main floor lady's restroom. Still determined to sit in the orchestra section, I sat down, closed my eyes and kept my inward 'sight' riveted on the stage from the direction of the orchestra. At that moment, a group of women walked into the restroom, all talking at once, but I heard only one conversation as a woman speaking to her companion, said, 'But I waited and waited until the last moment. Then she called and said she couldn't make it. I would have given her ticket away but it's too late now. Not realizing it, I handed the usher both tickets and he tore them in half before I could stop him'.
 
 I almost laughed aloud. Getting up, I walked over to this lady and asked if I might use the extra ticket she had, instead of the balcony seat I had bought. She was charming and kindly invited me to join her party. The ticket she handed me was for the orchestra section, center seat, six rows from the stage. I sat in that seat only moments before the curtain rose on a performance I had witnessed the night before from that seat — in my Imagination." ...J.R.
 
@@ -113,7 +113,7 @@ Daily feeling her dream exhibit excitedly open, it then physically took place.
 
 ### Test imagination to know the God within you
 
-Examine yourselves - does not Christ create in you? Apply imagination and watch results.
+Examine yourselves - does not [Christ](/glossary#christ) create in you? Apply imagination and watch results.
 
 ### Diamond and graphite show one substance, two forms
 

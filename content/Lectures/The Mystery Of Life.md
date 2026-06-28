@@ -6,9 +6,9 @@ Bear in mind, this is not secular history, but [salvation history](/lectures/sal
 
 Let me take these enigmatic words and show you what they really mean. The son of perdition is one who hears, but refuses to accept, the Christian revelation. The 2nd chapter of 2 Thessalonians tells us that: *"The lawless one, the son of perdition, will be revealed and the Lord Jesus will slay him with the breath of his mouth and destroy him by his appearing and his coming."* 
 
-I tell you salvation's story as I have experienced it. You may deny my words, or agree with them. Those who deny me are the anti-[Christ](/glossary#christ), the son of perdition. They themselves will not be destroyed, for the mystery of Christ will unfold in them. 
+I tell you salvation's story as I have experienced it. You may deny my words, or agree with them. Those who deny me are the anti-[Christ](/glossary#christ), the son of perdition. They themselves will not be destroyed, for the mystery of [Christ](/glossary#christ) will unfold in them. 
 
-Rather, the [state](/glossary#state) of consciousness in which they dwell, will be lost, to them *"for none have I lost but the son of perdition."* No individual will, or can be, destroyed, for he is a son of God. He can fall into the state known as the son of perdition, and while in it, completely deny this incredible story is true. But when it awakens in him and becomes true, then he has nowhere to go but to admit the experience. 
+Rather, the [state](/glossary#state) of consciousness in which they dwell, will be lost, to them *"for none have I lost but the son of perdition."* No individual will, or can be, destroyed, for he is a son of [God](/glossary#god). He can fall into the [state](/glossary#state) known as the son of perdition, and while in it, completely deny this incredible story is true. But when it awakens in him and becomes true, then he has nowhere to go but to admit the experience. 
 
 If I tell you the incredible story and you think it is silly, I am not concerned, but confident it is going to happen in you; and when it does, what you thought before does not matter. 
 

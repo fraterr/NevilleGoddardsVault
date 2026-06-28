@@ -2,7 +2,7 @@
 
 The body of scripture is the Word of [God](/glossary#god), which every child born of woman must hear, assimilate, understand, and fully accept. This belief will cause the Word to erupt within him, and as he experiences [God's Word](/lectures/god-s-word), he discovers who he really is. 
 
-The Book of John begins: *"In the beginning was the Word, and the Word was with God and the Word was God. He was in the beginning with God: all things were made through him and without him was not anything made that was made. He was in the world, the world was made by him, yet the world knew him not. He came to his own home and his own people received him not."* 
+The Book of John begins: *"In the beginning was the Word, and the Word was with [God](/glossary#god) and the Word was God. He was in the beginning with God: all things were made through him and without him was not anything made that was made. He was in the world, the world was made by him, yet the world knew him not. He came to his own home and his own people received him not."* 
 
 Now in the Book of Jeremiah he tells us: *"Thy words were found and I ate them, and thy words became to me a joy and the delight of my heart; for I am called by thy name, O Lord God of hosts."* What was it that Jeremiah ate? The Word. And what is the Word? What did Jeremiah discover to be the truth concerning God? He discovered that God was the human [imagination](/glossary#imagination). 
 
@@ -21,7 +21,7 @@ We are called by his name.
 Little Lamb God bless thee. 
 Little Lamb God bless thee. 
 
-Although this appears to be a nursery rhyme, Blake is telling a most profound truth: *"I a child, and thou a lamb, we are called by his name."* In this poem, Blake is repeating the same story as recorded in the 15th chapter, the 16th verse of Jeremiah, telling us all that the human imagination is the God of scripture. Listen carefully to this statement by Blake: "Babel (the world with its multiple tongues) mocks saying there is no God or Son of God. That thou, O Human Imagination, O Divine Body, art all a delusion. 
+Although this appears to be a nursery rhyme, Blake is telling a most profound truth: *"I a child, and thou a lamb, we are called by his name."* In this poem, Blake is repeating the same story as recorded in the 15th chapter, the 16th verse of Jeremiah, telling us all that the human [imagination](/glossary#imagination) is the God of scripture. Listen carefully to this statement by Blake: "Babel (the world with its multiple tongues) mocks saying there is no God or Son of God. That thou, O Human Imagination, O Divine Body, art all a delusion. 
 
 But I know thee, O Lord when thou ariseth upon my weary eyes even in this dungeon, this iron mill. For thou also sufferest with me although I behold thee not.*" Then the Divine Voice replied: "*Fear not! Lo, I am with thee always. Only believe in me that I have power to raise from death Thy brother who Sleepeth in Albion: fear not, O trembling shade." 
 
@@ -53,7 +53,7 @@ I have mentioned only a few verses, but I could take you through the entire Bibl
 
 When my mother insisted that my son be baptized, I took him down to an Episcopal minister, where he put a little water on his head. The only thing that happened during that ceremony was that my son got his head wet. It certainly did nothing for him spiritually. But, in spite of the warnings mentioned at the end of Proverbs: *"Let no one add to or take from the word of the prophecies of this book,"* and Revelation, regarding the adding to or taking away from the words of the book, our early fathers did not heed them. 
 
-Rather they tried to make the words conform to their traditions and conventions. The Book of John has many mighty [I AM](/glossary#i-am) statements: *"I Am [the light of the world](/lectures/the-light-of-the-world); I AM the bread of life; I AM the door: I AM the way,"* but at no time did he ever say, *"I AM the convention, or I AM the tradition;"* yet, to support the traditions of the church, the early fathers added to the word of God. 
+Rather they tried to make the words conform to their traditions and conventions. The Book of John has many mighty [I AM](/glossary#i-am) statements: *"I Am [the light of the world](/lectures/the-light-of-the-world); [I AM](/glossary#i-am) the bread of life; I AM the door: I AM the way,"* but at no time did he ever say, *"I AM the convention, or I AM the tradition;"* yet, to support the traditions of the church, the early fathers added to the word of God. 
 
 I tell you: behind the mask you wear is the only God. Divine Imagination reproduced himself in you as your human imagination; and because Divine Imagination contains all, everything is contained in the human imagination. One day you will awaken to this fact and discover that the world is yourself pushed out, just as the world is God pushed out. As this knowledge awakens in you, you begin to expand in the bosom of Divine Imagination, for you - human imagination and God, Divine Imagination - are one creator. 
 
@@ -132,7 +132,7 @@ Now she knows that she cannot pass the buck by blaming her husband or her childr
 
 Someone may be a rascal and take from you what is yours; but when you know that imagining creates reality, you will acknowledge that no one could come into your life unless you called him. And he could not have taken from you unless you - by your attitude towards life - had allowed it. 
 
-The world is yourself pushed out, and you either control it or you don't. That's the story of scripture. There is [no other God](/lectures/no-other-god) other than your own wonderful human imagination. If, when you speak of Jesus Christ, you mentally bow your head (if not physically) do the same thing when you think of your imagination, for that is he. Imagination is the Word of God who is God Himself. The world was created, is supported, and sustained, by your own wonderful human imagination. Change your imagining! Believe the change into being and you will live in a wonderful world of life. 
+The world is yourself pushed out, and you either control it or you don't. That's the story of scripture. There is [no other God](/lectures/no-other-god) other than your own wonderful human imagination. If, when you speak of Jesus [Christ](/glossary#christ), you mentally bow your head (if not physically) do the same thing when you think of your imagination, for that is he. Imagination is the Word of God who is God Himself. The world was created, is supported, and sustained, by your own wonderful human imagination. Change your imagining! Believe the change into being and you will live in a wonderful world of life. 
 
 Now let us go into the silence.
 

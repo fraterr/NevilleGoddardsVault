@@ -6,7 +6,7 @@
 
 The perfectly stable or static [state](/glossary#state) is always unattainable. The end attained objectively always realizes more than the end the individual originally had in view. This, in turn, creates a new situation of inner conflict, needing novel solutions to force man along the path of creative evolution. *"His touch is infinite and lends a yonder to all ends."* (George Meredith, *"Hymn to Colour"*)
 
-Today's events are bound to disturb yesterday's established order. The creatively active imagination invariably unsettles a pre-existing peace of mind.
+Today's events are bound to disturb yesterday's established order. The creatively active [imagination](/glossary#imagination) invariably unsettles a pre-existing peace of mind.
 
 The question may arise as to how, by representing others to ourselves as better than they really were, or mentally rewriting a letter to make it conform to our wish, or by revising the scene of an accident, the interview with the employer, and so on — could change what seems to be the unalterable facts of the past, but remember my claims for imagining: [Imagining Creates](/lectures/imagining-creates) Reality.
 
@@ -14,13 +14,13 @@ What it makes, it can unmake. It is not only conservative, building a life from 
 
 The parable of the unjust steward ([Luke 16:1-8](https://www.biblegateway.com/passage/?search=Luke+16:1-8&version=KJV)) gives the answer to this question. We can alter our world by means of a certain *"illegal"* imaginal practice, by means of a mental falsification of the facts — that is, by means of a certain intentional imaginal alteration of that which we have experienced. All this is done in one's own imagination. This is a form of falsehood which not only is not condemned, but is actually approved in the gospel teaching. By means of such a falsehood, a man destroys the causes of evil and acquires friends and on the strength of this [Revision](/glossary#revision) proves, judging by the high praise the unjust steward received from his master, that he is deserving of confidence.
 
-Because imagining creates reality, we can carry Revision to the extreme and revise a scene that would be otherwise unforgivable.
+Because imagining creates reality, we can carry [Revision](/glossary#revision) to the extreme and revise a scene that would be otherwise unforgivable.
 
 We learn to distinguish between man — who is all imagination — and those states into which he may enter.
 
 An unjust steward, looking at another's distress, will represent the other to himself as he ought to be seen. Were he, himself, in need — he would enter his dream in his imagination and imagine what he would see and how things would seem and how people would act — 'after these things should be'.
 
-Then, in this state he would fall asleep, [feeling](/glossary#feeling) the way he would expect to feel, under such circumstances.
+Then, in this [state](/glossary#state) he would fall asleep, [feeling](/glossary#feeling) the way he would expect to feel, under such circumstances.
 
 Would that all the Lord's people were unjust stewards — mentally falsifying the facts of life to deliver individuals forevermore. For the imaginal change goes forward, until at length the altered pattern is realized on the heights of attainment.
 
@@ -28,7 +28,7 @@ Our future is our imaginal activity in its creative march.
 
 Imagine better than the best you know.
 
-To revise the past is to re-construct it with new content. Man should daily relive the day as he wished he had lived it, revising the scenes to make them conform to his ideals. For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in imagination, read the revised letter over and over again and this will arouse the feeling of naturalness; and imaginal acts become facts as soon as we feel natural in the act.
+To revise the past is to re-construct it with new content. Man should daily relive the day as he wished he had lived it, revising the scenes to make them conform to his ideals. For instance, suppose today's mail brought disappointing news. Revise the letter. Mentally rewrite it and make it conform to the news you wish you had received. Then, in imagination, read the revised letter over and over again and this will arouse the [feeling](/glossary#feeling) of naturalness; and imaginal acts become facts as soon as we feel natural in the act.
 
 This is the essence of Revision and Revision results in repeal.
 

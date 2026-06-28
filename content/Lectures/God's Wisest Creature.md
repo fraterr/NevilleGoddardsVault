@@ -1,6 +1,6 @@
 # God's Wisest Creature
 
-We are told that because of an act of disobedience man fell, thereby separating himself from [God](/glossary#god). But scripture tells us that God consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
+We are told that because of an act of disobedience man fell, thereby separating himself from [God](/glossary#god). But scripture tells us that [God](/glossary#god) consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
   
 Scholars consider the 82nd Psalm as one of the most difficult of all the psalms to interpret, stating that although the idea may be perennial, its meaning has vanished.  
   

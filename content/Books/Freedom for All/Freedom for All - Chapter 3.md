@@ -8,19 +8,19 @@ The Bible tells us that Noah had three sons, Shem, Ham and Japheth ([Genesis 6:1
 
 The first son is called Shem, which means name. Ham, the second son, means warm, alive. The third son is called Japheth, which means extension. You will observe that Noah and his three sons Shem, Ham and Japheth contain the same formula of creation as does the divine name of JOD HE VAU HE.
 
-Noah, the Father, the conceiver, the builder of a new world is equivalent to the JOD, or unconditioned consciousness, [I AM](/glossary#i-am). Shem is your desire; that which you are conscious of; that which you name and define as your objective, and is equivalent to the second letter in the divine name (HE). Ham is the warm, live [state](/glossary#state) of [feeling](/glossary#feeling), which joins or binds together consciousness desiring and the thing desired, and is therefore equivalent to the third letter in the divine name, the VAU. The last son, Japheth, means extension, and is the extended or objectified state bearing witness of the subjective state and is equivalent to the last letter in the divine name, HE.
+Noah, the Father, the conceiver, the builder of a new world is equivalent to the JOD, or unconditioned consciousness, [I AM](/glossary#i-am). Shem is your desire; that which you are conscious of; that which you name and define as your objective, and is equivalent to the second letter in the divine name (HE). Ham is the warm, live [state](/glossary#state) of [feeling](/glossary#feeling), which joins or binds together consciousness desiring and the thing desired, and is therefore equivalent to the third letter in the divine name, the VAU. The last son, Japheth, means extension, and is the extended or objectified [state](/glossary#state) bearing witness of the subjective state and is equivalent to the last letter in the divine name, HE.
 
 You are Noah, the knower, the creator.
 
 The first thing you beget is an idea, an urge, a desire, the word, or your first son Shem (name).
 
-Your second son Ham (warm, alive) is the secret of FEELING by which you are joined to your desire subjectively so that you, the consciousness desiring, become conscious of being or possessing the thing desired.
+Your second son Ham (warm, alive) is the secret of [FEELING](/glossary#feeling) by which you are joined to your desire subjectively so that you, the consciousness desiring, become conscious of being or possessing the thing desired.
 
 Your third son, Japheth, is the confirmation, the visible proof that you know the secret of creation.
 
 He is the extended or objectified state bearing witness of the invisible or subjective state in which you abide.
 
-In the story of Noah it is recorded that Ham saw the secrets of his Father ([Genesis 9:22](https://www.biblegateway.com/passage/?search=Genesis+9:22&version=KJV)), and, because of his discovery, he was made to serve his brothers, Shem and Japheth ([Genesis 9:25](https://www.biblegateway.com/passage/?search=Genesis+9:25&version=KJV)). Ham, or feeling, is the secret of the Father, your I AM, for it is through feeling that the consciousness desiring is joined to the thing desired.
+In the story of Noah it is recorded that Ham saw the secrets of his Father ([Genesis 9:22](https://www.biblegateway.com/passage/?search=Genesis+9:22&version=KJV)), and, because of his discovery, he was made to serve his brothers, Shem and Japheth ([Genesis 9:25](https://www.biblegateway.com/passage/?search=Genesis+9:25&version=KJV)). Ham, or feeling, is the secret of the Father, your [I AM](/glossary#i-am), for it is through feeling that the consciousness desiring is joined to the thing desired.
 
 The conscious union or mystical marriage is made possible only through feeling.
 

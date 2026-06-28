@@ -2,9 +2,9 @@
 
 [Jesus Christ](/lectures/jesus-christ) is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus [Christ](/glossary#christ), but not yourself? If you do it is because you do not know who you are!
 
-In 1929, believing Jesus Christ to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
+In 1929, believing Jesus [Christ](/glossary#christ) to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
 
-Scripture tells us: *"No one has ever seen [God](/glossary#god) except his only Son who is in the bosom of the Father, he has made him known."* This is true, for thirty years later God’s only Son made himself known to me. When I was incorporated into the body of God, I thought I was Neville. But thirty years later, when David of Biblical fame exploded from within and called me father, I knew I was God.
+Scripture tells us: *"No one has ever seen [God](/glossary#god) except his only Son who is in the bosom of the Father, he has made him known."* This is true, for thirty years later [God](/glossary#god)’s only Son made himself known to me. When I was incorporated into the body of God, I thought I was Neville. But thirty years later, when David of Biblical fame exploded from within and called me father, I knew I was God.
 
 Although to me the David who said - *"I will tell of the decree of the Lord: He said to me, ‘Thou art my Son, today I have begotten thee,"*’ - lived 1000 B.C., and was not in any way related to me. Yet now I know the truth of the words: *"No one has ever seen God until he who is in the bosom of the Father makes him known."* Only when my whole being exploded and God’s Son David appeared in the spirit and called me father, did I know my true identity.
 
@@ -91,7 +91,7 @@ Now let us go into the silence.
 ### You Are Christ
 
 - All you have done is done by Christ, your life and true identity
-- Persist in your desired state until you harden it into reality
+- Persist in your desired [state](/glossary#state) until you harden it into reality
 
 ### The Unfolding Pattern
 

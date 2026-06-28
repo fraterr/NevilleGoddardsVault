@@ -1,12 +1,12 @@
 # Enter The Dream
 
-[God only acts](/lectures/god-only-acts) and is in existing beings or men. Embracing the fires of experience, [God](/glossary#god) was consumed by the flames, rose from their ashes, and continues to rise as [Jesus Christ](/lectures/jesus-christ), or Divine [Imagination](/glossary#imagination). Good and evil are not conditions imposed by some benevolent deity, but states the soul must experience in order to surpass them and awaken as God Himself.   
+[God only acts](/lectures/god-only-acts) and is in existing beings or men. Embracing the fires of experience, [God](/glossary#god) was consumed by the flames, rose from their ashes, and continues to rise as [Jesus Christ](/lectures/jesus-christ), or Divine [Imagination](/glossary#imagination). Good and evil are not conditions imposed by some benevolent deity, but states the soul must experience in order to surpass them and awaken as [God](/glossary#god) Himself.   
   
 Tonight I will share with you an experience of a friend, a lady who wrote, saying: *"In my dream I possessed the power to be anything I wanted to be. The moment I observed the being or thing I became it, felt its emotion, and shared its thoughts and environment. This I did throughout the night and awoke reluctantly because I was so enjoying the experience."*   
   
 Now let me tell you what Aldous Huxley wrote about his friend, D. H. Lawrence: *"To be with Lawrence was an adventure, because he was not of the order of this world, but belonged to another universe. When I was with him and he shared his experiences, I felt that he knew what it was to be a tree, a daisy, a breaking wave, or the mysterious moon itself. He saw things the mortal eye could not see. He was a sensitive, intelligent man who could cook, sew, embroider, and do woodwork to perfection; yet he could sit alone doing nothing and be completely happy. He could put himself into the skin of an animal and describe in the most convincing detail its dim, inhuman thoughts."*   
   
-I am quite sure my friend never read that letter, but I gave her my immortal eyes. The eye of Imagination is now open in her and she has shared her experience of going from [state](/glossary#state) to state, from things to persons, knowing their feelings and emotions. How is that possible? Because God is the only actor.  
+I am quite sure my friend never read that letter, but I gave her my immortal eyes. The eye of [Imagination](/glossary#imagination) is now open in her and she has shared her experience of going from [state](/glossary#state) to [state](/glossary#state), from things to persons, knowing their feelings and emotions. How is that possible? Because God is the only actor.  
   
 Blake makes this statement: *"Eternity Exists and All things in Eternity Independent of Creation which was an act of Mercy. By this it will be seen that I do not consider either the Just or the Wicked to be in a Supreme State, but to be every one of them States of the Sleep into which the Soul may fall in its deadly Dreams of Good and Evil when it leaves Paradise following the Serpent."*   
   
@@ -100,7 +100,7 @@ Now let us go into the silence.
 - Embracing the fires of experience and being consumed leads to rising as God Himself.
 
 ### Tests of Imagination and Creativity
-- The power of imagination can be tested by assuming one's desired identity and remaining faithful to that Assumption.
+- The power of imagination can be tested by assuming one's desired identity and remaining faithful to that [Assumption](/glossary#assumption).
 - One's accent or external appearance does not define their creative power.
 
 ### The Greater Self and God

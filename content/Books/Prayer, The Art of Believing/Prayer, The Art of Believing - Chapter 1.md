@@ -30,7 +30,7 @@ If you knew how you would feel were you to realize your objective, then, inverse
 
 The injunction, to pray believing that you already possess what you pray for, is based upon a knowledge of [the law](/glossary#the-law) of inverse transformation.
 
-If your realized Prayer produces in you a definite feeling or state of consciousness, then, inversely, that particular feeling or state of consciousness must produce your realized Prayer.
+If your realized Prayer produces in you a definite [feeling](/glossary#feeling) or [state](/glossary#state) of consciousness, then, inversely, that particular feeling or state of consciousness must produce your realized Prayer.
 
 Because all transformations of force are reversible, you should always assume the feeling of your fulfilled wish.
 
@@ -50,7 +50,7 @@ If a physical fact can produce a psychological state, a psychological state can 
 ## Summary
 ### The Essence of Prayer is Faith
 
-- Prayer is an art requiring practice and controlled imagination, not empty formulas
+- Prayer is an art requiring practice and controlled [imagination](/glossary#imagination), not empty formulas
 - Faith is the essence of Prayer, but must be permeated with understanding to be active
 - One must obtain wisdom and understanding
 
