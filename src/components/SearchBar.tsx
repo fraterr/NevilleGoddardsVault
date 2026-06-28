@@ -9,6 +9,12 @@ interface SearchEntry {
   slug: string[];
   book?: string;
   type?: string;
+  content: string;
+}
+
+interface SearchResult {
+  entry: SearchEntry;
+  count: number;
 }
 
 function slugify(text: string): string {
@@ -20,7 +26,7 @@ function slugify(text: string): string {
 
 export default function SearchBar() {
   const [query, setQuery] = useState('');
-  const [results, setResults] = useState<SearchEntry[]>([]);
+  const [results, setResults] = useState<SearchResult[]>([]);
   const [isOpen, setIsOpen] = useState(false);
   const [selectedIndex, setSelectedIndex] = useState(-1);
   const [allEntries, setAllEntries] = useState<SearchEntry[]>([]);
@@ -37,26 +43,48 @@ export default function SearchBar() {
   }, []);
 
   useEffect(() => {
-    if (!query.trim()) {
+    if (!query.trim() || query.length < 2) {
       setResults([]);
       setIsOpen(false);
       return;
     }
 
     const q = query.toLowerCase();
-    const filtered = allEntries.filter(entry => {
-      const titleMatch = entry.title.toLowerCase().includes(q);
-      const bookMatch = entry.book?.toLowerCase().includes(q);
-      return titleMatch || bookMatch;
-    }).slice(0, 12);
+    const matches: SearchResult[] = [];
 
-    setResults(filtered);
-    setIsOpen(filtered.length > 0);
+    for (const entry of allEntries) {
+      // Find all matches in title
+      const inTitle = entry.title.toLowerCase().includes(q);
+      
+      // Count occurrences in content
+      let count = 0;
+      if (entry.content) {
+        let pos = entry.content.toLowerCase().indexOf(q);
+        while (pos !== -1) {
+          count++;
+          pos = entry.content.toLowerCase().indexOf(q, pos + q.length);
+        }
+      }
+
+      if (inTitle || count > 0) {
+        matches.push({
+          entry,
+          count: count + (inTitle ? 5 : 0) // weight title matches
+        });
+      }
+    }
+
+    // Sort by occurrence count descending
+    matches.sort((a, b) => b.count - a.count);
+
+    const limited = matches.slice(0, 15);
+    setResults(limited);
+    setIsOpen(limited.length > 0);
     setSelectedIndex(-1);
   }, [query, allEntries]);
 
-  const navigateTo = (entry: SearchEntry) => {
-    const href = '/' + entry.slug.map(slugify).join('/');
+  const navigateTo = (result: SearchResult) => {
+    const href = '/' + result.entry.slug.map(slugify).join('/');
     router.push(href);
     setQuery('');
     setIsOpen(false);
@@ -114,16 +142,23 @@ export default function SearchBar() {
       </div>
       {isOpen && (
         <div className={styles.resultsDropdown} ref={resultsRef}>
-          {results.map((entry, i) => (
+          {results.map((res, i) => (
             <div
-              key={entry.slug.join('/')}
+              key={res.entry.slug.join('/')}
               className={`${styles.resultItem} ${i === selectedIndex ? styles.resultItemActive : ''}`}
-              onMouseDown={() => navigateTo(entry)}
+              onMouseDown={() => navigateTo(res)}
               onMouseEnter={() => setSelectedIndex(i)}
             >
-              <span className={styles.resultTitle}>{entry.title}</span>
-              {entry.book && (
-                <span className={styles.resultMeta}>{entry.book}</span>
+              <div className={styles.resultTitleRow}>
+                <span className={styles.resultTitle}>{res.entry.title}</span>
+                {res.count > 0 && (
+                  <span className={styles.occurrenceBadge}>
+                    {res.count} {res.count === 1 ? 'match' : 'matches'}
+                  </span>
+                )}
+              </div>
+              {res.entry.book && (
+                <span className={styles.resultMeta}>{res.entry.book}</span>
               )}
             </div>
           ))}

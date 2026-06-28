@@ -1,8 +1,11 @@
 .markdownBody {
-  font-size: 1.1rem;
-  line-height: 1.8;
+  font-family: var(--font-reading);
+  font-size: 1.15rem;
+  line-height: 1.85;
   color: var(--text-primary);
   animation: fadeIn 0.8s ease-out;
+  max-width: 750px;
+  margin: 0 auto;
 }
 
 .markdownBody h1,
@@ -17,10 +20,11 @@
   color: var(--accent-gold);
   line-height: 1.3;
   letter-spacing: -0.02em;
+  font-family: var(--font-ui);
 }
 
 .markdownBody h1 {
-  font-size: 2.5rem;
+  font-size: 2.4rem;
   border-bottom: 1px solid var(--border);
   padding-bottom: 0.5rem;
 }
@@ -30,7 +34,7 @@
 }
 
 .markdownBody p {
-  margin-bottom: 1.5rem;
+  margin-bottom: 1.6rem;
 }
 
 .markdownBody a {

@@ -1,11 +1,17 @@
 import type { Metadata } from "next";
-import { EB_Garamond } from "next/font/google";
+import { Inter, Lora } from "next/font/google";
 import "./globals.css";
 import Sidebar from "@/components/Sidebar";
 
-const garamond = EB_Garamond({
+const inter = Inter({
   subsets: ["latin"],
-  variable: "--font-garamond",
+  variable: "--font-inter",
+  weight: ["400", "500", "600", "700"],
+});
+
+const lora = Lora({
+  subsets: ["latin"],
+  variable: "--font-lora",
   weight: ["400", "500", "600", "700"],
 });
 
@@ -20,7 +26,7 @@ export default function RootLayout({
   children: React.ReactNode;
 }>) {
   return (
-    <html lang="en" className={garamond.variable}>
+    <html lang="en" className={`${inter.variable} ${lora.variable}`}>
       <body>
         <div className="app-container">
           <Sidebar />
