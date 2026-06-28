@@ -1,8 +1,8 @@
-> *"And Jesus said unto them, Because of your unbelief; for verily I say unto you, if ye have faith as a grain of mustard seed, ye shall say unto this mountain, remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you."* ([Matthew 17:20](https://www.biblegateway.com/passage/?search=Matthew+17:20&version=KJV))
+*"And Jesus said unto them, Because of your unbelief; for verily I say unto you, if ye have faith as a grain of mustard seed, ye shall say unto this mountain, remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you."* ([Matthew 17:20](https://www.biblegateway.com/passage/?search=Matthew+17:20&version=KJV))
 
 This faith of a grain of mustard seed has proved a stumbling block to man (1Corinthians 1:23). He has been taught to believe that a grain of mustard seed signifies a small degree of faith. So he naturally wonders why he, a mature man, should lack this insignificant measure of faith when so small an amount assures success.
 
-> *"Faith,"* he is told, *"is the substance of things hoped for, the evidence of things not seen"* ([Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV)). And again, *"Through faith… the worlds were framed by the word of God, so that things which are seen were not made of things which do appear"* ([Hebrews 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV)).
+*"Faith,"* he is told, *"is the substance of things hoped for, the evidence of things not seen"* ([Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV)). And again, *"Through faith… the worlds were framed by the word of God, so that things which are seen were not made of things which do appear"* ([Hebrews 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV)).
 
 Invisible things were made visible. The grain of mustard seed is not the measure of a small amount of faith. On the contrary, it is the absolute in faith.
 

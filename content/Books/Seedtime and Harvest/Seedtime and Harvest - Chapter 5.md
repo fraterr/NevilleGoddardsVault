@@ -1,4 +1,4 @@
-> *"I can easier teach twenty what were good to be done, than be one of the twenty to follow mine own teaching."* (Shakespeare)
+*"I can easier teach twenty what were good to be done, than be one of the twenty to follow mine own teaching."* (Shakespeare)
 
 With this confession off my mind, I will now teach you how to play [the game of life](/lectures/the-game-of-life). Life is a game and, like all games, it has its aims and its rules.
 
@@ -12,20 +12,20 @@ In playing a game, the first thing we ask is: *"What is its aim and purpose?"* a
 
 As to our desires, the rules reach only so far as to indicate the way in which we should go to realize them, but the desires themselves must be the individual's own concern. The rules governing the game of life are simple, but it takes a lifetime of practice to use them wisely. Here is one of the rules:
 
-> *"As he thinketh in his heart, so is he."* ([Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs+23:7&version=KJV))
+*"As he thinketh in his heart, so is he."* ([Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs+23:7&version=KJV))
 
 Thinking is usually believed to be a function entirely untrammeled and free, without any rules to constrain it. But that is not true. Thinking moves by its own processes in a bounded territory, with definite paths and patterns.
 
-> *"Thinking follows the tracks laid down in one's own Inner conversations."*
+*"Thinking follows the tracks laid down in one's own Inner conversations."*
 
 All of us can realize our objectives by the wise use of mind and speech.
 
 Most of us are totally unaware of the mental activity which goes on within us. But to play the game of life successfully, we must become aware of our every mental activity, for this activity, in the form of Inner conversations, is the cause of the outer phenomena of our life.
 
-> *"...every idle word that man shall speak, they shall give account thereof in the day of judgment. For by thy words thou shall be justified, and by thy words thou shalt be condemned."* ([Matthew 12:36, 37](https://www.biblegateway.com/passage/?search=Matthew+12:36,+37&version=KJV))
+*"...every idle word that man shall speak, they shall give account thereof in the day of judgment. For by thy words thou shall be justified, and by thy words thou shalt be condemned."* ([Matthew 12:36, 37](https://www.biblegateway.com/passage/?search=Matthew+12:36,+37&version=KJV))
 
 The law of the Word cannot be broken.  
-> *"...A bone of him shall not be broken."* ([John 19:36](https://www.biblegateway.com/passage/?search=John+19:36&version=KJV))
+*"...A bone of him shall not be broken."* ([John 19:36](https://www.biblegateway.com/passage/?search=John+19:36&version=KJV))
 
 The law of the Word never overlooks an inner word nor makes the smallest allowance for our ignorance of its power. It fashions life about us as we, by our Inner conversations, fashion life within ourselves. This is done to reveal to us our position on the playing field of life. There is no opponent in the game of life; there is only the goal.
 
@@ -33,7 +33,7 @@ Not long ago, I was discussing this with a successful and philanthropic business
 
 He said, *"You know, Neville, I first learned about goals in life when I was fourteen, and it was on the playing field at school. I was good at track and had a fine day, but there was one more race to run and I had stiff competition in one other boy. I was determined to beat him. I beat him, it is true, but, while I was keeping my eye on him, a third boy, who was considered no competition at all, won the race."*
 
-> *"That experience taught me a lesson I have used throughout my life. When people ask me about my success, I must say, that I believe it is because I have never made 'making money' my goal: 'My goal is the wise, productive use of money'."*
+*"That experience taught me a lesson I have used throughout my life. When people ask me about my success, I must say, that I believe it is because I have never made 'making money' my goal: 'My goal is the wise, productive use of money'."*
 
 This man's Inner conversations are based on the premise that he already has money, his constant inner question: the proper use of it.
 
@@ -41,13 +41,13 @@ The Inner conversations of the man struggling to 'get' money only prove his lack
 
 In his ignorance of the power of the word, he is building barriers in the way of the attainment of his goal; he has his eye on the competition rather than on the goal itself.
 
-> *"The fault, dear Brutus, is not in our stars, But in ourselves, that we are underlings."* (Julius Caesar: Act I, Scene II)
+*"The fault, dear Brutus, is not in our stars, But in ourselves, that we are underlings."* (Julius Caesar: Act I, Scene II)
 
 As *"the worlds were framed by the Word of God"*, so we as *"imitators of God as dear children"* create the conditions and circumstances of our lives by our all-powerful human inner words.
 
 Without practice, the most profound knowledge of the game would produce no desired results.
 
-> *"To him that knoweth to do good"* - that is, knoweth the rules - and doeth it not, to him it is sin". In other words, he will miss his mark and fail to realize his goal.
+*"To him that knoweth to do good"* - that is, knoweth the rules - and doeth it not, to him it is sin". In other words, he will miss his mark and fail to realize his goal.
 
 In the parable of the Talents, the Master's condemnation of the servant who neglected to use his gift is clear and unmistakable, and having discovered one of the rules of the game of life, we risk failure by ignoring it. The talent not used, like the limb not exercised, slumbers and finally atrophies. We must be *"doers of the Word, and not hearers only"*. Since thinking follows the tracks laid down in one's own Inner conversations, not only can we see where we are going on the playing field of life by observing our Inner conversations, but also, we can determine where we will go by controlling and directing our inner talking.
 
@@ -61,7 +61,7 @@ That very night, in her imagination, she constructed two loving, tender letters 
 
 A change of attitude is a change of position on the playing field of life. The game of life is not being played out there in what is called space and time; the real moves in the game of life take place within, on the playing field of the mind.
 
-> *"Losing thy soul, thy soul, Again to find; Rendering toward that goal, Thy separate mind."*  (Laurence Housman)
+*"Losing thy soul, thy soul, Again to find; Rendering toward that goal, Thy separate mind."*  (Laurence Housman)
 
 
 

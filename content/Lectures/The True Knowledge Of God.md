@@ -10,7 +10,7 @@ Having come down into this limit of contraction and opacity, you now ask yoursel
 
 Now let us turn to the poet Robert Browning, who said:
 
-> *"Truth is within ourselves. It takes no rise from outward things what'ere you may believe. There is an inmost center in us all where truth abides in fullness, And to know, rather consists in opening out a way whence the imprisoned splendor may escape, than an effective entry for a light supposed to be without."*
+*"Truth is within ourselves. It takes no rise from outward things what'ere you may believe. There is an inmost center in us all where truth abides in fullness, And to know, rather consists in opening out a way whence the imprisoned splendor may escape, than an effective entry for a light supposed to be without."*
 
 Here Browning took three of the mighty I AM statements from the Book of John: *"I AM the truth; I AM the way, and I AM the light,"* and incorporated them into this very short statement.
 

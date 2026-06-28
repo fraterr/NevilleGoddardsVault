@@ -1,4 +1,4 @@
-> *"Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is God with us."* (Matt. 1:23)
+*"Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is God with us."* (Matt. 1:23)
 
 One of the most controversial statements in the New Testament concerns the virgin conception and subsequent birth of Jesus, a conception in which man had no part. It is recorded that a virgin conceived a son without the aid of man, then secretly and without effort gave birth to her conception. This is the foundation upon which all Christendom rests.
 

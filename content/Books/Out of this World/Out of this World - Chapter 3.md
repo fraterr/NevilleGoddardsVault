@@ -1,4 +1,4 @@
-> *"Ye shall know the truth and the truth shall make you free"* – ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
+*"Ye shall know the truth and the truth shall make you free"* – ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
 
 Men claim that a true judgment must conform to the external reality to which it relates. This means that if I, while imprisoned, suggest to myself that I am free and succeed in believing that I am free, it is true that I believe in my freedom; but it does not follow that I am free for I may be the victim of illusion.
 
@@ -32,7 +32,7 @@ Desire and imagination are the enchanter’s wand of fable and they draw to them
 
 I have written with some care and detail the method I use to enter the dimensionally larger world, but I shall give one more formula for opening the door of the larger world.
 
-> *"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumberings upon the bed; Then he openeth the ears of men, and sealeth their instruction."* [Job 33:15,16](https://www.biblegateway.com/passage/?search=Job+33:15,16&version=KJV)
+*"In a dream, in a vision of the night, when deep sleep falleth upon men, in slumberings upon the bed; Then he openeth the ears of men, and sealeth their instruction."* [Job 33:15,16](https://www.biblegateway.com/passage/?search=Job+33:15,16&version=KJV)
 
 In dream we are usually the servant of our vision rather than its master, but the internal fantasy of dream can be turned into an external reality.
 
@@ -64,7 +64,7 @@ Experience in imagination what you would experience in the flesh were you alread
 
 Things have no life if they are severed from their roots, and our consciousness, our *"I AM-ness"* is the root of all that springs in our world.
 
-> *"If we believe not that I am he, ye shall die in your sins"* – ([John 8:24](https://www.biblegateway.com/passage/?search=John+8:24&version=KJV)) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
+*"If we believe not that I am he, ye shall die in your sins"* – ([John 8:24](https://www.biblegateway.com/passage/?search=John+8:24&version=KJV)) –, that is, if I do not believe that I am already that which I desire to be, then I remain as I am and die in my present concept of self.
 
 There is no power, outside of the consciousness of man, to resurrect and make alive that which man desires to experience.
 
@@ -72,7 +72,7 @@ That man who is accustomed to call up at will whatever images he pleases, will b
 
 ―I am the resurrection, and the life; he that believeth in Me, though he were dead, yet shall he live. ([John 11:25](https://www.biblegateway.com/passage/?search=John+11:25&version=KJV))
 
-> *"Ye shall know the truth, and the truth shall make you free."*
+*"Ye shall know the truth, and the truth shall make you free."*
 
 
 ## Summary

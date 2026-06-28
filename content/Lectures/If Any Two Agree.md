@@ -56,7 +56,7 @@ Do you know what you want tonight? All right. Don’t minimize it. It doesn’t 
 
 The Professor didn’t do that. He did it all within himself. He said, *"I have a lavish, steady, dependable income, consistent with integrity and mutual benefit."* He didn’t ask another to state that; he did it unto himself, and he became the two. So, I don’t need any other to do it. If I have a desire to help you, or to help anyone, all I need do is simply to imagine that I have heard them; then I actually hear them tell me what I wish they would tell me. Then there are two: this one that I am hearing and I, the one who is listening and hearing; and these two agree. If two agree in testimony, then it is conclusive; and because imagining creates reality, it must externalize itself in my world.
 
-> *"The whole vast world is only the imaginal act “pushed out."*
+*"The whole vast world is only the imaginal act “pushed out."*
 
 And so, we are told: *"With God, all things are possible,"* and *"All things are possible to him who believes."* Well, am I not equating God with the believing one? And the believing one, isn’t that one’s own human imagination? That’s all that it is.
 
@@ -97,9 +97,9 @@ Paul’s first name was Saul, and Saul was converted into Paul. When he was Saul
 
 And then he answered, *"Who are you. Lord?"*
 
-> *"I am he whom thou persecutest. [I am the Lord](/lectures/i-am-the-lord)."* And then he changed his name from Saul to Paul. The whole vast world is Saul. He looks into the face of his own son and he cannot recognize him because he is actually suffering from amnesia. Then comes a complete return of memory, and he remembers he has promised to set the father free of the man who destroys the enemy of Israel. And so, memory returns, and he is the Father, and he is set free!
+*"I am he whom thou persecutest. [I am the Lord](/lectures/i-am-the-lord)."* And then he changed his name from Saul to Paul. The whole vast world is Saul. He looks into the face of his own son and he cannot recognize him because he is actually suffering from amnesia. Then comes a complete return of memory, and he remembers he has promised to set the father free of the man who destroys the enemy of Israel. And so, memory returns, and he is the Father, and he is set free!
 
-> *"No one can set me free but the Son that I have forgotten."* So, my Son returns, and all of a sudden I am set free! This is the story of Scripture. The day will come, you will actually see Him. He will be the one who is standing before you. You will recognize Him. You will know Him to be your son: and knowing your Scripture that He is the son -- the only son of God -- and that he’s your son, then you know Who-You-Are. You are God Himself, limited for a little while in a garment of flesh and blood to tell the story to encourage others who are still in the demented state of Saul.
+*"No one can set me free but the Son that I have forgotten."* So, my Son returns, and all of a sudden I am set free! This is the story of Scripture. The day will come, you will actually see Him. He will be the one who is standing before you. You will recognize Him. You will know Him to be your son: and knowing your Scripture that He is the son -- the only son of God -- and that he’s your son, then you know Who-You-Are. You are God Himself, limited for a little while in a garment of flesh and blood to tell the story to encourage others who are still in the demented state of Saul.
 
 Now, to go back to the story, if she could hear that which was not true and then it becomes true, why limit it to the world of Caesar? -- of getting rid of a neighbor? Why limit it to the dollars and cents of making a fortune? Why not take it into the Promise, and have someone within your own Self say, *"I have experienced the Promise, -- I have actually experienced the Resurrection, and the birth from above, and the discovery of David, and the ascent of myself into heaven, and the descent of the dove,"* and then listen as though you actually heard it?
 
@@ -113,7 +113,7 @@ But do not dwell upon what has happened concerning the death of these two people
 
 But I am telling you, your own wonderful human imagination is creating all the realities of your world. All the objective things in the world are but the outpouring of our imaginal acts. That’s what Yeats meant when he said:
 
-> *“I will never be certain that it was not
+*“I will never be certain that it was not
 some woman treading in the wine-press who
 started the subtle change in men's minds,
 or that it was not some little shepherd boy
@@ -124,7 +124,7 @@ this little power ran upon its way.”*
 He was dreaming of being a hero, and he simply -- in his own strange way -- dreamt of violence, because today it seems that man feels only if he were a hero in a military sense that he really is a hero. He must be this, that or the other in some fantastic manner. But he does it, and then he is influencing the entire world, because we are all one.
 
 
-> *“All things, by a law divine,
+*“All things, by a law divine,
 In one another’s being mingle.”*
 
 
@@ -133,7 +133,7 @@ We are all actually one. So, if I stand here now and lose myself in an imaginal 
 Whatever you do, do lovingly, -- I don’t care what it is. And if you are ever in doubt, do the loving thing, which is called by the simple, simple term the “Golden Rule’.
 
 
-> *"Do unto others as you would have them do unto you."*
+*"Do unto others as you would have them do unto you."*
 
 
 So, if you are ever in doubt, use that as your rule, and you can’t go wrong; and then the day will come that you and I will meet *"on high."* Then you will be able to understand Scripture. Here’s the one who said, *"I am from above, and you are from below. I am not of this world; you are of this world."* Do you think one man is talking to men? No; it is one Being speaking to Himself.
@@ -143,7 +143,7 @@ Here is the *"outer man"* called Neville who came into the world first. This is 
 Now, you are anchored here. I will show you how I need not be anchored here, because these two, as we are told in Scripture:
 
 
-> *“In thy limbs lie nations twain,
+*“In thy limbs lie nations twain,
 rival races from their birth;
 one the mastery shall gain,
 the younger o’er the older reign.”*
@@ -167,7 +167,7 @@ It was a self-deception. I deceived myself into believing that I am what one mom
 
 You see, we are dealing with the most fantastic mystery in the world, -- the mystery of imagining. That’s what Fawcett said:
 
-> *"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire, for supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery,"* [from *"The Zermatt Dialogues"*] -- because you are actually solving the problem of God. If you can solve the problem of imagining, you are solving the problem of God!
+*"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire, for supreme power, supreme wisdom, supreme delight lie in the far-off solution of this mystery,"* [from *"The Zermatt Dialogues"*] -- because you are actually solving the problem of God. If you can solve the problem of imagining, you are solving the problem of God!
 
 So, even though you make a mistake and people are injured, like tonight two are dead; no regrets. They are awake in a world just like this to continue their journey, and the three will be taken care of. So, I do not stand in judgment, and no one should stand in judgment of what she did. She exercised a Law that she heard. She heard it from me. I only ask you: when you hear it, mix it with love. Never do unto another what you would not want them to do unto you -- never do it. So ask, why do you want the neighbors to go? All right, they will go in their own wonderful way. They may want to go without violence. They will want to go and you hear it in that way.
 

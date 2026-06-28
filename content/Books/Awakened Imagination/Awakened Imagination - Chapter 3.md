@@ -1,12 +1,12 @@
-> *"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
+*"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
 
 DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.
 
-> *"The first shall be last and the last shall be first."* ([Matthew 19:30](https://www.biblegateway.com/passage/?search=Matthew+19:30&version=KJV))
+*"The first shall be last and the last shall be first."* ([Matthew 19:30](https://www.biblegateway.com/passage/?search=Matthew+19:30&version=KJV))
 
-> *"He it is, Who coming after me is preferred before me."* ([John 1:27](https://www.biblegateway.com/passage/?search=John+1:27&version=KJV))
+*"He it is, Who coming after me is preferred before me."* ([John 1:27](https://www.biblegateway.com/passage/?search=John+1:27&version=KJV))
 
-> *"The second Man is the Lord from heaven."* (1Corinthians 15:47)
+*"The second Man is the Lord from heaven."* (1Corinthians 15:47)
 
 Man begins to awake to the imaginative life the moment he feels the presence of another being in himself.
 
@@ -14,7 +14,7 @@ In your limbs lie nations twain, rival races from their birth; one the mastery s
 
 There are two distinct centers of thought or outlooks on the world possessed by every man. The Bible speaks of these two outlooks as natural and spiritual.
 
-> *"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* (1Corinthians 2:14)
+*"The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned."* (1Corinthians 2:14)
 
 Man's inner body is as real in the world of subjective experience as his outer physical body is real in the world of external realities, but the inner body expresses a more fundamental part of reality.
 
@@ -34,7 +34,7 @@ At first your thoughts may be like rambling sheep that have no shepherd. Don't d
 
 In The Road to Xanadu, Professor John Livingston Lowes says:
 
-> *"But I have long had the feeling, which this study had matured to a conviction, that Fancy and Imagination are not two powers at all, but one. The valid distinction which exists between them lies, not in the materials with which they operate, but in the degree of intensity of the operant power itself. Working at high tension, the imaginative energy assimilates and transmutes; keyed low, the same energy aggregates and yokes together those images which at its highest pitch, it merges indissolubly into one."*"
+*"But I have long had the feeling, which this study had matured to a conviction, that Fancy and Imagination are not two powers at all, but one. The valid distinction which exists between them lies, not in the materials with which they operate, but in the degree of intensity of the operant power itself. Working at high tension, the imaginative energy assimilates and transmutes; keyed low, the same energy aggregates and yokes together those images which at its highest pitch, it merges indissolubly into one."*"
 
 Fancy assembles, imagination fuses.
 
@@ -78,9 +78,9 @@ It is thus that this creative principle is being realized. So the clue to purpos
 
 Ideas only act if they are felt, if they awaken inner movement. Inner movement is conditioned by self-motivation, outer movement by compulsion.
 
-> *"Wherever the sole of your foot shall tread, the same give I unto you."* ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
+*"Wherever the sole of your foot shall tread, the same give I unto you."* ([Joshua 1:3](https://www.biblegateway.com/passage/?search=Joshua+1:3&version=KJV))
 
-> *"..and remember, The Lord thy God in the midst of thee is mighty."* ([Zephaniah 3:17](https://www.biblegateway.com/passage/?search=Zephaniah+3:17&version=KJV))
+*"..and remember, The Lord thy God in the midst of thee is mighty."* ([Zephaniah 3:17](https://www.biblegateway.com/passage/?search=Zephaniah+3:17&version=KJV))
 
 
 ## Summary

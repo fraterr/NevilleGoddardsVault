@@ -1,6 +1,6 @@
-> *"They went forth, and entered into a ship, and that night they caught nothing."* ([John 21:3](https://www.biblegateway.com/passage/?search=John+21:3&version=KJV))
+*"They went forth, and entered into a ship, and that night they caught nothing."* ([John 21:3](https://www.biblegateway.com/passage/?search=John+21:3&version=KJV))
 
-> *"And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes."* ([John 21:6](https://www.biblegateway.com/passage/?search=John+21:6&version=KJV))
+*"And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes."* ([John 21:6](https://www.biblegateway.com/passage/?search=John+21:6&version=KJV))
 
 It is recorded that the disciples fished all night and caught nothing. Then Jesus appeared upon the scene and told them to cast their nets again but, this time, to cast diem on the right side. Peter obeyed the voice of Jesus and cast his nets once more into the waters. Where but a moment before the water was completely empty offish, the nets almost broke with the number of the resulting catch.
 

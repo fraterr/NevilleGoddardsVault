@@ -1,4 +1,4 @@
-> *"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* ([Jeremiah 18:2-4](https://www.biblegateway.com/passage/?search=Jeremiah+18:2-4&version=KJV))
+*"Arise, and go down to the potter's house, and there I will let you hear my words. So, I went down to the potter's house, and there he was working at his wheel. And the vessel he was making of clay was spoiled in the potter's hand, and he reworked it into another vessel, as it seemed good to the potter to do."* ([Jeremiah 18:2-4](https://www.biblegateway.com/passage/?search=Jeremiah+18:2-4&version=KJV))
 
 The word translated 'Potter' means imagination. Out of material others would have thrown away as useless, an [awakened imagination](/lectures/awakened-imagination) refashions it as it ought to be. *"O Lord, Thou art our father, we are the clay, and Thou art our potter; we are all the work of Thy hand."* ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
@@ -26,7 +26,7 @@ Through the use of her imagination, this talented young artist has made her drea
 
 "Later, during the showing another decorator came and admired my work so much, he asked if he might arrange for me to meet the 'right' interior decorators and the 'right' owners of galleries who would buy and display my work properly. Incidentally, the show was a financial success for the owner of the gallery, as well as for me.
 
-> *"The interesting thing about this is that seemingly these three men came to me 'out of the blue'. Certainly, I made no effort during the time of my 'imagining' to contact anyone; but, now, I am getting recognition and have a market for my work. And, now, I know without a shadow of doubt that there is no 'no' when you seriously apply this principle that '[imagining creates](/lectures/imagining-creates) reality.'"* ...G.L.
+*"The interesting thing about this is that seemingly these three men came to me 'out of the blue'. Certainly, I made no effort during the time of my 'imagining' to contact anyone; but, now, I am getting recognition and have a market for my work. And, now, I know without a shadow of doubt that there is no 'no' when you seriously apply this principle that '[imagining creates](/lectures/imagining-creates) reality.'"* ...G.L.
 
 She tested the Potter and proved His creativity in performance.
 
@@ -74,7 +74,7 @@ We should always imagine ends that are of value or promise well. *"He who desire
 
 What's done flows from what's imagined. Outward forms reveal the imaginings of Man.
 
-> *"Man is the shuttle, to whose winding quest and passage through these looms God ordered motion, but ordained no rest."* (Henry Vaughan)
+*"Man is the shuttle, to whose winding quest and passage through these looms God ordered motion, but ordained no rest."* (Henry Vaughan)
 
 "I run a small business, solely owned, and a few years ago it seemed that my venture would end in failure. For some months, sales had fallen steadily and I found myself in a financial 'jam' — along with thousands of other small businessmen, as this period spanned one of our country's minor recessions. I was badly in debt and needed at least three thousand dollars almost immediately. My auditors advised me to close my doors and try to salvage what I could. Instead, I turned to my Imagination.
 
@@ -86,7 +86,7 @@ I knew your teaching but had never actually attempted to solve any problem in th
 
 I know, now, that imagination could have brought forty thousand dollars into my business just as easily as four thousands." ...L.N.C
 
-> *"O Lord, Thou art our Father; we are the clay, and Thou art our Potter; we are all the work of Thy hand."*
+*"O Lord, Thou art our Father; we are the clay, and Thou art our Potter; we are all the work of Thy hand."*
 ([Isaiah 64:8](https://www.biblegateway.com/passage/?search=Isaiah+64:8&version=KJV))
 
 

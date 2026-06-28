@@ -92,7 +92,7 @@ In the story, Jesus is a wine bibber, a glutton, a man of the world who loves ha
 
 But I say to you, if anyone tells you: *"Come, I have found him,"* do not go, because God cannot be found any place but within you. He is buried in you, will awaken in you, and rise in you, as you. 
 
-> *"It does not yet appear what we shall be, but we know that when he appears we shall be like him."* Have you seen his face? It is just like yours, but raised to the nth degree of perfection. He is the Rock, and the Rock is Christ. We have forgotten the Rock that begot us, and are unmindful of the Rock that gave us birth. 
+*"It does not yet appear what we shall be, but we know that when he appears we shall be like him."* Have you seen his face? It is just like yours, but raised to the nth degree of perfection. He is the Rock, and the Rock is Christ. We have forgotten the Rock that begot us, and are unmindful of the Rock that gave us birth. 
 
 That Rock was fragmented, and you forgot that the world round about you was nothing more than yourself pushed out. So you have fought shadows, believing in the seeming other, when housed within that seeming other is the only God, and you are he. The same series of events will awaken in him as they will in you, and in the end we will all know each other. 
 

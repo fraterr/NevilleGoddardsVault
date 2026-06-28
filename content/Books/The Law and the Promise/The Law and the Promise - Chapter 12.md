@@ -1,8 +1,8 @@
-> *"Mental Things are alone Real; what is call'd Corporeal, Nobody Knows of its Dwelling Place: it is in Fallacy, and its Existence an Imposture. Where is the Existence Out of Mind or Thought? Where is it but in the Mind of a Fool?"* (William Blake)
+*"Mental Things are alone Real; what is call'd Corporeal, Nobody Knows of its Dwelling Place: it is in Fallacy, and its Existence an Imposture. Where is the Existence Out of Mind or Thought? Where is it but in the Mind of a Fool?"* (William Blake)
 
 Memory, though faulty, is adequate to the call for sameness. If we remember another as we have known him, we recreate him in that image, and the past will be recognized in the present. [Imagining creates](/lectures/imagining-creates) reality. If there is room for improvement, we should re-construct him with new content; visualize him as we would like him to be, rather than have him bear the burden of our memory of him.
 
-> *"Everything possible to be believed is an image of truth."* (William Blake)
+*"Everything possible to be believed is an image of truth."* (William Blake)
 
 The following story is by one who believes that imagining creates reality and acting on this belief changed his attitude toward a stranger and bore witness to this change in reality.
 
@@ -14,9 +14,9 @@ The early part of this year, a man stopped me as I was walking my dog and asked 
 
 Four months later as I was again walking my dog, the same man approached me and opened the conversation by admiring my dog. 'Here's a beautiful dog', he said. 'Young man, I don't suppose you remember me, but awhile back I asked you for some money and you very kindly said *"No"* . I say "kindly”, because if you had given it to me I would still be asking for money. Instead, I got a job that very next morning, and now I'm on my feet and have some self-respect again'.
 
-> *"I knew his job was a fact when I imagined it that night some four months before, but I won't deny there was immense satisfaction in having him appear in the flesh to confirm it!"* ...F.B.
+*"I knew his job was a fact when I imagined it that night some four months before, but I won't deny there was immense satisfaction in having him appear in the flesh to confirm it!"* ...F.B.
 
-> *"I have no silver and gold, but I give you what I have."* ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+3:6&version=KJV))
+*"I have no silver and gold, but I give you what I have."* ([Acts 3:6](https://www.biblegateway.com/passage/?search=Acts+3:6&version=KJV))
 
 None is to be discarded, all must be saved, and our Imagination reshaping memory is the process whereby this salvation is brought to pass. To condemn the man for having lost his way is to punish the already punished. *"O whom should I pity if I pity not the sinner who is gone astray?"* (William Blake, *"Jerusalem"*).
 
@@ -39,7 +39,7 @@ Nothing has existence for us save through the memory we have of it, therefore we
 
 Inasmuch as imagining is creative, our memory of another either furthers or hinders him, and makes his upward or downward way easier and swifter.
 
-> *"There is no coal of character so dead that it will not glow and flame if but slightly turned."* The following story shows that imagining can make rings, and husbands, and move people *"to China"*!
+*"There is no coal of character so dead that it will not glow and flame if but slightly turned."* The following story shows that imagining can make rings, and husbands, and move people *"to China"*!
 
 "My husband, child of a broken home and raised by beloved grandparents, was never 'close' to his mother — nor she to him. A woman of sixty-three and a divorcee for thirty-two of those years, she was lonely and embittered; and my relationship with her was strained as I attempted to 'stay in the middle'. By her own admission, her great desire was to remarry for companionship, but she believed this to be impossible at her age. My husband would often state to me that he hoped she would remarry and, as he fervently put it, 'perhaps live way out of town'!
 
@@ -68,7 +68,7 @@ The fourth day I received a telephone call from him. He told me that by what he 
 
 There is nothing more fundamental to the secret of imagining than the distinction between imagining and the state imagined.
 
-> *"Mental Things are alone Real..."* *"Every thing possible to be believ'd is an image of truth."*
+*"Mental Things are alone Real..."* *"Every thing possible to be believ'd is an image of truth."*
 (William Blake)
 
 

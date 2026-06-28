@@ -1,6 +1,6 @@
 The book of Genesis is made up of three records, called the J, P, and E manuscripts. Tonight I will refer to the E manuscript, which begins with the 15th chapter of Genesis: "As the sun was going down, Abram fell into a deep sleep and great darkness fell upon him. Then the Lord said to Abram, 'Know for a surety that your descendants will be sojourners in a land that is not theirs. They will be slaves there and they will be oppressed for four hundred years. After that they will come out with great possessions.'
 
-> *"Abraham believed and it was accounted unto him for righteousness."* 
+*"Abraham believed and it was accounted unto him for righteousness."* 
 
 Here we discover that it is not what man is, but what he trusts God to do, that saves him. Believing that God the Father has prepared the way for his banished sons to return, in the state of faith you accepted the verdict that you would be enslaved for four hundred years.
 

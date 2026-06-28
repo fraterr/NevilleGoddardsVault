@@ -1,4 +1,4 @@
-> *"Every generated body in its inward form is a garden of delight and a building of magnificence. Travelers from Eternity pass outward to bodies of flesh and blood and forgetfulness, but travelers to Eternity pass inward to the Father and Remembrance."* (William Blake) Notice the movement here. Those who travel from eternity pass outward to these bodies of flesh and blood and forgetfulness, while those who travel to eternity pass inward to the body of the Father and Remembrance!
+*"Every generated body in its inward form is a garden of delight and a building of magnificence. Travelers from Eternity pass outward to bodies of flesh and blood and forgetfulness, but travelers to Eternity pass inward to the Father and Remembrance."* (William Blake) Notice the movement here. Those who travel from eternity pass outward to these bodies of flesh and blood and forgetfulness, while those who travel to eternity pass inward to the body of the Father and Remembrance!
 
 Tonight I want to ask this question: *"Who am I?"* Am I Neville Goddard? No. Are you John Brown or Mary Smith? You may know your physical background and if I should call your name you would answer, but are you the name you go by? No. Your name is a part of your outward journey from eternity into a state of forgetfulness of who you really are. Were you to turn around by practicing repentance, by radically changing your attitude towards everything in the world, you would move inward to the Father and Remembrance.
 
@@ -47,11 +47,11 @@ Without vision Man hasn't the slightest concept of the mystery that God is burie
 As Blake so beautifully said: *"Every generated body is a garden of delight and a building of magnificence."* This body is that which is within, not without. On the outside the garment becomes withered, old, and decayed. That is not the body Blake is speaking of, for the generated body is within. It is a form, and when you see it you see the glory that awaits your return.
 
 I remember a vision my friend Bob Crutcher shared. He found himself in a dilapidated shack fighting a war in Paris. As he opened the door to leave, all of the soldiers fused into a single man and I am that man waiting for him. Taking him to the back of the house, he sees beautiful, golden fields being harvested with wheat. To his left that which was the enemy is now transformed into a mountain of harvested wheat. Sensing something symbolic in the scene he asked: *"What are they doing?"*
-> *"The same thing they did last year. It goes on forever,"* I replied.
-> *"How long have I been here?"*
-> *"Two years."*
-> *"Did I learn anything?"* 
-> *"Yes, you learned how to move, how to create."* Then he looked at what was the little shack, and it had become a castle with attendants waiting to escort him to his quarters, as the vision came to its end.
+*"The same thing they did last year. It goes on forever,"* I replied.
+*"How long have I been here?"*
+*"Two years."*
+*"Did I learn anything?"* 
+*"Yes, you learned how to move, how to create."* Then he looked at what was the little shack, and it had become a castle with attendants waiting to escort him to his quarters, as the vision came to its end.
 
 Bob has already discovered he is God the Father, so no matter what happens to the outer form, it is as nothing to him. It is only a garment of forgetfulness worn by a Son of God as he passes inward to the Father and Remembrance.
 

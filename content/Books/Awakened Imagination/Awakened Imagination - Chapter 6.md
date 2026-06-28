@@ -1,14 +1,14 @@
 THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
-> *"The Kingdom of Heaven is within you."* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
+*"The Kingdom of Heaven is within you."* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
-> *"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
+*"No man can come to me, except the Father which hath sent Me draw him... I and My Father are One."* ([John 6:44](https://www.biblegateway.com/passage/?search=John+6:44&version=KJV); 10:30)  
 The world which is described from observation is a manifestation of the mental activity of the observer.  
 When man discovers that his world is his own mental activity made visible, that no man can come unto him except he draws him, and that there is no one to change but himself, his own imaginative self, his first impulse is to reshape the world in the image of his ideal.  
 But his ideal is not so easily incarnated. In that moment when he ceases to conform to external discipline, he must impose upon himself a far more rigorous discipline, the self-discipline upon which the realization of his ideal depends.  
 Imagination is not entirely untrammeled and free to move at will without any rules to constrain it. In fact, the contrary is true. Imagination travels according to habit  
 Imagination has choice, but it chooses according to habit. Awake or asleep, man's imagination is constrained to follow certain definite patterns. It is this benumbing influence of habit that man must change; if he does not, his Dreams will fade under the paralysis of custom.  
 Imagination, which is [Christ in man](/lectures/christ-in-man), is not subject to the necessity to produce only that which is perfect and good. It exercises its absolute freedom from necessity by endowing the outer physical self with free will to choose to follow good or evil, order or disorder.  
-> *"Choose this day whom ye will serve."* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV))  
+*"Choose this day whom ye will serve."* ([Joshua 24:15](https://www.biblegateway.com/passage/?search=Joshua+24:15&version=KJV))  
 But after the choice is made and accepted so that it forms the individual's habitual consciousness, then imagination manifests its infinite [power and wisdom](/lectures/power-and-wisdom) by moulding the outer sensuous world of becoming in the image of the habitual inner speech and actions of the individual.  
 To realize his ideal, man must first change the pattern which his imagination has followed.  
 Habitual thought is indicative of character.  
@@ -23,7 +23,7 @@ To the outer man of sense, who knows nothing of the inner man of Being, this is 
 William Blake – one who is very much delighted with being in good company. Born 28 November 1757 in London and has died several times since.  
 When man has the sense of Christ as his imagination, he sees why Christ must die and rise again from the dead to save man – why he must detach his imagination from his present state and match it to a higher concept of himself if he would rise above his present limitations and thereby save himself.  
 Here is a lovely story of a mystical death which was witnessed by a *"neighbor"*.  
-> *"Last week"*, writes the one *"who rose from the dead"*, "a friend offered me her home in the mountains for the Christmas holidays as she thought she might go east. She said that she would let me know this week. We had a very pleasant conversation and I mentioned you and your teaching in connection with a discussion of Dunne's 'Experiment with Time' which she had been reading.  
+*"Last week"*, writes the one *"who rose from the dead"*, "a friend offered me her home in the mountains for the Christmas holidays as she thought she might go east. She said that she would let me know this week. We had a very pleasant conversation and I mentioned you and your teaching in connection with a discussion of Dunne's 'Experiment with Time' which she had been reading.  
 "Her letter arrived Monday. As I picked it up, I had a sudden sense of depression.  
 However, when I read it, she said I could have the house and told me where to get the keys. Instead of being cheerful, I grew still more depressed, so much so I decided there must have been something between the lines which I was getting intuitively. I unfolded the letter and read the first page through and as I turned to the second page, I noticed she had written a postscript on the back of the first sheet. It consisted of an extremely blunt and heavy-handed description of an unlovely trait in my character which I had struggled for years to overcome, and for the past two years I thought I had succeeded.  
 Yet here it was again, described with clinical exactitude.  

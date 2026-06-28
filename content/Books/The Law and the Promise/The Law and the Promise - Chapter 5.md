@@ -1,4 +1,4 @@
-> *"...all you behold; tho' it appears Without, it is Within; In your Imagination, of which this World of Mortality is but a Shadow."* — Blake
+*"...all you behold; tho' it appears Without, it is Within; In your Imagination, of which this World of Mortality is but a Shadow."* — Blake
 
 Nothing appears or continues in being by a power of its own. Events happen because comparatively stable imaginal activities created them, and they continue in being by virtue of the support they receive from such imaginal activities. The part which imagining the wish fulfilled plays in consciously creating circumstances is obvious in this series of stories.
 
@@ -16,7 +16,7 @@ He decided he would try to imagine himself as the winner of the 5-10 pool at Cal
 
 This was my entire imaginal drama; and for three weeks, night after night, I enacted this scene and fell asleep in the action.
 
-> *"After three weeks I traveled physically to the Caliente Race Track, and on that day every detail of my imaginative play was actually realized. The only change in the scene was that the cashier gave me a check for a total of $84,000.00 instead of currency."* ...T.K.
+*"After three weeks I traveled physically to the Caliente Race Track, and on that day every detail of my imaginative play was actually realized. The only change in the scene was that the cashier gave me a check for a total of $84,000.00 instead of currency."* ...T.K.
 
 After my lecture the night this story was told, a man in the audience asked me if I thought it possible for him to duplicate T.K.'s experience. I told him he must decide the circumstances of his imaginal scene himself but that whatever scene he chose, he must create a drama he could make natural to himself and imagine the end intently with all the feeling he could muster; he must not labor for the means to the end but live imaginatively in the feeling of the wish fulfilled.
 
@@ -30,11 +30,11 @@ This man had a sequel to his most interesting duplication of T.K.'s good fortune
 
 "I would divide the winnings into twelve piles on my desk. Counting the money in my imaginary hands I would put $1,000.00 in each of eleven piles and the remaining five-hundred thirty-three dollars in the last pile. My 'imaginative accounting' would amount to $36,533.00 including my bank balances.
 
-> *"I enacted this entire imaginative scene each morning, afternoon and night for less than one month, and, on March second, I went to the Caliente track again. I made out my tickets, but strangely enough and not knowing why I did so, I duplicated six more tickets exactly like the six already made out but in the tenth selection I made a 'mistake' and copied two tickets twice. As the winners came in, I held two of them — each paying $16,423.50. I also had six consolation tickets, each paying $656.80. The combined total amounted to $36,788.00. My imaginary accounting one month before had totaled $36,533.00. Two points of interest, most profound to me, were that by seeming accident I had marked two winning tickets identically and also, that at the end of the ninth race (which was one of the major winners) the trainer attempted to 'scratch' the horse, but the Stewards denied the trainer's request."* ...A.J.F.
+*"I enacted this entire imaginative scene each morning, afternoon and night for less than one month, and, on March second, I went to the Caliente track again. I made out my tickets, but strangely enough and not knowing why I did so, I duplicated six more tickets exactly like the six already made out but in the tenth selection I made a 'mistake' and copied two tickets twice. As the winners came in, I held two of them — each paying $16,423.50. I also had six consolation tickets, each paying $656.80. The combined total amounted to $36,788.00. My imaginary accounting one month before had totaled $36,533.00. Two points of interest, most profound to me, were that by seeming accident I had marked two winning tickets identically and also, that at the end of the ninth race (which was one of the major winners) the trainer attempted to 'scratch' the horse, but the Stewards denied the trainer's request."* ...A.J.F.
 
 How subtle were the threads that led to his goal? Results must testify to our imagining or we really are not imagining the end at all. A.J.F. faithfully imagined the end, and all things conspired to aid his harvesting. His *"mistake"* in copying a winning ticket twice, and the Steward's refusal to allow the trainer's request were events created by the imaginal drama to move the plan of things forward to its goal.
 
-> *"Chance”, wrote Belfort Bax, "*may be defined as that element in the reality change —that is, in the flowing synthesis of events — which is irreducible to law or the causal category."
+*"Chance”, wrote Belfort Bax, "*may be defined as that element in the reality change —that is, in the flowing synthesis of events — which is irreducible to law or the causal category."
 
 To live wisely we must be aware of our imaginal activities or, at any rate, of the end which they are tending. We must see to it that it is the end we desire. Wise imagining identifies itself only with such activities that are of value or promise well.
 

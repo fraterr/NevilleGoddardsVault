@@ -28,7 +28,7 @@ You agreed to take upon yourself this garment of anatomy called man, which is fi
   
 The moment you contemplate an act, it has been committed. Whether it is pleasant and you may be inclined to do it physically, or you restrain the impulse to act upon that which you are contemplating, the act is already done!  
   
-> *"You have heard it said of old: 'You shall not commit adultery,' but I say to you that any man who looks upon a woman lustfully has already committed the act with her in his heart."* Here you see the whole drama put into a psychological frame. It is not good enough to restrain the impulse. You can't even have it! God consigned you to disobedience by giving you a garment of passion and then telling you that if you entertained one concupiscent thought, you would die.  
+*"You have heard it said of old: 'You shall not commit adultery,' but I say to you that any man who looks upon a woman lustfully has already committed the act with her in his heart."* Here you see the whole drama put into a psychological frame. It is not good enough to restrain the impulse. You can't even have it! God consigned you to disobedience by giving you a garment of passion and then telling you that if you entertained one concupiscent thought, you would die.  
   
 There is not a thing you -as man - have ever done that God has seen something to be blamed in the act. And in the end, God in his infinite mercy will step beyond and arouse you. Having tasted what it is to be man in a world of death, you - a son of the Most High - will add what you have extracted from being man, to God's glory.  
   

@@ -1,10 +1,10 @@
-> *"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
+*"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
 
 By basic desire is meant your real objective. Secondary desires deal with the manner of realization. God, your I AM, speaks to you, the conditioned conscious state, through your basic desires. Secondary desires or ways of expression are the secrets of your I AM, the all wise Father. Your Father, I AM, reveals the first and last – *"I am the beginning and the end"* ([Revelation 1:8, 22:13](https://www.biblegateway.com/passage/?search=Revelation+1:8,+22:13&version=KJV)) – but never does He reveal the middle or secret of His ways; that is, the first is revealed as the word, your basic desire. The last is its fulfillment – the word made flesh. The second or middle (the plan of unfoldment) is never revealed to man but remains forever the Father’s secret.
 
-> *"For I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto those things, God shall add unto him the plagues that are written in this book; and if any man shall take away from the words of the book of this prophecy, God shall take away his part out of the book of life."* (Revelation, 22:18-19)
+*"For I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto those things, God shall add unto him the plagues that are written in this book; and if any man shall take away from the words of the book of this prophecy, God shall take away his part out of the book of life."* (Revelation, 22:18-19)
 
 The words of prophecy spoken of in the book of Revelation are your basic desires which must not be further conditioned. Man is constantly adding to and taking from these words. Not knowing that the basic desire contains the plan and power of expression man is always compromising and complicating his desire.
 
@@ -50,7 +50,7 @@ Be very sure then that you would love to possess the gift yourself for if you fi
 
 Always hear and accept as true of others that which you would desire for yourself. In so doing you are building heaven on earth.
 
-> *"Do unto others as you would have them do unto you"* is based upon this law.
+*"Do unto others as you would have them do unto you"* is based upon this law.
 
 Only accept such states as true of others that you would willingly accept as true of yourself that you may constantly create heaven on earth. Your heaven is defined by the state of consciousness in which you live, which state is made up of all that you accept as true of yourself and true of others.
 

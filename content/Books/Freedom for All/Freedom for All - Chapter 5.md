@@ -1,4 +1,4 @@
-> *"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+31:15&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
+*"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+31:15&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
 
 These six days are not twenty-four-hour periods of time.
 
@@ -24,7 +24,7 @@ The interval is called the Sabbath.
 
 The Sabbath is the mental rest which follows the fixed psychological state; it is the result of your six days of work.
 
-> *"The Sabbath was made for man"* ([Mark 2:27](https://www.biblegateway.com/passage/?search=Mark+2:27&version=KJV)). This mental rest which follows a successful conscious impregnation is the period of mental pregnancy; a period which is made for the purpose of incubating the manifestation.
+*"The Sabbath was made for man"* ([Mark 2:27](https://www.biblegateway.com/passage/?search=Mark+2:27&version=KJV)). This mental rest which follows a successful conscious impregnation is the period of mental pregnancy; a period which is made for the purpose of incubating the manifestation.
 
 It was made for the manifestation; the manifestation was not made for it.
 
@@ -48,7 +48,7 @@ The man who knows the true meaning of these six work days realizes that the obse
 
 The peace and the quiet of the Sabbath can be experienced only when man has succeeded in becoming conscious of being that which he desires to be. If he fails to make this conscious impression he has missed the mark; he has sinned, for to sin is to miss the mark – to fail to achieve one’s objective; a state in which there is no peace of mind.
 
-> *"If I had not come and spoken unto them, they had not had sin"* ([John 15:22](https://www.biblegateway.com/passage/?search=John+15:22&version=KJV)). If man had not been presented with an ideal state toward which to aim, a state to be desired and acquired, he would have been satisfied with his lot in life and would never have known sin.
+*"If I had not come and spoken unto them, they had not had sin"* ([John 15:22](https://www.biblegateway.com/passage/?search=John+15:22&version=KJV)). If man had not been presented with an ideal state toward which to aim, a state to be desired and acquired, he would have been satisfied with his lot in life and would never have known sin.
 
 Now that man knows that his capacities are infinite, knows that by working six days or by making a psychological adjustment he can realize his desires, he will not be satisfied until he achieves his every objective.
 

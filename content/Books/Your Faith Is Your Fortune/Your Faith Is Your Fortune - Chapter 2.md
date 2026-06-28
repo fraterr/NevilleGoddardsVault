@@ -1,4 +1,4 @@
-> *"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."* ([Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
+*"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."* ([Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 Man can decree a thing and it will come to pass.
 
@@ -20,7 +20,7 @@ The day man does this he will know that he and his Father are one but his Father
 
 When man discovers his consciousness to be the impersonal power of expression, which power eternally personifies itself in his conceptions of himself, he will assume and appropriate that state of consciousness which he desires to express; in so doing he will become that state in expression.
 
-> *“Ye shall decree a thing and it shall come to pass”* can now be told in this manner: You shall become conscious of being or possessing a thing and you shall express or possess that which you are conscious of being.
+*“Ye shall decree a thing and it shall come to pass”* can now be told in this manner: You shall become conscious of being or possessing a thing and you shall express or possess that which you are conscious of being.
 
 The law of consciousness is the only law of expression, *“I AM the way.”* *“I AM the resurrection.”* Consciousness is the way as well as the power which resurrects and expresses all that man will ever be conscious of being.
 

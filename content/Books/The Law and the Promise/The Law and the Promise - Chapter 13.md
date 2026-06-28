@@ -1,4 +1,4 @@
-> *"General knowledge is remote knowledge; It is in particulars that wisdom consists. And happiness too."* (William Blake)
+*"General knowledge is remote knowledge; It is in particulars that wisdom consists. And happiness too."* (William Blake)
 
 We must use our imagination to achieve particular ends, even if the ends are all trivia. Because men do not clearly define and imagine particular ends the results are uncertain, while they might be perfectly certain. To imagine particular ends is to discriminate clearly. *"How do we distinguish the oak from the beech, the horse from the ox, but by the bounding outline?"* (William Blake, Human Form Divine)
 
@@ -6,14 +6,14 @@ Definition asserts the reality of the particular thing against the formless gene
 
 Life on earth is a kindergarten for image making. The bigness or littleness of the object to be created is not in itself important.
 
-> *"The great and golden rule of art, as well as of life”, said Blake, "*is this: That the more distinct, sharp and wirey the bounding line, the more perfect the work of art, and the less keen and sharp, the greater is the evidence of weak imitation. What is it that builds a house and plants a garden but the definite and determinate? ...leave out this line, and you leave out life itself."
+*"The great and golden rule of art, as well as of life”, said Blake, "*is this: That the more distinct, sharp and wirey the bounding line, the more perfect the work of art, and the less keen and sharp, the greater is the evidence of weak imitation. What is it that builds a house and plants a garden but the definite and determinate? ...leave out this line, and you leave out life itself."
 
 The following stories are concerned with the acquiring of seemingly little things, or 'toys' as I call them, but they are important because of the clear imaginal images that created the toys. The author of the first story is one of whom it is said, 'she has everything'. This is true. She has financial, social and intellectual security.
 
 She writes:
 "As you know, through your teaching and through my practice of that teaching, I have completely changed myself and my life. Two weeks ago when you spoke of 'toys', I realized I had never used my imagination for the getting of 'things' and I decided it would be fun to try it. You told of a young woman who was given a hat by merely wearing that hat in her imagination. The last thing on earth I needed was a hat, but I wanted to test my imagination for this 'getting of things', so I selected a hat pictured in a fashion magazine. I cut the picture out and stuck it on the mirror of my dressing table. I studied the picture carefully. Then, I shut my eyes, and in my imagination, I put that hat on my head and 'wore' it as I walked out of the house. I did this just once.
 
-> *"The following week I met some friends for luncheon and one of them was wearing 'the' hat. We all admired it. The very next day, I received a parcel by special delivery messenger. 'The' hat was in the parcel. The friend who had worn it the day before had sent the hat to me with a note saying she did not particularly care for the hat and didn't know why she had bought it in the first place, but for some reason she thought it would look well on me — and would I please accept it!"* ...G.L.
+*"The following week I met some friends for luncheon and one of them was wearing 'the' hat. We all admired it. The very next day, I received a parcel by special delivery messenger. 'The' hat was in the parcel. The friend who had worn it the day before had sent the hat to me with a note saying she did not particularly care for the hat and didn't know why she had bought it in the first place, but for some reason she thought it would look well on me — and would I please accept it!"* ...G.L.
 
 Movement from 'Dreams to things' is the power driving humanity.
 
@@ -41,23 +41,23 @@ I apologized and pointed to a painting hanging at head-height across the room.
 
 "The next day, my husband had an appointment with a client which he did not want to keep. But the appointment was kept, and my husband did not return home until after dark. When he walked through the front door, I was busy in another part of the house and called a greeting to him. A few minutes later I heard hammering and walked into the living room to see what he was doing. On our wall hung my picture. In my first moment of intense joy I remembered the man in the art gallery, saying... 'If you're very lucky, you may pick up one of his prints...' Lucky? Well, here is my husband's part of this story:
 
-> *"Making the call already mentioned, he entered one of the poorest, meanest little houses he had ever been in. The client introduced himself and led my husband into a tiny dark dining area where the two of them sat down at a bare table. As my husband put his brief case on the table top, he looked up and saw the picture on a wall. He confessed to me he had conducted a very sloppy interview because he couldn't take his eyes from that picture. The client signed the contract and gave a check as down payment which, as my husband believed at the time, was ten dollars short. Mentioning this fact to the client, he said the check given was every cent he could afford but added..."* I've noticed your interest in that picture. It was here when I took this place. I don't know to whom it belonged, but I don't want it. If you'll put the ten dollars in for me, I'll give you the picture.'
+*"Making the call already mentioned, he entered one of the poorest, meanest little houses he had ever been in. The client introduced himself and led my husband into a tiny dark dining area where the two of them sat down at a bare table. As my husband put his brief case on the table top, he looked up and saw the picture on a wall. He confessed to me he had conducted a very sloppy interview because he couldn't take his eyes from that picture. The client signed the contract and gave a check as down payment which, as my husband believed at the time, was ten dollars short. Mentioning this fact to the client, he said the check given was every cent he could afford but added..."* I've noticed your interest in that picture. It was here when I took this place. I don't know to whom it belonged, but I don't want it. If you'll put the ten dollars in for me, I'll give you the picture.'
 
-> *"When my husband returned to his company's main office, he learned he had been in error about the amount. He was not charged ten dollars. Our picture is on our wall. "* And it costs us nothing." ...A.A.
+*"When my husband returned to his company's main office, he learned he had been in error about the amount. He was not charged ten dollars. Our picture is on our wall. "* And it costs us nothing." ...A.A.
 
 Of R.L., who writes the following letter, it must be said:
 
-> *"In faith, Lady, you have a merry heart."* (William Shakespeare, *"Much Ado About Nothing"*)
+*"In faith, Lady, you have a merry heart."* (William Shakespeare, *"Much Ado About Nothing"*)
 
 "One day, during a bus strike, I needed to go into the downtown area and had to walk ten blocks from my home to the nearest bus in operation. Before starting home, I recalled there was no food market on this new route and I wouldn't be able to shop for dinner. I had enough to manage a 'pot luck' meal but I would need bread. After shopping all day, the ten blocks back from the bus line was all I could manage and to go still farther to shop for bread was out of the question.
 
-> *"I stood very still for a moment and allowed a vision of bread to 'dance in my head'. Then I started for home. When I boarded the bus, I was so tired I grabbed the first available seat and almost sat on a paper bag. Now, on a crowded bus tired passengers rarely look directly at one another, so being naturally curious, I peeked into the bag. Of course it was a loaf of bread — not just any bread but the very same brand of bread I always buy!"*...R.L.
+*"I stood very still for a moment and allowed a vision of bread to 'dance in my head'. Then I started for home. When I boarded the bus, I was so tired I grabbed the first available seat and almost sat on a paper bag. Now, on a crowded bus tired passengers rarely look directly at one another, so being naturally curious, I peeked into the bag. Of course it was a loaf of bread — not just any bread but the very same brand of bread I always buy!"*...R.L.
 
 Trifles: all trifles — but they produced their trivia without price. Imagining accomplished these things without the means generally reputed necessary to do so.
 
 Man rates wealth in a way that bears no relation to real values.
 
-> *"Come, buy wine and milk without money and without price."* — ([Isaiah 55:1](https://www.biblegateway.com/passage/?search=Isaiah+55:1&version=KJV))
+*"Come, buy wine and milk without money and without price."* — ([Isaiah 55:1](https://www.biblegateway.com/passage/?search=Isaiah+55:1&version=KJV))
 
 
 

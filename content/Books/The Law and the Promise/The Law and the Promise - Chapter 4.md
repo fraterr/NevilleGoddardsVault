@@ -1,4 +1,4 @@
-> *"The distinction between what is real and what is imaginary is not one that can be finally maintained... all existing things are, in an intelligible sense, imaginary."* — John S. MacKenzie
+*"The distinction between what is real and what is imaginary is not one that can be finally maintained... all existing things are, in an intelligible sense, imaginary."* — John S. MacKenzie
 
 [There is no fiction](/lectures/there-is-no-fiction). If an imaginal activity can produce a physical effect, our physical world must be essentially imaginal. To prove this would require merely that we observe our imaginal activities and watch to see whether or not they produce corresponding external effects. If they do, then we must conclude that there is no fiction. Today's imaginal drama — fiction — becomes tomorrow's fact.
 
@@ -24,7 +24,7 @@ But, then this didn't seem to matter because both were labeled 'unshakable!'
 
 "On April 19, 1912, the real ship left Southampton on her maiden voyage to New York. Her cargo included a priceless copy of the Rubaiyat of Omar Khayyam and a list of passengers collectively worth $250 million dollars. On her way over, she, too, struck an iceberg and went down on a cold April night.
 
-> *"Robertson called his ship the Titan; the White Star Line called its ship the Titanic."*
+*"Robertson called his ship the Titan; the White Star Line called its ship the Titanic."*
 
 Had Morgan Robertson known that Imagining Creates Reality, that today's fiction is tomorrow's fact, would he have written the novel Futility? *"In the moment of the tragic catastrophe”, writes Schopenhauer, "*the conviction becomes more distinct to us than ever that life is a bad dream from which we have to awake." And the bad dream is caused by the imaginal activity of sleeping humanity.
 
@@ -51,13 +51,13 @@ That his own *"he"* can neither feel nor see?
 
 Imaginative writers communicate not their vision of the world but their attitudes which result in their vision. Just a short while before Katherine Mansfield died, she said to her friend Orage:
 
-> *"There are in life as many aspects as attitudes toward it; and aspects change with attitudes... Could we change our attitude, we should not only see life differently, but life itself would come to be different. Life would undergo a change of appearance because we ourselves had undergone a change in attitude... Perception of a new pattern is what I call a creative attitude towards life."*
+*"There are in life as many aspects as attitudes toward it; and aspects change with attitudes... Could we change our attitude, we should not only see life differently, but life itself would come to be different. Life would undergo a change of appearance because we ourselves had undergone a change in attitude... Perception of a new pattern is what I call a creative attitude towards life."*
 
-> *"Prophets”, wrote Blake, "* in the modern sense of the word, have never existed. Jonah was no prophet in the modern sense, for his prophesy of Nineveh failed. Every honest man is a prophet; he utters his opinion both of private & public matters. Thus: If you go on So, the result is So. He never says, such a thing shall happen let you do what you will. A Prophet is a Seer, not an Arbitrary Dictator." The function of the Prophet is not to tell us what is inevitable, but to tell us what can be built up out of persistent imaginal activities.
+*"Prophets”, wrote Blake, "* in the modern sense of the word, have never existed. Jonah was no prophet in the modern sense, for his prophesy of Nineveh failed. Every honest man is a prophet; he utters his opinion both of private & public matters. Thus: If you go on So, the result is So. He never says, such a thing shall happen let you do what you will. A Prophet is a Seer, not an Arbitrary Dictator." The function of the Prophet is not to tell us what is inevitable, but to tell us what can be built up out of persistent imaginal activities.
 
 The future is determined by the imaginal activities of humanity, activities in their creative march, activities which can be seen in *"Your Dreams and the visions of your head as you lay in bed"* ([Daniel 2:28](https://www.biblegateway.com/passage/?search=Daniel+2:28&version=KJV)). *"Would that all the Lord's people were prophets"* ([Numbers 11:29](https://www.biblegateway.com/passage/?search=Numbers+11:29&version=KJV)) in the true sense of the word like this dancer who now, from the summit of his realized ideal, sights yet higher peaks that are to be scaled. After you have read this story you will understand why he is so confident that he can predetermine any materialistic future he desires and why he is equally sure that others give reality to what were otherwise a mere figment of his imagination, that there exists and can exist nothing outside imagining on some level or other. Nothing continues in being save what imagining supports.
 
-> *"...The mind can make Substance, and people planets of its own with beings brighter than have been, and give a breath to forms which can outlive all flesh..."* (Lord G. Byron) "
+*"...The mind can make Substance, and people planets of its own with beings brighter than have been, and give a breath to forms which can outlive all flesh..."* (Lord G. Byron) "
 
 As my story begins at the age of nineteen I was a mildly successful dancing teacher and continued in this static state for almost five years. At the end of this time I met a young lady who talked me into attending your lectures. My thought, upon hearing you say 'Imagining creates reality', was that the entire idea was ridiculous. However, I decided to accept your challenge and disprove your thesis. I bought your book '[Out of This World](/books/out-of-this-world/out-of-this-world)' and read it many times. Still unconvinced, I set myself a rather ambitious goal. My present position was as an instructor with the Arthur Murray Dance Studio and my goal was to own a franchise and be boss of an Arthur Murray studio myself!
 
@@ -75,23 +75,23 @@ As my story begins at the age of nineteen I was a mildly successful dancing teac
 
 "My little Reno Studio was the 'talk' of the convention and I did appear on that stage just as I had done in my imagination. But even after this unbelievable but actual happening, the young teacher who threw me the challenge remained unconvinced. He said it had all happened too naturally! And he was sure it would have happened anyway!
 
-> *"I did not mind his attitude because his challenge had given me another opportunity to prove, at least to myself, that Imagining does Create Reality. From that time on, I continued with my ambition to own the 'largest Arthur Murray Dance Studio in the world'! Night after night, in my imagination, I heard myself accepting a studio franchise for a great city. Within three weeks Mr. Murray called me and offered a studio in a city of one and a half million people! It is now my goal to make my studio the greatest and biggest in the entire system. And, of course, 'I know it will be done — through my Imagination'!"* ...E.O.L., Jr.
+*"I did not mind his attitude because his challenge had given me another opportunity to prove, at least to myself, that Imagining does Create Reality. From that time on, I continued with my ambition to own the 'largest Arthur Murray Dance Studio in the world'! Night after night, in my imagination, I heard myself accepting a studio franchise for a great city. Within three weeks Mr. Murray called me and offered a studio in a city of one and a half million people! It is now my goal to make my studio the greatest and biggest in the entire system. And, of course, 'I know it will be done — through my Imagination'!"* ...E.O.L., Jr.
 
-> *"Imagining”, writes Douglas Fawcett, "* may be hard to grasp, being 'quicksilver-like' it vanishes into each of its metamorphoses and thereby displays its transformative magic.*" We must look beyond the physical fact for the imagining which has caused it. For one year E.O.L., Jr. lost himself in his metamorphosis but fortunately he remembered "* the silly nonsense" he had gone through before getting his own studio... and re-read the book.
+*"Imagining”, writes Douglas Fawcett, "* may be hard to grasp, being 'quicksilver-like' it vanishes into each of its metamorphoses and thereby displays its transformative magic.*" We must look beyond the physical fact for the imagining which has caused it. For one year E.O.L., Jr. lost himself in his metamorphosis but fortunately he remembered "* the silly nonsense" he had gone through before getting his own studio... and re-read the book.
 
 Imaginal acts on the human level need a certain interval of time to develop but imaginal acts, whether committed to print or locked in the bosom of a hermit, will realize themselves in time.
 
 Test yourself, if only out of curiosity. You will discover the *"Prophet"* is your own imagining and you will know *"there is no fiction"*.
 
-> *"We should never be certain that it was not some woman treading in the wine-press who began that subtle change in men's mind... or that the passion, because of which so many countries were given to the sword, did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."* (William Butler Yeats)
+*"We should never be certain that it was not some woman treading in the wine-press who began that subtle change in men's mind... or that the passion, because of which so many countries were given to the sword, did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."* (William Butler Yeats)
 
 There is no fiction. Imagining fulfills itself in what our lives become.
 
-> *"And now I have told you before it takes place, so that when it does take place, you may believe."* ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
+*"And now I have told you before it takes place, so that when it does take place, you may believe."* ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
 
 The Greeks were right: *"The Gods have come down to us in the likeness of men!"* ([Acts 14:11](https://www.biblegateway.com/passage/?search=Acts+14:11&version=KJV)). But they have fallen asleep and do not realize the might they wield by their imaginal activities.
 
-> *"Real are the Dreams of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
+*"Real are the Dreams of Gods, and smoothly pass Their pleasure in a long immortal dream."* (John Keats)
 
 E.B., an author, is fully aware that *"today's fiction can become tomorrow's fact"*. In this letter, she writes
 
@@ -99,9 +99,9 @@ E.B., an author, is fully aware that *"today's fiction can become tomorrow's fac
 
 "The heroine of my story took a vacation trip to Vermont. To the small city of Stowe, Vermont, to be exact. When she reached her destination she was faced with such unpleasant behavior on the part of her companion that she either had to continue her lifetime pattern of allowing another's selfish demand dominate her or to break that pattern and leave. She broke it and returned to New York. When she returned (and the story continues) events took shape in a proposal of marriage which she happily accepted.
 
-> *"For my part of this tale... as small events evolved... I began to remember the dictates of my own pen and in significant relationship. This is what happened to me! I received an invitation from a friend offering me a vacation at her summer place in Vermont. I accepted and was not startled, at first, when I learned her 'summer place' was in the city of Stowe. When I arrived, I found my hostess in such a highly nervous state I realized I was faced with either a wretched summer or the choice of 'walking out' on her. Never before in my life had I been strong enough to ignore what I thought were the claims of duty and friendship — but this time I did and without ceremony returned to New York. A few days after I returned to my home, I, too, received a proposal of marriage. But at this point fact and fiction parted. I refused the offer! I know, Neville, there is no such thing as fiction."* ...E.B.
+*"For my part of this tale... as small events evolved... I began to remember the dictates of my own pen and in significant relationship. This is what happened to me! I received an invitation from a friend offering me a vacation at her summer place in Vermont. I accepted and was not startled, at first, when I learned her 'summer place' was in the city of Stowe. When I arrived, I found my hostess in such a highly nervous state I realized I was faced with either a wretched summer or the choice of 'walking out' on her. Never before in my life had I been strong enough to ignore what I thought were the claims of duty and friendship — but this time I did and without ceremony returned to New York. A few days after I returned to my home, I, too, received a proposal of marriage. But at this point fact and fiction parted. I refused the offer! I know, Neville, there is no such thing as fiction."* ...E.B.
 
-> *"Forgetful is green earth, the gods alone remember everlastingly... by their great memories the gods are known."* (George Meredith, *"Ballads And Poems Of Tragic Life"*)
+*"Forgetful is green earth, the gods alone remember everlastingly... by their great memories the gods are known."* (George Meredith, *"Ballads And Poems Of Tragic Life"*)
 
 Ends run true to their imaginal origins — we reap the fruit of forgotten blossom-time. In life the events do not come up always where we have strewn the seed; so that we may not recognize our own harvest. Events are the emergence of a hidden imaginal activity. Man is free to imagine whatever he desires. This is why, despite all fatalists and misguided prophets of doom, all awakened men know that they are free. They know that they are creating reality. Is there a scriptural passage to support this claim?
 

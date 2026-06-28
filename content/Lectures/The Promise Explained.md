@@ -8,7 +8,7 @@ Now we find a wonderful story in the Book of John, the 3rd chapter of John. It i
 He addressed him as *"Rabbi,"* whence the fact that the man knows what others seemingly are not aware of. The conversation takes place in this manner; 
 He said, *"I know that you are the one that is sent, for no one who is not sent by God could do the things that you do;"* and then a sudden break takes place in the conversation, and Jesus said to him; 
 
-> *"Unless one is born from above, he cannot see the Kingdom of God."* 
+*"Unless one is born from above, he cannot see the Kingdom of God."* 
 
 Nicodemus answered, *"How can a man be born when he is old? Can he enter a second time into his mother's womb and be born?"* 
 
@@ -36,11 +36,11 @@ So, the conversation between them is all about the Kingdom of Heaven and the onl
 I say, *"You're not dead, but you 'died.' I was at your funeral. You are buried,"* - and I tell them the cemetery where they are buried. They can't believe it, because they are not dead. They are so alive to themselves, they can't believe it for one moment. And you can bring back certain things: *"You recall so-and-so?"* 
 Yes. Did he die?" they begin to think. 
 Well, yes, he did die." 
-> *"Well then, look at him. Is he 'dead'? There he is - he died. You went to his funeral, didn't you?"* -and then they begin to think. 
+*"Well then, look at him. Is he 'dead'? There he is - he died. You went to his funeral, didn't you?"* -and then they begin to think. 
 
 Yes, I did.*" "*Well then, look at him. He isn't dead, but he died."
 
-> *"Well, you died, too, Jack; but you are not 'dead' because nothing dies in God's world, for God is the God of the living."* 
+*"Well, you died, too, Jack; but you are not 'dead' because nothing dies in God's world, for God is the God of the living."* 
 
 Every one that *"dies"* here is instantly restored in a body just like this, but young -unaccountably new - unaccountably young with nothing missing. If you had parts missing, they aren't missing then. If you were deaf, blind, dumb, you aren't deaf,--none of these things happened. You are simply completely restored, and you are perfect. But you are still in a world just like this, and you will still go through all the things you do here. You will work. You will marry; you will do all the things you do here, just as you do it here, until that moment when you are *"born from above."* 
 
@@ -62,7 +62,7 @@ And in Scripture, whenever vision breaks into sound - into speech, the presence 
 
 Are we not asked in the 30th Chapter of the Book of Jeremiah, *"And the Lord said unto Jeremiah,"* -and the word *"Jeremiah"* means *"Jehovah will rise."* It is Jehovah who is buried in you. Jehovah will rise. And then Jehovah speaks to His prophet whose name, as I've just defined for you, is *"Jehovah will rise,"* - *"Can a man bear a child?"* Obviously the answer is, No. And then the Lord speaks: 
 
-> *"Why, then, do I see every man with his hands drawing himself out of himself just like a woman in labor? Why has every face turned pale?"* 
+*"Why, then, do I see every man with his hands drawing himself out of himself just like a woman in labor? Why has every face turned pale?"* 
 
 That is just as it happens. The face is ghastly pale like one in death practically, only it is moving, because the head moves, like one in recovery from a great ordeal. 
 
@@ -73,7 +73,7 @@ Now, the Bible begins with the Self-revelation of god. He said to Moses, --and t
 The word translated *"the Lord"* is *"Yod-He-Vau-He,"* which means *"I Am."* It is to Moses that He reveals His intimate identity, which is I Am. 
 
 But Moses said, *"When they ask me, What is his name, what must I say?"* 
-> *"Say I Am has sent me unto you."* 
+*"Say I Am has sent me unto you."* 
 
 He didn't reveal this intimacy to the three states called Abraham, Isaac and Jacob. They saw Him purely as Power - sheer power that was a destructive power, like the lightning, like the thunder, like the earthquake. Thy saw It only as power. 
 

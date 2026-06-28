@@ -4,11 +4,11 @@ This is the wise use of God's Law. But *"No man is justified before God by the L
 
 Many people are interested in Imaginism as a way of life, but are not at all interested in its framework of faith, a faith leading to the fulfillment of God's promise.
 
-> *"I will raise up your son after you, who shall come forth from your body... I will be his father, and he shall be My son."* (2Sam. 7:12-14)
+*"I will raise up your son after you, who shall come forth from your body... I will be his father, and he shall be My son."* (2Sam. 7:12-14)
 
 The Promise that God will bring forth from our body a son who will be *"born, not of blood nor of the will of the flesh nor of the will of man, but of God"* ([John 1:13](https://www.biblegateway.com/passage/?search=John+1:13&version=KJV)) does not concern them. They want to know God's Law, not His Promise. However, this miraculous birth has been stated clearly as a must for all mankind from the earliest days of the Christian fellowship.
 
-> *"You must be born from above” (John. 3:7). My purpose here is to state it again and to state it in such language and with such reference to my own personal mystical experiences that the reader will see that this birth "*from above" is far more than a part of a dispensable superstructure, that it is the sole purpose for God's creation.
+*"You must be born from above” (John. 3:7). My purpose here is to state it again and to state it in such language and with such reference to my own personal mystical experiences that the reader will see that this birth "*from above" is far more than a part of a dispensable superstructure, that it is the sole purpose for God's creation.
 
 Specifically, my purpose in recording these four mystical experiences is to show what *"[Jesus Christ](/lectures/jesus-christ) the faithful witness, the firstborn from the dead"* (Rev. 1:5) was trying to say about this birth from above. *"How can men preach unless they are sent?"* (Rom. 10:15).
 
@@ -20,7 +20,7 @@ My mystical experiences have brought me to accept literally, the saying that all
 
 The play begins with the crucifixion of God on man — as man — and ends with the resurrection of man — as God. God becomes as we are, that we may be as He is. God becomes man that man may become, first — a living being, and secondly — a life-giving spirit.
 
-> *"I have been crucified with Christ; it is no longer I who live, but Christ who lives in me; and the life I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me."* (Gal. 2:20)
+*"I have been crucified with Christ; it is no longer I who live, but Christ who lives in me; and the life I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me."* (Gal. 2:20)
 
 God took upon Himself the form of man and became obedient unto death — even death on the cross of man — and is crucified on Golgotha, the skull of man. God Himself enters death's door — the human skull — and lies down in the grave of man to make man a living being. God's mercy turned death into sleep. Then began the prodigious and unthinkable metamorphosis of man, the transformation of man into God.
 
@@ -100,9 +100,9 @@ Five months after the birth of the child, on the morning of December 6, 1959, in
 
 Not for one moment did I feel myself to be anyone other than who I am now. Yet, I knew that this lad, David, was my son, and he knew that I was his father; for *"the wisdom from above is without uncertainty"* (But the wisdom that is from above is first pure, then peaceable, gentle, and easy to be intreated, full of mercy and good fruits, without partiality, and without hypocrisy, [James 3:17](https://www.biblegateway.com/passage/?search=James+3:17&version=KJV)). As I sat there contemplating the beauty of my son, the vision faded and I awoke.
 
-> *"I and the children whom the Lord has given me are signs and portents in Israel from the Lord of hosts, who dwells on Mount Zion"*, (Is. 8:18). God gave me David as my very own son. *"I will raise up your son after you, who shall come forth from your body... I will be his father, and he shall be my son"*, (Sam. 7:12-14). God is known in no other way than through the Son.
+*"I and the children whom the Lord has given me are signs and portents in Israel from the Lord of hosts, who dwells on Mount Zion"*, (Is. 8:18). God gave me David as my very own son. *"I will raise up your son after you, who shall come forth from your body... I will be his father, and he shall be my son"*, (Sam. 7:12-14). God is known in no other way than through the Son.
 
-> *"No one knows who the Son is, except the Father, or who the Father is, except the Son and any one to whom the Son chooses to reveal Him"*, (Luke. 10:22)
+*"No one knows who the Son is, except the Father, or who the Father is, except the Son and any one to whom the Son chooses to reveal Him"*, (Luke. 10:22)
 
 The experience of being David's Father is the end of man's pilgrimage on earth. The purpose of life is to find the Father of David, the Lord's anointed, the Christ.
 
@@ -124,11 +124,11 @@ No longer will I cry to *"our father David, thy child"*, (Acts. 4:25). *"I have 
 
 If the Bible were history, it would not be a mystery.
 
-> *"Wait for the promise of the Father"*, (Acts. 1:4), that is, for David — God's Son — who will reveal you as the Father. This promise, says Jesus, you heard from Me ([Luke 24:44](https://www.biblegateway.com/passage/?search=Luke+24:44&version=KJV)) and to its fulfillment at that moment in time when it pleases God to give you His Son — as *"your offspring, which is Christ"*, (Gal. 3:16).
+*"Wait for the promise of the Father"*, (Acts. 1:4), that is, for David — God's Son — who will reveal you as the Father. This promise, says Jesus, you heard from Me ([Luke 24:44](https://www.biblegateway.com/passage/?search=Luke+24:44&version=KJV)) and to its fulfillment at that moment in time when it pleases God to give you His Son — as *"your offspring, which is Christ"*, (Gal. 3:16).
 
 A figure of speech is used for the purpose of calling attention to, emphasizing and intensifying the reality of the literal sense. The truth is literal; the words used are figurative.
 
-> *"The curtain of the temple was torn in two, from top to bottom, and the earth shook and the rocks were split"*, (Matt. 27:51).
+*"The curtain of the temple was torn in two, from top to bottom, and the earth shook and the rocks were split"*, (Matt. 27:51).
 
 On the morning of April 8, 1960 — four months after it was revealed to me that I am David's father — a bolt of lightning out of my skull split me in two from the top of my skull to the base of my spine. I was cleft as though I were a tree that had been struck by lightning. Then I felt and saw myself as a golden liquid light moving up my spine in a serpentine motion; as I entered my skull, it vibrated like an earthquake. *"Every word of God proves true; he is a shield to those who take refuge in him. Do not add to his words, lest he rebuke you, and you be found a liar"* ([Proverbs 30:5,6](https://www.biblegateway.com/passage/?search=Proverbs+30:5,6&version=KJV)). *"And as Moses lifted up the serpent in the wilderness, so must the Son of man be lifted up"*, ([John 3:14](https://www.biblegateway.com/passage/?search=John+3:14&version=KJV)).
 
@@ -140,7 +140,7 @@ The widening circle — Jerusalem... Judea... Samaria, the end of the earth — 
 
 The Promise is still maturing to its time, its appointed time, but how long, vast and severe the trials e're you find David, your son, who will reveal you as God, The Father, were long to tell; but it hastens to the end; it will not fail. So wait, for there will be no postponement.
 
-> *"Is anything too wonderful for the Lord? At the appointed time I will return to you, in the spring, and Sarah shall have a son"*, (Gen. 18:14).
+*"Is anything too wonderful for the Lord? At the appointed time I will return to you, in the spring, and Sarah shall have a son"*, (Gen. 18:14).
 
 
 

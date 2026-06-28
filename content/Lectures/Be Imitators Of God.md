@@ -1,4 +1,4 @@
-> *"It has been taught us from the primal state, that that which is, was wished until it were."* (William Shakespeare)   
+*"It has been taught us from the primal state, that that which is, was wished until it were."* (William Shakespeare)   
   
 God started with a wish, saying; *"Let us make man in our image."* And we are told that we will be perfect as our Father is perfect, and holy as our Father is holy. Therefore, whatever God was, when his work is completed, man must be. We are told to be imitators of God as dear children, so we must discover how he became us in order to imitate him.  
   

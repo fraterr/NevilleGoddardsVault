@@ -1,4 +1,4 @@
-> *"And God said:, Let us make man in our image, after out likeness."* (Gen. 1:26)
+*"And God said:, Let us make man in our image, after out likeness."* (Gen. 1:26)
 
 Having discovered God to be our awareness of being and this unconditioned changeless reality (the I AM) to be the only creator, let us see why the Bible records a trinity as the creator of the world. In the 26th verse of the first chapter of Genesis it is stated, *“And God said, Let us make man in our image.”* The churches refer to this plurality of Gods as God the Father, God the Son and God the Holy Spirit. What is meant by *“God the Father, God the Son and God the Holy Spirit”* they have never attempted to explain for they are in the dark concerning this mystery.
 

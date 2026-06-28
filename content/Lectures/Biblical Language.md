@@ -1,4 +1,4 @@
-> *"All are Men in Eternity. Rivers, Mountains, Cities, Villages,   
+*"All are Men in Eternity. Rivers, Mountains, Cities, Villages,   
 All are Human, and when You enter into Their Bosoms,  
 You walk In Heavens and Earths;   
 Just as in Your own Bosom You bear Your Heaven And Earth,   

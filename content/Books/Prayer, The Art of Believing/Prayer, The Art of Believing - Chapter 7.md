@@ -6,11 +6,11 @@ Every dream could be realized by those self-disciplined enough to believe it.
 
 People are what you choose to make them; a man is according to the manner in which you look at him. You must look at him with different eyes before he will objectively change.
 
-> *“Two men looked from prison bars, one saw the mud and the other saw the stars.”* Centuries ago, Isaiah asked the question; *“Who is blind, but my servant, or deaf, as my messenger that I sent?”* *“Who is blind as he that is perfect, as blind as the Lord’s servant?”*
+*“Two men looked from prison bars, one saw the mud and the other saw the stars.”* Centuries ago, Isaiah asked the question; *“Who is blind, but my servant, or deaf, as my messenger that I sent?”* *“Who is blind as he that is perfect, as blind as the Lord’s servant?”*
 
 The perfect man judges not after appearances, but judges righteously. He sees others as he desires them to be; he hears only what he wants to hear. He sees only good in others. In him is no condemnation for he transforms the world with his seeing and hearing.
 
-> *“The king that sitteth on the throne scattereth the evil with his eye.”* Sympathy for living things—agreement with human limitations—is not in the consciousness of the king because he has learned to separate their false concepts from their true being.
+*“The king that sitteth on the throne scattereth the evil with his eye.”* Sympathy for living things—agreement with human limitations—is not in the consciousness of the king because he has learned to separate their false concepts from their true being.
 
 To him poverty is but the sleep of wealth. He does not see caterpillars, but painted butterflies to be; not winter, but summer sleeping; not man in want, but Jesus sleeping.
 

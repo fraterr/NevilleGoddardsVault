@@ -10,13 +10,13 @@ Imagination and faith are the only faculties of the mind needed to create object
 
 To establish rapport you call the subject mentally. Focus your attention on him and mentally shout his name just as you would to attract the attention of anyone. Imagine that he answered, and mentally hear his voice. Represent him to yourself inwardly in the state you want him to obtain. Then imagine that he is telling you in the tones of ordinary conversation what you want to hear. Mentally answer him. Tell him of your joy in witnessing his good fortune. Having mentally heard with all the distinctness of reality that which you wanted to hear and having thrilled to the news heard, return to objective consciousness. Your subjective conversation must awaken what it affirmed.
 
-> *“Thou shalt decree a thing and it shall be established unto thee.”* It is not a strong will that sends the subjective word on its mission so much as it is clear thinking and feeling the truth of the state affirmed. When belief and will are in conflict, belief invariably wins.
+*“Thou shalt decree a thing and it shall be established unto thee.”* It is not a strong will that sends the subjective word on its mission so much as it is clear thinking and feeling the truth of the state affirmed. When belief and will are in conflict, belief invariably wins.
 
-> *“Not by might, nor by power, but by my spirit, saith the Lord of hosts.”*
+*“Not by might, nor by power, but by my spirit, saith the Lord of hosts.”*
 
 It is not what you want that you attract; you attract what you believe to be true. Therefore, get into the spirit of these mental conversations and give them the same degree of reality that you would a telephone conversation.
 
-> *“If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth. Therefore, I say unto you, what things soever you desire, when you pray, believe that ye received them, and ye shall have them.”* The acceptance of the end wills the means. And the wisest reflection could not devise more effective means than those which are willed by the acceptance of the end. Mentally talk to your friends as though your desires for them were already realized.
+*“If thou canst believe, [all things are possible](/lectures/all-things-are-possible) to him that believeth. Therefore, I say unto you, what things soever you desire, when you pray, believe that ye received them, and ye shall have them.”* The acceptance of the end wills the means. And the wisest reflection could not devise more effective means than those which are willed by the acceptance of the end. Mentally talk to your friends as though your desires for them were already realized.
 
 Imagination is the beginning of the growth of all forms, and faith is the substance out of which they are formed. By imagination, that which exists in latency or is asleep within the deep of consciousness is awakened and is given form. The cures attributed to the influence of certain medicines, relics and places are the effects of imagination and faith. The curative power is not in the spirit that is in them, it is in the spirit in which they are accepted. *“The letter killeth, but the spirit giveth life.”*
 
@@ -35,7 +35,7 @@ With a knowledge of the law of reversibility, the disciplined man transforms his
 By the law of reversibility, that all transformations of force are reversible, the energy or feeling awakened transforms itself into the state imagined.  
 He never waits four months for the harvest. If in four months the harvest will awaken in him a state of joy, then, inversely, the joy of harvest now will awaken the harvest now.
 
-> *“Now is the acceptable time to give beauty for ashes, joy for mourning, praise for the spirit of heaviness; that they might be called trees of righteousness, the planting of the Lord that he might be glorified.”*
+*“Now is the acceptable time to give beauty for ashes, joy for mourning, praise for the spirit of heaviness; that they might be called trees of righteousness, the planting of the Lord that he might be glorified.”*
 
 
 

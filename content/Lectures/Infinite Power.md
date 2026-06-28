@@ -1,6 +1,6 @@
 Robert Browning tells us:  
   
-> *"Truth is within ourselves.  
+*"Truth is within ourselves.  
 It takes no rise from outer things  
 No matter what you see.  
 There is an inmost center in us all  
@@ -30,7 +30,7 @@ Now let me show you how the disciples are selected. This selection is always don
   
 "I awoke bewildered, wrote down the experience and returned to bed saying to myself, 'I must tell this to Neville.' Instantly I am asleep, redreaming the dream, when my friend Marge Broome appeared. And I am hit in the forehead by a 3-4 inch long, 3/4 inch thick polished topaz, embedded with gold. As we looked at it a man walked over and said: 'That's very valuable. You can break it into many pieces and get a lot of money for it.' That commercial idea appealed to me, so I placed it in my purse and again headed toward your house to tell you of the dream.   
   
-> *"Suddenly I realized Marge was gone, as well as my car, purse, and topaz. Having no transportation, no money, or identification, I said to myself: 'What do I . . .' then I arrested the thought and said: 'I will go within and imagine I am with Neville.' Instantly [I am in you](/lectures/i-am-in-you)r apartment telling you the dream. As I reach the point of telling how I imagined myself there, the doorbell rang, and a group of gay, happy young boys and girls entered, causing so much confusion I awoke, saying to myself: 'I will tell him on Monday.'"* Last Monday she brought me the letter!   
+*"Suddenly I realized Marge was gone, as well as my car, purse, and topaz. Having no transportation, no money, or identification, I said to myself: 'What do I . . .' then I arrested the thought and said: 'I will go within and imagine I am with Neville.' Instantly [I am in you](/lectures/i-am-in-you)r apartment telling you the dream. As I reach the point of telling how I imagined myself there, the doorbell rang, and a group of gay, happy young boys and girls entered, causing so much confusion I awoke, saying to myself: 'I will tell him on Monday.'"* Last Monday she brought me the letter!   
   
 My work is not complete until my Father, in the depth of the soul, calls my twelve. Recognizing and applying the truth of my words, this lady was called to witness the embodiment of the Infinite Power. She saw him as the man she knows as Neville - yet she knew he was God. Many see me as a physical man. Few see my true identity, which has unfolded itself in the depth of the soul. But I am not unique. I know that every child born of woman will one day be called and embraced to become one with the body of God. Then, wearing the form of love, he too will be sent by God. After incorporation into the body of love, I was sent wearing the garment of [Jesus Christ](/lectures/jesus-christ) - the [power and wisdom](/lectures/power-and-wisdom) of Imagination! Now I know myself to be the power which can effect the fulfillment of desire!   
   

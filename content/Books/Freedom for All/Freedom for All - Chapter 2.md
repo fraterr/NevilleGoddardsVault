@@ -36,7 +36,7 @@ Believing is simply living in the feeling of actually being the state imagined â
 
 JOD is to be aware; HE is to be aware of something; VAU is to be aware as, or to be aware of being that which you were only aware of. The second HE is your visible objectified world which is made in the image and likeness of the JOD HE VAU, or that which you are aware of being.
 
-> *"And God said, Let Us make man in Our image, after Our likeness"* ([Genesis 1:26](https://www.biblegateway.com/passage/?search=Genesis+1:26&version=KJV)). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
+*"And God said, Let Us make man in Our image, after Our likeness"* ([Genesis 1:26](https://www.biblegateway.com/passage/?search=Genesis+1:26&version=KJV)). Let us, JOD HE VAU make the objective manifestation (HE) in our image, the image of the subjective state.
 
 The world is the objectified likeness of the subjective conscious state in which consciousness abides.
 

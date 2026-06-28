@@ -1,4 +1,4 @@
-> *"This is an age in which the mood decides the fortunes of people rather than the fortunes decide the mood."* (Sir Winston Churchill)
+*"This is an age in which the mood decides the fortunes of people rather than the fortunes decide the mood."* (Sir Winston Churchill)
 
 Men regard their moods far too much as effects and not sufficiently as causes.
 
@@ -28,9 +28,9 @@ I would say over and over to myself as I fell asleep, 'Isn't it wonderful! Somet
 
 "For the next two years, from the office of his attorney, I received monthly checks so generous in amount they not only covered every necessary requirement of daily living, but left much over for all the lovely things of life: a car, clothes, a spacious apartment — and best of all, no need to earn my daily bread.
 
-> *"This past month I received a letter and some legal papers to be signed which provide the continuation of this monthly income for the rest of my natural life!"* ...T.K.
+*"This past month I received a letter and some legal papers to be signed which provide the continuation of this monthly income for the rest of my natural life!"* ...T.K.
 
-> *"If the fool would persist in his folly He would become wise."* — William Blake
+*"If the fool would persist in his folly He would become wise."* — William Blake
 
 Sir Winston calls on us to act on the Assumption that we already possess that which we sought, to "assume a virtue”, if we have it not (William Shakespeare's 'Hamlet').
 
@@ -48,9 +48,9 @@ Instead of the happy-natured individual she had always been, I found her in deep
 
 "When I arrived home I called my mother (a lovely young lady of ninety-one) who immediately asked me to come and see her. I wanted a day's rest but she couldn't wait; it had to be now. Of course I went, and after greeting me, she handed me a check for three thousand dollars made out to my daughter! Before I could speak, she handed me three additional checks totaling fifteen hundred dollars made in favor of my daughter's children. Her reason? She explained that she had suddenly decided the day before to give what she had in cash to those she loved while she was still 'here' to know of their happiness in receiving it!
 
-> *"It would have happened anyway? No — not like this. Not within days of my daughter's frantic need, and then her sudden transformation to a mood of joy. I know that her imaginal act caused this wonderful change — bringing not only great joy to the receiver but to the giver as well."*
+*"It would have happened anyway? No — not like this. Not within days of my daughter's frantic need, and then her sudden transformation to a mood of joy. I know that her imaginal act caused this wonderful change — bringing not only great joy to the receiver but to the giver as well."*
 
-> *"P.S. ...I almost forgot to add that among the checks so lavishly given, was one for me too, for three thousand dollars!"* ...M.B.
+*"P.S. ...I almost forgot to add that among the checks so lavishly given, was one for me too, for three thousand dollars!"* ...M.B.
 
 The boundless opportunities opened by recognizing the shift of the focus of imagining are beyond measure. There are no boundaries. The drama of life is an imaginal activity in which we bring to pass by our moods rather than by our physical acts. Moods so ably guide all towards that which they affirm, they may be said to create the circumstances of life and dictate the events. The mood of the wish fulfilled is the high tide which lifts us easily off the bar of the senses where we usually lie stranded. If we are aware of the mood and know this secret of imagining, we may announce that all that our mood affirms will come to pass.
 
@@ -60,7 +60,7 @@ The following story is by a mother who succeeded in sustaining a seemingly *"pla
 
 "My son was delighted with our game and the results sound like something read in old musty books on magic. But, believe me, within ten days the warts began to fade, and, at the end of one month every wart on his body had completely disappeared!
 
-> *"There is a sequel to this story for I've bought warts from many people. They, too, thought it great fun and accepted my five, seven or ten cents a wart. In each case the wart disappeared — but really — only one person believes me when I tell him his Imagination, alone, took away the warts. That one person is my young son."* ...J.R.
+*"There is a sequel to this story for I've bought warts from many people. They, too, thought it great fun and accepted my five, seven or ten cents a wart. In each case the wart disappeared — but really — only one person believes me when I tell him his Imagination, alone, took away the warts. That one person is my young son."* ...J.R.
 
 Man imagining himself into a mood takes on himself the results of the mood. If he does not imagine himself into the mood, he is ever free of the result. The great Irish mystic, A.E. (George William Russell), wrote in *"The Candle of Vision"*: *"I became aware of a swift echo or response to my own moods in circumstance which had seemed hitherto immutable in its indifference... I could prophesy from the uprising of new moods in myself that I, without search, would soon meet people of a certain character, and so I met them. Even inanimate things were under the sway of these affinities."*
 

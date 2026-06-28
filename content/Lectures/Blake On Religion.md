@@ -1,6 +1,6 @@
 When you are discussing Blake you are discussing one of the greatest spiritual giants of all time. You might just as well discuss St. Paul, for they had the identical visions, the vision of reality. Tonight we can cover only a portion of his gift to the world. In his *"Auguries of Innocence"* he says:  
   
-> *“To see a World in a Grain of Sand  
+*“To see a World in a Grain of Sand  
 And a Heaven in a Wild Flower,  
 Hold Infinity in the palm of your hand  
 And Eternity in an hour.”*  
@@ -9,25 +9,25 @@ What is the sequence? The most inanimate thing in the world, a grain [of] sand, 
   
 He moves on now to the bird world, to show us the relationship of the whole vast world, the unity of the world, that we are all actively related. That you can’t disturb anything at this moment in any way and not actually affect the whole.  
   
-> *“A Robin Red breast in a Cage  
+*“A Robin Red breast in a Cage  
 Puts all Heaven in a Rage.”*  
   
 We think we can catch the little bird and cage it for our amusement, that which should be set free. He said:  
   
-> *“How do you know but ev’ry Bird that cuts the airy way,  
+*“How do you know but ev’ry Bird that cuts the airy way,  
 Is an immense world of delight, clos’d by your senses five?”*  
 (Marriage of Heaven and Hell)  
   
 So, the little  
   
-> *“Robin Red breast in a Cage  
+*“Robin Red breast in a Cage  
 Puts all Heaven in a Rage.  
 A dove house fill’d with doves and Pigeons  
 Shudders Hell thro’ all its regions.”*  
   
 Then he moves on to the next state, in what the world would call evolution, but he doesn’t call it that. Now into another aspect of the animal world:  
   
-> *“A dog starv’d at his Master’s Gate  
+*“A dog starv’d at his Master’s Gate  
 Predicts the ruin of the State.  
 A Horse misus’d upon the Road  
 Calls to Heaven for Human blood.”*  
@@ -38,7 +38,7 @@ And he takes the stages right through. You will read it as you go along. (*"Anno
   
 Then he makes this statement:  
   
-> *“What seems to Be, Is, To those to whom  
+*“What seems to Be, Is, To those to whom  
 It seems to Be, and is productive of the most dreadful  
 Consequences to those to whom it seems to be, even of  
 Torments, Despair, Eternal Death; but the Divine Mercy  
@@ -47,7 +47,7 @@ Steps beyond and Redeems Man in the Body of Jesus.”*
   
 He steps beyond. Because of this principle man could be lost forever, not knowing what he is doing, but *"Divine Mercy Steps beyond and Redeems Man in the Body of Jesus."* *"God is Jesus"* and we are but members in this divine body, therefore, only one name – we are he. So Blake made this statement: *"Man is all Imagination. God is Man and exists in us and we in him."* (*"Annotations to Berkeley's Siris"*)   
   
-> *“The Eternal Body of Man is The Imagination, that is, God himself,  
+*“The Eternal Body of Man is The Imagination, that is, God himself,  
 The Divine Body, Jesus; we are his Members.”*  
 (The Laocoön)  
   
@@ -62,7 +62,7 @@ Then we are asked a very simple question. The world will answer correctly or he 
   
 And you say: *"Is Jesus a man?"* Yes, he is a man. So Blake makes the statement:  
   
-> *“If Thou Humblest Thyself, Thou humblest Me;  
+*“If Thou Humblest Thyself, Thou humblest Me;  
 Thou also dwell’st in Eternity.  
 Thou art a Man, God is no more,  
 Thy own Humanity learn to adore.”*  
@@ -72,7 +72,7 @@ So when you stand in his presence you are standing in the presence of Man and it
   
 Now he comes to discuss the story of the *"Virginity of the Virgin."* For are we not told in [Isaiah 7:14](https://www.biblegateway.com/passage/?search=Isaiah+7:14&version=KJV): *"Therefore the Lord himself will give you a sign. Behold, a virgin shall conceive and bear a son, and shall call his name Immanuel."* The word Immanuel means *"God is with us."* Listen to it carefully: *"She will conceive and bear a son, and call his name Immanuel."* The child will be given the name as a token. The child is not the great event; the child will be given a name and is the token of deliverance. The child himself is not the deliverer. The child is simply the sign of an event taking place. Now Blake writes one single little verse and he speaks of it as the *"Virginity of the Virgin."* You are the virgin, whether you be male or female, I am the virgin, we are all the virgin. I didn’t know what was happening to me any more than you will know what is happening to you. He puts it in four little lines:  
   
-> *“Whate’er is done to her she cannot know,  
+*“Whate’er is done to her she cannot know,  
 And if you’ll ask her she will swear it so.  
 Whether ‘tis good or evil none’s to blame:  
 No one can take the pride, no one the shame.”*  
@@ -81,7 +81,7 @@ No one can take the pride, no one the shame.”*
   
 So we said in the story: *"How can this thing be, seeing that I know not a man?"* And through the centuries thousands of columns have been written condemning the act, for it was out of wedlock and they take it on this level. It is not on this level. You are the bride of God, as told us in [Isaiah 54:5](https://www.biblegateway.com/passage/?search=Isaiah+54:5&version=KJV): *"For [your Maker](/lectures/your-maker) is [your husband](/lectures/your-husband), the Lord of hosts is his name."* So the one who made me is going to sire me, without my knowledge, without my consent. So  
   
-> *“Whate’er is done to me I cannot know,  
+*“Whate’er is done to me I cannot know,  
 And if you’ll ask me I will swear it so  
 Whether it is good or evil, none’s to blame:  
 No one can take the pride, no one the shame.”*  
@@ -100,7 +100,7 @@ We think we are sane when we believe in the evidences of the senses, when we bel
   
 Blake said of the Bible: *"The entire Hebrew Bible"* . . . he did not mention a few of the works. He didn’t mention Ruth, Nehemiah, and things of that sort, but he said: *"The Five books of the Decalogue; the books of Joshua and Judges, Samuel , a double book, and Kings , a double book, the Psalms and Prophets, The Four-fold Gospel, and the Revelations everlasting."* (*"Jerusalem,"* Plate 48) He did not name the prophets, which he called the latter prophets (also the major): Isaiah, Jeremiah, and Ezekiel. He said these are true vision. He did not mention the Epistles, but he said the four Gospels, Revelation, and the Hebrew Bible are eternal visions of what really exists. He saw it so clearly, that all these characters are personifications of [eternal states](/lectures/eternal-states) and communed with these states, for when you commune with them they seem as real as you are. But they are personifications of God’s infinite mind; every aspect of his mind is personified. You are not an aspect of the mind, something entirely different. You are one with God. *"Man is All Imagination. God is man and exists in us and we in him."* (*"Annotations to Berkeley's Siris"*)  
   
-> *"The Eternal Body of Man is The Imagination, that is God himself; The Divine Body Jesus; we are his Members"* — part of the body of Jesus, and because there is only one name, we are he. So we pass through a process, a simple process which you can’t evoke, you can’t hasten it. But when you least expect it, divine mercy steps beyond and redeems man right into the body of Jesus. Then he passes through these stages, where he is born from above, where suddenly he beholds the divine Son [David] as his son; then the great woven structure of the body, the temple, is torn from top to bottom and he ascends to be one around this infinite throne of Jesus, who is God.  
+*"The Eternal Body of Man is The Imagination, that is God himself; The Divine Body Jesus; we are his Members"* — part of the body of Jesus, and because there is only one name, we are he. So we pass through a process, a simple process which you can’t evoke, you can’t hasten it. But when you least expect it, divine mercy steps beyond and redeems man right into the body of Jesus. Then he passes through these stages, where he is born from above, where suddenly he beholds the divine Son [David] as his son; then the great woven structure of the body, the temple, is torn from top to bottom and he ascends to be one around this infinite throne of Jesus, who is God.  
   
 I actually believe it. I can’t prove it to you and I can’t take you with me into that moment of time where I experienced it. I can only tell you I have experienced it and ask you to believe it and share with me in belief, that you yourself may become a refugee from unbelief. For the man who cannot leave what he can touch with his hands and rationalize, cannot believe. And this is something you are called upon, although you have not seen it. *"Blessed is the man who has not seen and still believes."* That is how the Gospel of [John 20:29](https://www.biblegateway.com/passage/?search=John+20:29&version=KJV) ends. Those who heard about it, who would eventually experience it, like Job (42:5) — he said: *"I have heard of thee with the hearing of the ear but now my eye sees thee."* He heard about it and then came the experience, and he saw exactly what Blake is talking about, because Blake saw it.  
   
@@ -116,7 +116,7 @@ Today you can go into a store and they brag about the synthetic garments. They c
   
 So I would say to everyone here who is in contact with tomorrow’s children: start it. If you start and tell the children never hurt unnecessarily. By that I mean if a horse breaks its foot then you have to destroy it. You can’t mend it and the merciful thing to do would be to blow its brains out. That would be a merciful act, but then you would do it not unnecessarily. Blake said:   
   
-> *“A Horse misus’d upon the Road  
+*“A Horse misus’d upon the Road  
 Calls to Heaven for Human blood.  
 A dog starv’d at his Master’s Gate  
 Predicts the ruin of the State  
@@ -125,7 +125,7 @@ Puts all Heaven in a Rage.”*
   
 To take this wonderful thing and cage it for your own amusement when it should cut the airy way. And then he says:  
   
-> *“A Skylark wounded in the wing,  
+*“A Skylark wounded in the wing,  
 A Cherubim does cease to sing.”*  
   
 You wouldn’t think a cherub, one with the seraphim around the throne of God, would — at that very moment when we wound the skylark in its wing — would be silent. But in the inter-related world, all things by a law divine in one another’s being mingle. So you could not wound a skylark in the wing and expect a cherubim to continue to sing. All of a sudden things come to an end by our misuse of this fantastic power that is ours. For being all imagination, as we misuse the power that is imagination we cause cherubim to become silent. We cause the whole of heaven to cry out when we cage something that should be set loose and free in this world.  
@@ -134,12 +134,12 @@ But you start, and I am quite sure it wouldn’t take more than one generation, 
   
 So I say to you: Blake, read him. I could talk about him from now to the end of time and never exhaust him. He lived to be seventy years old. He never went to school. His visions began at four, and he thanked his father for not sending him to school to be flogged into memorizing the works of a fool. Even in today’s paper, the New York Times, a science editor wrote the story of a man’s new concept of the universe – radical departure from what was held last year. Well, this is not final you know. This will be a radical departure from what it will be called next year, and that is man’s concept. Whether the thing is really expanding to the limit of complete explosion, or whether it is like a breath — where it will go to a certain point and then once more begin to contract, taking unnumbered trillions of years — they don’t know and they hope to find it out through telescopes. So they are experimenting through the telescope to the mathematical concept. But Blake made this observation:   
   
-> *"God is not a Mathematical Diagram."*  
+*"God is not a Mathematical Diagram."*  
 (Annotations to Berkeley's Siris)  
   
 Not in eternity will you find God as a mathematical diagram. When you find him you’ll find him as man. So he said:  
   
-> *“God Appears and [God is Light](/lectures/god-is-light)  
+*“God Appears and [God is Light](/lectures/god-is-light)  
 To those poor Souls who dwell in Night,  
 But does a Human Form Display  
 To those who Dwell in Realms of day.”*  
@@ -147,14 +147,14 @@ To those who Dwell in Realms of day.”*
   
 When you meet him, it’s man. But how can I describe him when he himself describes the body and the form as love. (How do you describe love? Yet I stood in the presence of love and he was human.) But he said:  
   
-> *“For Mercy has a human heart,  
+*“For Mercy has a human heart,  
 Pity a human face  
 And Love, the human form divine."*  
 (The Divine Image)  
   
 So how are you going to describe love? When I stood in the presence of love it was human and it was Jesus and it is form, but it is infinite love. Then you understand the words concerning forgiveness:  
   
-> *“In Heaven the only Art of Living  
+*“In Heaven the only Art of Living  
 Is Forgetting and Forgiving.”*  
 (Notes, Plate 81)  
   

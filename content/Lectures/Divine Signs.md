@@ -54,7 +54,7 @@ I have told you my experiences. If the world will not believe me it really doesn
   
 A friend brought a lovely lady to the last lecture, at which time she told me she would take my theories under consideration. I told her they were not theories, that I speak from experience. Then she said: *"But I am an ordained minister,"* and I replied: *"That means nothing to me. Have you had the vision of Christ? Did the one who ordained you have the vision of Christ? If not, it's the blind leading the blind."*   
   
-> *"You can't take my theories under consideration, only what I have experienced. If it does not fit your prefabricated misconception of scripture, all well and good, but I am sharing my visions, my experiences. They are all revelations, not theory."* She was very sweet, and left saying that this was her first lecture.   
+*"You can't take my theories under consideration, only what I have experienced. If it does not fit your prefabricated misconception of scripture, all well and good, but I am sharing my visions, my experiences. They are all revelations, not theory."* She was very sweet, and left saying that this was her first lecture.   
   
 You don't come for one time, and hear something so radically different from what you have been trained to believe and expect to swallow it hook, line, and sinker. I would ask my friend to loan her my book, Resurrection, and have her read the chapter on resurrection. It's all documented.   
   

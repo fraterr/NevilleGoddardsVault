@@ -83,7 +83,7 @@ If you awake in a dream and know exactly who is imagining it, you can control yo
 
 There are those who tonight will deny my words, but I know the truth of which I speak. When my mother told me of the word of God I believed her; but now I know the word of God from experience. My knowledge is not rooted in reason; it is revealed truth, and when truth is revealed, it is because God has unveiled himself in the individual. Truth cannot be proved logically. It must be experienced to be known; and when it is shared, some will believe and some will deny it. So when you read Blake's *"Songs of Innocence,"* remember: Blake is telling a profound truth in the language of the child that it may be kept alive. Because it is so beautifully told, his words will live forever: 
 
-> *"Little Lamb who made thee
+*"Little Lamb who made thee
 Dost thou know who made thee? 
 He is called by thy name,
 For he calls himself a Lamb:

@@ -1,4 +1,4 @@
-> *"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))   
+*"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))   
   
 Tonight you may find yourself in a terrestrial world like this one, and you feel just as real to yourself as you do here. And when you return with its memory you may think it was a dream, but it was a vision. You are dreaming right now, for this world is the dream you and I agreed to complete. Its end will appear when we turn around through a series of visions.   
   

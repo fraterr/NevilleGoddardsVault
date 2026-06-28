@@ -1,6 +1,6 @@
-> *"Oh, let your strong imagination turn the great wheel backward, until Troy unburn."* Sir John Collings Squire, *"The Birds"*
+*"Oh, let your strong imagination turn the great wheel backward, until Troy unburn."* Sir John Collings Squire, *"The Birds"*
 
-> *"All life is, throughout the ages, nothing but the continuing solution of a continuous synthetic problem."* — H. G. Wells
+*"All life is, throughout the ages, nothing but the continuing solution of a continuous synthetic problem."* — H. G. Wells
 
 The perfectly stable or static state is always unattainable. The end attained objectively always realizes more than the end the individual originally had in view. This, in turn, creates a new situation of inner conflict, needing novel solutions to force man along the path of creative evolution. *"His touch is infinite and lends a yonder to all ends."* (George Meredith, *"Hymn to Colour"*)
 
@@ -40,7 +40,7 @@ This is exactly what F.B. did:
 
 "Three days later, the agent I had originally written phoned me saying he had a deposit for my lot at the price I had specified. I signed the papers in his office the next day, extended my hand and said, 'Thank you, sir'. The agent replied, 'It was a pleasure doing business with you'.
 
-> *"Five days after I had constructed and enacted an imaginal scene, it became a physical reality and was played word for word just as I had heard it in my imagination. The feeling of relief and joy came — not so much from selling the property — but from the incontrovertible proof that my imagined drama worked."* ...F.B.
+*"Five days after I had constructed and enacted an imaginal scene, it became a physical reality and was played word for word just as I had heard it in my imagination. The feeling of relief and joy came — not so much from selling the property — but from the incontrovertible proof that my imagined drama worked."* ...F.B.
 
 If the thing accomplished were all, how futile! But F.B. discovered a power within himself that can consciously create circumstances.
 
@@ -52,7 +52,7 @@ Man is such an extraordinary synthesis, partly tied by his senses, and partly fr
 
 Life is a romantic adventure. To live creatively, imagining novel solutions to ever more complex problems is far nobler than to restrain or kill out desire. All that is desired can be imagined into existence.
 
-> *"Wouldst thou be in a Dream, and yet not sleep?"* (John Bunyan, *"The Pilgrim's Progress"*). Try to revise your day every night before falling asleep. Try to visualize clearly and enter into the revised scene which would be the imaginal solution of your problem. The revised imaginal structure may have a great influence on others, but that is not your concern. The *"other"* influenced in the following story is profoundly grateful for that influence. L.S.E. writes:
+*"Wouldst thou be in a Dream, and yet not sleep?"* (John Bunyan, *"The Pilgrim's Progress"*). Try to revise your day every night before falling asleep. Try to visualize clearly and enter into the revised scene which would be the imaginal solution of your problem. The revised imaginal structure may have a great influence on others, but that is not your concern. The *"other"* influenced in the following story is profoundly grateful for that influence. L.S.E. writes:
 
 "Last August, while on a 'blind date' I met the man I wanted to marry. This happens sometimes, and it happened to me. He was everything I had ever thought of as desirable in a husband. Two days after this enchanted evening, it was necessary for me to change my place of residence because of my work, and that same week the mutual friend who had introduced me to this man, moved away from the city. I realized that the man I had met probably did not know of my new address, and frankly, I was not sure he knew my name.
 
@@ -60,7 +60,7 @@ Life is a romantic adventure. To live creatively, imagining novel solutions to e
 
 "I repeated this imaginary scene for one month, night after night. The first week in October he 'found' me. On our second date, I knew my Dreams were rightly placed. Your teaching tells us to live in the end of our desire until that desire becomes 'fact' so although I did not know how he felt toward me, I continued, night after night, living in the feeling of my dream realized.
 
-> *"The results? In November he proposed. In January we announced our engagement; and the following May we were married. The loveliest part of it all, however, is that I am happier than I ever dreamed possible; and I know in my heart, he is too."* ...Mrs. J.E.
+*"The results? In November he proposed. In January we announced our engagement; and the following May we were married. The loveliest part of it all, however, is that I am happier than I ever dreamed possible; and I know in my heart, he is too."* ...Mrs. J.E.
 
 By using her imagination radically, instead of conservatively — by building her world out of pure Dreams of fancy —, rather than using images supplied by memory, she brought about the fulfillment of her dream.
 
@@ -68,11 +68,11 @@ Common sense would have used images supplied by her memory, and thereby perpetua
 
 Imagination created what she desired out of a dream of fancy. Everyone must live wholly on the level of imagination, and it must be consciously and deliberately undertaken.
 
-> *"...Lovers and madmen have such seething brains, Such shaping fantasies, that apprehend more than cool reason over comprehends."* (William Shakespeare, *"A Midsummer Night's Dream"*)
+*"...Lovers and madmen have such seething brains, Such shaping fantasies, that apprehend more than cool reason over comprehends."* (William Shakespeare, *"A Midsummer Night's Dream"*)
 
 If our time of Revision be well spent, we need not worry about results — our fondest hopes will be realized.
 
-> *"Art thou real, Earth? Am I? In whose dream do we exist?..."* (approx., Frank Kendon, *"The Time Piece"*)
+*"Art thou real, Earth? Am I? In whose dream do we exist?..."* (approx., Frank Kendon, *"The Time Piece"*)
 
 There is no inevitable permanence in anything. Both past and present continue to exist only because they are sustained by *"Imagining"* on some level or other; and a radical transformation of life is always possible by man revising the undesirable part of it.
 
@@ -82,7 +82,7 @@ In his letter, Mr. R.S. questions this subject of influence:
 
 "After I had been practicing this Revision for some time, the woman who lived in the house had an automobile accident; while she was in the hospital her husband disappeared. The children were cared for by neighbors; and I was tempted to visit the mother in the hospital to reassure her of assistance, if necessary. But how could I, when my imaginary scene implied that she and her family were happy, successful and obviously contented? So I did nothing but my daily Revision. A short while after leaving the hospital, the woman and her two daughters disappeared also. Payments were sent in on the property and a few months later she reappeared with a wedding certificate and a new husband. At this writing, all payments are right up to date. The two little girls are obviously happy and well cared for, and a room has been added to the property by the owners giving our Trust Deed additional security.
 
-> *"It was mighty nice to solve my problem without threats, unkind words, eviction, or worry about the little girls; but was there something in my imagining that sent that woman to the hospital?"* ...R.S.
+*"It was mighty nice to solve my problem without threats, unkind words, eviction, or worry about the little girls; but was there something in my imagining that sent that woman to the hospital?"* ...R.S.
 
 Any imaginal activity acquiring intensity through our concentrated attention to clarity of the end desired tends to overflow into regions beyond where we are; but we must leave it to take care of such imaginal activity itself.
 
@@ -96,7 +96,7 @@ The buried past usually lies deeper than our surface mind can plumb. But fortuna
 
 "This year, during the month of August, the pain had become more intense and one night I decided to test myself and attempt to revise that 'ancient' accident which had been the cause of so much distress in pain and costly medical fees most of my adult life. Many nights passed before I could 'feel' myself back to the age of childhood play. But I succeeded. One night I actually 'felt' myself on that swing feeling the rush of wind as the swing rose higher and higher. As the swing slowed down, I jumped forward landing solidly and easily on my feet. In the imaginal action I ran to my mother and insisted that she come watch what I could do. I did it again, jumping down from the swing and landing safely on my two feet. I repeated this imaginal act over and over until I fell asleep in the doing of it.
 
-> *"Within two days the pain in my back and hip began to recede and within two months pain no longer existed for me. A condition that had plagued me for more than thirty-nine years, that had cost a small fortune in attempted cure — was no more."* …L.H.
+*"Within two days the pain in my back and hip began to recede and within two months pain no longer existed for me. A condition that had plagued me for more than thirty-nine years, that had cost a small fortune in attempted cure — was no more."* …L.H.
 
 It is to [the pruning shears of Revision](/lectures/the-pruning-shears-of-revision) that we owe our prime fruit.
 
@@ -108,7 +108,7 @@ The first act of correction or cure is always *"Revise."* If the past can be rec
 
 Make results and accomplishment the crucial test of true imagination and your confidence in the power of imagination to create reality will grow gradually from your experiments with Revision confronted by experience. Only by this process of experiment can you realize the potential power of your awakened and controlled imagination.
 
-> *"How much do you owe my master?"* He said, *"A hundred measures of oil"*. And he said to him, *"Take your bill, and sit down quickly and write fifty!"* ([Luke 16:5,6](https://www.biblegateway.com/passage/?search=Luke+16:5,6&version=KJV)). This parable of the unjust steward urges us to mentally falsify the facts of life, to alter a theme already in being. By means of such imaginative falsehoods, a man *"acquires friends"* ([Luke 16:9](https://www.biblegateway.com/passage/?search=Luke+16:9&version=KJV)). As each day falls, mentally revise the facts of life and make them conform to events well worthy of recall; tomorrow will take up the altered pattern and go forward until at length it is realized on the heights of attainment.
+*"How much do you owe my master?"* He said, *"A hundred measures of oil"*. And he said to him, *"Take your bill, and sit down quickly and write fifty!"* ([Luke 16:5,6](https://www.biblegateway.com/passage/?search=Luke+16:5,6&version=KJV)). This parable of the unjust steward urges us to mentally falsify the facts of life, to alter a theme already in being. By means of such imaginative falsehoods, a man *"acquires friends"* ([Luke 16:9](https://www.biblegateway.com/passage/?search=Luke+16:9&version=KJV)). As each day falls, mentally revise the facts of life and make them conform to events well worthy of recall; tomorrow will take up the altered pattern and go forward until at length it is realized on the heights of attainment.
 
 The reader will find it worthwhile to follow these clues — imaginal construction of scenes implying the wish fulfilled, and imaginative participation in these scenes until tones of reality are reached. We are dealing with the secret of imagining, in which man is seen awakening into a world completely subject to his imaginative power.
 
@@ -118,7 +118,7 @@ Now, *"it is high time to awake out of sleep"* ([Romans 13:11](https://www.bible
 
 Revise each day.
 
-> *"Let your strong imagination turn the great wheel backward until Troy unburn."*
+*"Let your strong imagination turn the great wheel backward until Troy unburn."*
 
 
 

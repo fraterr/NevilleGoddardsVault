@@ -1,6 +1,6 @@
-> *"When thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly."* (Matt. 6:6)
+*"When thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly."* (Matt. 6:6)
 
-> *"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."*  ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
+*"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."*  ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
 
 Prayer is the most wonderful experience man can have. Unlike the daily murmurings of the vast majority of mankind in all lands who by their vain repetitions hope to gain the ear of God, Prayer is the ecstasy of a spiritual wedding taking place in the deep, silent stillness of consciousness. In its true sense Prayer is God’s marriage ceremony. Just as a maid on her wedding day relinquishes the name of her family to assume the name of her husband, in like manner, one who prays must relinquish his present name or nature and assume the nature of that for which he prays.
 
@@ -14,7 +14,7 @@ Lost in contemplation and having assumed the name and nature of the thing contem
 
 The mother of the world or bride of the Lord is purposely called Mary, or water, for water loses its identity as it assumes the nature of that with which it is mixed; likewise Mary, the receptive attitude of mind, must lose its identity as it assumes the nature of the thing desired. Only as one is willing to give up his present limitations and identity can he become that which he desires to be. Prayer is the formula by which such divorces and marriages are accomplished.
 
-> *“Two shall agree as touching anything and it shall be established on earth.”* The two agreeing are you, the bride, and the thing desired, the groom. As this agreement is accomplished a son bearing witness of this union will be born. You begin to express and possess that which you are conscious of being. Praying, then, is recognizing yourself to be that which you desire to be rather than begging God for that which you desire.
+*“Two shall agree as touching anything and it shall be established on earth.”* The two agreeing are you, the bride, and the thing desired, the groom. As this agreement is accomplished a son bearing witness of this union will be born. You begin to express and possess that which you are conscious of being. Praying, then, is recognizing yourself to be that which you desire to be rather than begging God for that which you desire.
 
 Millions of prayers are daily unanswered because man prays to a God who does not exist. Consciousness being God, one must seek in consciousness for the thing desired by assuming the consciousness of the quality desired. Only as one does this will his prayers be answered. To be conscious of being poor while praying for riches is to be rewarded with that which you are conscious of being, namely, poverty. Prayers to be successful must be claimed and appropriated. Assume the positive consciousness of the thing desired.
 

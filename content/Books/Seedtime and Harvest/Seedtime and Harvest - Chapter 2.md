@@ -1,13 +1,13 @@
-> *"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."*  
+*"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."*  
 ([Genesis 2:10](https://www.biblegateway.com/passage/?search=Genesis+2:10&version=KJV))
 
-> *"And every one had four faces.."*  
+*"And every one had four faces.."*  
 ([Ezekiel 10:14](https://www.biblegateway.com/passage/?search=Ezekiel+10:14&version=KJV))
 
-> *"I see four men loose, walking  in the midst of the fire, and they  have no hurt; and the form of  the fourth is like the Son of  God."*  
+*"I see four men loose, walking  in the midst of the fire, and they  have no hurt; and the form of  the fourth is like the Son of  God."*  
 ([Daniel 3:25](https://www.biblegateway.com/passage/?search=Daniel+3:25&version=KJV))
 
-> *"[Four Mighty Ones](/lectures/four-mighty-ones) are in every man."* (William Blake)
+*"[Four Mighty Ones](/lectures/four-mighty-ones) are in every man."* (William Blake)
 
 The *"Four Mighty Ones"* constitute the selfhood of man, or God in man. There are *"Four Mighty Ones"* in every man, but these *"Four Mighty Ones"* are not four separate beings, separated one from the other as are the fingers of his hand.
 
@@ -19,7 +19,7 @@ The Tetragrammaton is revered as the symbol of the Creative Power in man - I AM 
 
 We can best understand the *"Four Mighty Ones"* by comparing them to the four most important characters in the production of a play.
 
-> *"All the world's a stage,  And all the men and women  merely players;  They have their exits and their entrances;  And one man in his time plays  many parts . . ."*  
+*"All the world's a stage,  And all the men and women  merely players;  They have their exits and their entrances;  And one man in his time plays  many parts . . ."*  
 (As You Like It Act II, Scene VII)
 
 The producer, the author, the director and the actor are the four most important characters in the production of a play.
@@ -38,7 +38,7 @@ The third *"Mighty One"* in the production of life's play is the director. The d
 
 This function may be likened to a controlled and consciously directed attention - an attention focused exclusively on the action which implies that the wish is already realized.
 
-> *"The form of the Fourth is like the Son of God"* - human imagination, the actor.
+*"The form of the Fourth is like the Son of God"* - human imagination, the actor.
 
 This fourth *"Mighty One"* performs within himself, in imagination, the pre-determined action which implies the fulfillment of the wish. This function does not visualize or observe the action. This function actually enacts the drama, and does it over and over again until it takes on the tones of reality.
 
@@ -46,23 +46,23 @@ Without the dramatized vision of fulfilled desire, the theme remains a mere them
 
 The *"Four Mighty Ones"* are the four quarters of the human soul. The first is Jehovah's King, who suggests the theme; the second is Jehovah's servant, who faithfully works out the theme in a dramatic vision; the third is Jehovah's man, who was attentive and obedient to the vision of fulfilled desire, who brings the wandering imagination back to the script *"seventy times seven"*. The *"Form of the Fourth"* is Jehovah himself, who enacts the dramatized theme on the stage of the mind.
 
-> *"Let this mind be in you, which  was also in Christ Jesus:  Who, being in the form of God,  thought it not robbery to be  equal with God: . . ."*  
+*"Let this mind be in you, which  was also in Christ Jesus:  Who, being in the form of God,  thought it not robbery to be  equal with God: . . ."*  
 ([Philippians 2:5,6](https://www.biblegateway.com/passage/?search=Philippians+2:5,6&version=KJV))
 
 The drama of life is a joint effort of the four quarters of the human soul.
 
-> *"[All that you behold](/lectures/all-that-you-behold), tho' it appears without,  it is within, in your imagination, of which this  world of mortality is but a shadow."*  
+*"[All that you behold](/lectures/all-that-you-behold), tho' it appears without,  it is within, in your imagination, of which this  world of mortality is but a shadow."*  
 (William Blake)
 
 All that we behold is a visual construction contrived to express a theme - a theme which has been dramatized, rehearsed and performed elsewhere. What we are witnessing on the stage of the world is an optical construction devised to express the themes which have been dramatized, rehearsed and performed in the imagination of men.
 
 The *"Four Mighty Ones"* constitute the Selfhood of man, or God in man: and all that man beholds, tho' it appears without, are but shadows cast upon the screen of space - optical constructions contrived by Selfhood to inform him in regard to the themes which he has conceived, dramatized, rehearsed and performed within himself.
 
-> *"The creature was made subject unto vanity"* that he may become conscious of Selfhood and its functions, for with consciousness of Selfhood and its functions, he can act to a purpose; he can have a consciously self-determined history.
+*"The creature was made subject unto vanity"* that he may become conscious of Selfhood and its functions, for with consciousness of Selfhood and its functions, he can act to a purpose; he can have a consciously self-determined history.
 
 Without consciousness, he acts unconsciously, and cries to an objective God to save him from his own creation.
 
-> *"O Lord, how long shall I cry, and  Thou wilt not hear! Even cry out  unto Thee of violence, and  Thou wilt not save!"*  
+*"O Lord, how long shall I cry, and  Thou wilt not hear! Even cry out  unto Thee of violence, and  Thou wilt not save!"*  
 ([Habakkuk 1:2](https://www.biblegateway.com/passage/?search=Habakkuk+1:2&version=KJV))
 
 When man discovers that life is a play which he, himself, is consciously or unconsciously writing, he will cease from the blind, self-torture of executing judgment upon others.
@@ -75,12 +75,12 @@ When the fourth function, the imagination, has completed its task of rehearsing 
 
 Men and women will automatically play their parts to bring about the fulfillment of the dramatized theme. The players, by reason of their various parts in the world's drama, become relevant to the individual's dramatized theme and, because relevant, are drawn into his drama. They will play their parts, faithfully believing all the while that it was they themselves who initiated the parts they play. This they do because:
 
-> *"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."*  
+*"Thou, Father, art in me, and I in thee, ... I in them, and thou in me."*  
 ([John 17:21, 23](https://www.biblegateway.com/passage/?search=John+17:21,+23&version=KJV))
 
 I am involved in mankind. We are one. We are all playing the four parts of producer, author, director and actor in the drama of life. Some of us are doing it consciously, others unconsciously. It is necessary that we do it consciously. Only in this way can we be certain of a perfect ending to our play. Then we shall understand why we must become conscious of the four functions of the one God within ourselves that we may have the companionship of God as His Sons.
 
-> *"Man should not stay a man:  His aim should higher be.  For God will only gods , Accept as company."*  
+*"Man should not stay a man:  His aim should higher be.  For God will only gods , Accept as company."*  
 (Angelus Silesius)
 
 In January of 1946, I took my wife and little daughter to Barbados in the British West Indies for a holiday. Not knowing there were any difficulties in getting a return passage, I had not booked ours before leaving New York. Upon our arrival in Barbados I discovered that there were only two ships serving the islands, one from Boston and one from New York. I was told there was no available space on either ship before September. As I had commitments in New York for the first week in May, I put my name on the long waiting list for the April sailing.
@@ -95,7 +95,7 @@ In the production of my play - the sailing on a boat that would bring me to New 
 
 This being done, events and people moved swiftly to conform, in the outer world, to the play I had constructed and enacted in my imagination.
 
-> *"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own Dreams."*  
+*"I saw the mystic vision flow, And live in men and woods and streams.  Until I could no longer know, The stream of life from my own Dreams."*  
 (George William Russell)
 
 I told this story to an audience of mine in San Francisco, and a lady in the audience told me how she had unconsciously used the same technique, when she was a young girl.
@@ -109,7 +109,7 @@ A month later, this girl sailed for the islands in the South Pacific. It was nig
 
 In the intervening years, she had many opportunities to use her imagination constructively, but as she had done this unconsciously, she did not realize there was a Law behind it all. Now that she understands, she, too, is consciously playing her four major roles in the daily drama of her life, producing plays for the good of others as well as herself.
 
-> *"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."*
+*"Then the soldiers, when they had  crucified Jesus, took his garments,  and made four parts, to every soldier  a part; and also his coat; now the coat  was without seam, woven from the  top throughout."*
 ([John 19:23](https://www.biblegateway.com/passage/?search=John+19:23&version=KJV))
 
 
