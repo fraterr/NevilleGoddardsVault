@@ -48,12 +48,28 @@
 .dirLabel {
   display: flex;
   align-items: center;
+  margin-bottom: 0.25rem;
+  width: 100%;
+}
+
+.dirLink {
+  display: flex;
+  align-items: center;
   font-weight: 500;
   color: var(--text-primary);
-  margin-bottom: 0.25rem;
+  text-decoration: none;
   font-size: 0.95rem;
-  padding: 0.25rem 0;
+  padding: 0.25rem 0.5rem;
+  border-radius: 6px;
+  transition: all 0.2s ease;
+  width: 100%;
   opacity: 0.9;
+}
+
+.dirLink:hover {
+  background-color: var(--surface-hover);
+  color: var(--accent-gold);
+  opacity: 1;
 }
 
 .fileNode {

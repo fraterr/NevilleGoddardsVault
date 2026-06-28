@@ -28,10 +28,13 @@ function TreeNode({ node, depth = 0 }: { node: VaultNode; depth?: number }) {
   const paddingLeft = `${depth * 1}rem`;
 
   if (isDir) {
+    const href = `/${node.slug.join('/')}`;
     return (
       <li className={styles.dirNode}>
         <div className={styles.dirLabel} style={{ paddingLeft }}>
-          <span className={styles.folderIcon}>📁</span> {node.name}
+          <Link href={href} className={styles.dirLink}>
+            <span className={styles.folderIcon}>📁</span> {node.name}
+          </Link>
         </div>
         {node.children && node.children.length > 0 && (
           <ul className={styles.treeList}>

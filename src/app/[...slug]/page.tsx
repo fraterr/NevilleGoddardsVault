@@ -14,9 +14,7 @@ export async function generateStaticParams() {
 
   function traverse(nodes: VaultNode[]) {
     for (const node of nodes) {
-      if (node.type === 'file') {
-        paths.push({ slug: node.slug });
-      }
+      paths.push({ slug: node.slug });
       if (node.children) {
         traverse(node.children);
       }
