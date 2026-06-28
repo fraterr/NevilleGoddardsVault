@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 8
+
 *"A man that looks on glass,
 On it may stay his eye;
 Or if he pleaseth, through it pass,
@@ -159,7 +161,6 @@ All these stories show us one thing — that an imaginal activity implying the w
 
 
 ## Summary
-
 ### We can pass through the senses into imagination
 
 Normal consciousness focuses on the senses but we can shift from perceptual to conceptual awareness.

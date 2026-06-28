@@ -1,3 +1,5 @@
+# You Can Never Outgrow I Am
+
 A man can never outgrow or lose the God he knows in a first person, present tense experience. And when he finds this God he tells his brothers, saying: *"If I had not come and spoken to you, you would have no sin, but now you have no excuse for your sins."* God reveals himself to man as his eternal contemporary, saying: *"Unless you believe that I am he, you will die in your sins,"* but man finds it almost impossible to keep the tense. He thinks of God in the third person, addresses him in the second person, but can only know God in a first person, present tense experience. Just imagine - no one can sin until God reveals himself to the individual in a first person, present tense experience. Only then can man have no excuse for his sin. And when one who finds God tells his brothers, he receives no greater reception than the first one did, because they see him as a man of flesh and blood, and cannot see this invisible being who says: *"I came down from heaven."* Man is looking for Christ to come from without, but his revelation is whispered from within.
 
 *"I tell you: I have been crucified with Christ. It is not I who lives, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me."* In that act he, whose name is I AM, became me. And if I do not believe that my I amness is he, I will die in my sin.
@@ -69,7 +71,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### 1. The God of First Person, Present Tense Experience
 - One cannot outgrow or lose the God known in a first person, present tense experience.
 - God reveals himself as the eternal contemporary and sin is only possible after this revelation.

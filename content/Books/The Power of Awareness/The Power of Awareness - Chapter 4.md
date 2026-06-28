@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 4
+
 The changes which take place in your life as a result of your changed concept of yourself always appear to the unenlightened to be the result, not of a change of your consciousness, but of chance, outer cause, or coincidence. However, the only fate governing your life is the fate determined by your own concepts, your own assumptions; for an Assumption, though false, if persisted in will harden into fact. The ideal you seek and hope to attain will not manifest itself, will not be realized by you, until you have imagined that you are already that ideal. There is no escape for you except by a radical psychological transformation of yourself, except by your Assumption of the feeling of your wish fulfilled. Therefore, make results or accomplishments the crucial test of your ability to use your imagination.
 
 Everything depends on your attitude towards yourself. That which you will not affirm as true of yourself can never he realized by you, for that attitude alone is the necessary condition by which you realize your goal.
@@ -10,7 +12,6 @@ If you do not believe that you are He (the person you want to be), then you rema
 
 
 ## Summary
-
 ### Changes Seem Like Chance, Not Consciousness Shift
 
 - Changes from consciousness change appear as chance to the unenlightened.

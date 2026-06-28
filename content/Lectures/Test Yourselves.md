@@ -1,3 +1,5 @@
+# Test Yourselves
+
 Faith is not complete until through experiment it becomes experience. God's promise cannot be tested. It cannot be earned, for it is given by grace. But your faith will be increased when you experiment, when you test God's law. It is easier to accept the Christian faith than to live by it, but you must live by it for your faith to grow'
 
 In his 2nd letter to the Corinthians, Paul is speaking to the whole world when he says: *"Examine yourselves to see if you are holding to the faith. Test yourselves' Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? - unless of course you fail to meet the test. I hope you will discover that we have not failed."*
@@ -57,8 +59,7 @@ Ask yourself: *"If I now believe that I am He that the world worships as the Lor
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Faith and Testing
 - Faith is incomplete until it becomes experience through experimentation.
 - God's promise cannot be tested or earned, but faith can be increased by testing God's law.

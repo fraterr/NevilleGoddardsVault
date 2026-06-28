@@ -1,3 +1,5 @@
+# The Pure In Heart
+
 I think you are all familiar with the 6th Beatitude: *"Blessed are the pure in heart for they shall see God."* I daresay it would be unwise to pick and choose among the beatitudes, and yet I daresay most people look upon this beatitude as the particular star in the heavens. It really seems the most inaccessible, not only the promise, but the conditions that must be met in order for the promise to be fulfilled. We must be pure in heart to see God and what wouldn't man give to see God! Yet, all he needs do in this world is fulfill this condition: to be pure in heart. What do we mean by *"pure in heart?"* Just what is it?
 
 First of all, may I tell you: you need not think of moral perfection, and certainly it does not refer in any way to sexual purity, for we are told by the same one who uttered the beatitude that the harlot given to lust will go into heaven before the Pharisee. The Pharisee was perfect in keeping the outward law, the washing of the outside of the cup, of the hands, of the feet and he abided by the law outwardly. Yet, he was told that the harlot given to lust would go into heaven before he did. So it is not that. What is the purity spoken of? *"Blessed are the pure in heart for they shall see God."*
@@ -81,7 +83,6 @@ You dwell upon it and upon the answer to the lady's question: Who is doing it? '
 
 
 ## Summary
-
 ### Blessed are the Pure in Heart
 
 - The 6th Beatitude is "Blessed are the pure in heart for they shall see God."

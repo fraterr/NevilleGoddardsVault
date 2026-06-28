@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 14
+
 The principle of *“Least Action”* governs everything in physics from the path of a planet to the path of a pulse of light. Least Action is the minimum of energy, multiplied by the minimum of time. Therefore, in moving from your present state to the state desired, you must use the minimum of energy and take the shortest possible time. Your journey from one state of consciousness to another is a psychological one, so, to make the journey, you must employ the psychological equivalent of *“Least Action,”* and the psychological equivalent is mere Assumption.
 
 The day you fully realize the power of Assumption, you discover that it works in complete conformity with this principle. It works by means of attention, minus effort. Thus, with least action through an Assumption you hurry without haste and reach your goal without effort. Because creation is finished, what you desire already exists. It is excluded from view because you can see only the contents of your own consciousness. It is the function of an Assumption to call back the excluded view and restore full vision. It is not the world but your assumptions that change. An Assumption brings the invisible into sight. It is nothing more nor less than seeing with the eye of God, i.e., imagination.
@@ -12,7 +14,6 @@ It is simply futile day-dreaming.
 
 
 ## Summary
-
 ### Law of Least Action
 
 Physics principle of minimum energy and time.

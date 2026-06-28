@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 10
+
 *"Take heed therefore how ye hear; for whosoever hath, to him shall be given; and whosoever hath not, from him shall be taken even that which he seemeth to have."* ([Luke 8](https://www.biblegateway.com/passage/?search=Luke+8&version=KJV): 18)
 
 The Bible which is the greatest psychological book ever written, warns man to be aware of what he hears; then follows this warning with the statement, *“To him that hath it shall be given and to him that hath not it shall be taken away.”* Though many look upon this statement as one of the most cruel and unjust of the sayings attributed to Jesus, still remains a just and merciful law based upon life’s changeless principle of expression.
@@ -16,7 +18,6 @@ Claim yourself to be that which you want filled full.*“Nothing is destroyed. A
 
 
 ## Summary
-
 ### Hear Wisely
 
 Be selective in what you hear and accept as true. You register as proof what you affirm as real.

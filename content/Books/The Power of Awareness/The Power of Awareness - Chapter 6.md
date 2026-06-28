@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 6
+
 *"A double-minded man is unstable in all his ways"*. ([James 1:8](https://www.biblegateway.com/passage/?search=James+1:8&version=KJV)).
 
 Attention is forceful in proportion to the narrowness of its focus, that is, when it is obsessed with a single idea or sensation. It is steadied and powerfully focused only by such an adjustment of the mind as permits you to see one thing only, for you steady the attention and increase its power by confining it. The desire which realizes itself is always a desire upon which attention is exclusively concentrated, for an idea is endowed with power only in proportion, to the degree of attention fixed on it. Concentrated observation is the attentive attitude directed [from] some specific end. The attentive attitude involves selection, for when you pay attention, it signifies that you have decided to focus your attention on one object or state rather than on another.
@@ -29,7 +31,6 @@ You will walk in the Assumption of the wish fulfilled as on a foundation more so
 
 
 ## Summary
-
 ### Concentrated Attention is Powerful
 
 - Attention forceful when narrowly focused on one idea or sensation.

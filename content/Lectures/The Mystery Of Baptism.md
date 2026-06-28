@@ -1,3 +1,5 @@
+# The Mystery Of Baptism
+
 Baptism on this level is a symbolic representation of being raised to the realization of being God the Father. In his letter, Paul tells the Ephesians that there is only one baptism. This occurs prior to the realization of being God the Father. And in Paul's letter to the Romans he states: *"We are buried with Christ by a baptism into death, so that as Christ was raised from the dead by the glory of the Father, we also may walk in newness of life."* 
 
 Baptism implies complete immersion. It is said that when Jesus rose out of the water the heavens opened, and the Spirit, in the form of a dove, descended upon him. 
@@ -88,7 +90,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Baptism as a Symbolic Representation of Being God the Father
 - Baptism represents being raised to the realization of being God the Father.
 - Paul states that there is only one baptism, which occurs before the realization of being God the Father.

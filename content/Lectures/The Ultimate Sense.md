@@ -1,3 +1,5 @@
+# The Ultimate Sense
+
 In the Book of Nehemiah we are told that: *"They read from the book, from the law of God with interpretation and gave the sense so that the people understood the reading."* I wish that were true of today's preachers, but unfortunately they have mistakenly taken personifications for persons and the gross first sense for the ultimate sense intended.
 
 In today's paper I read where 325 graduate students of fifteen Catholic colleges were asked to name their ten heroes, in order, with no restrictions as to time. The late president Kennedy came in first, his brother Robert second, Martin Luther King third, with Jesus coming in fifth. Here are graduates of fifteen Catholic colleges who - seeing the Bible as secular history - place its primary character fifth in their heroic order when if read as literature (as many college students do) they would discover it is not secular history at all.
@@ -74,7 +76,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Misinterpretation of Scripture
 - Many preachers mistakenly see personifications in the Bible as actual individuals.
 - Graduates from Catholic colleges often see the Bible as secular history, rather than literature.

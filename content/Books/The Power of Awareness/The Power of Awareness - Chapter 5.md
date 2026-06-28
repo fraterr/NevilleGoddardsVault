@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 5
+
 The drama of life is a psychological one in which all the conditions, circumstances, and events of your life are brought to pass by your assumptions.
 
 Since your life is determined by your assumptions, you are forced to recognize the fact that you are either a slave to your assumptions or their master. To become the master of your assumptions is the key to undreamed-of freedom and happiness. You can attain this mastery by deliberate conscious control of your imagination. You determine your assumptions in this way: Form a mental image, a picture of the state desired, of the person you want to be. Concentrate your attention upon the feeling that you are already that person. First, visualize the picture in your consciousness. Then feel yourself to be in that state as though it actually formed your surrounding world. By your imagination that which was a mere mental image is changed into a seemingly solid reality.
@@ -15,7 +17,6 @@ From the fourth dimension of space — And on through the universe boundless, Ou
 
 
 ## Summary
-
 ### Life Drama is Psychological
 
 - Life conditions brought by assumptions we make.

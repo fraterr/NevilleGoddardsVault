@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 8
+
 *"What think ye of the Christ? Whose Son is He?"* ([Matthew 22:42](https://www.biblegateway.com/passage/?search=Matthew+22:42&version=KJV))
 WHEN THIS question is asked of you, let your answer be, *"Christ is my imagination"*, and, though I  
 *"See not yet all things put under him"*, ([Hebrews 2:8](https://www.biblegateway.com/passage/?search=Hebrews+2:8&version=KJV)), yet I know that I am Mary from whom sooner or later He shall be born, and eventually *"Do all things through Christ"* ([Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians+4:13&version=KJV)).  
@@ -11,7 +13,6 @@ From Advent on, *"He that toucheth you toucheth the apple of God's eye."* ([Zech
 
 
 ## Summary
-
 ### Christ is Imagination
 
 - Christ is our own imagination

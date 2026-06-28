@@ -1,3 +1,5 @@
+# God's Wisest Creature
+
 We are told that because of an act of disobedience man fell, thereby separating himself from God. But scripture tells us that God consigned all men to disobedience that he may have mercy upon them. So we see: the fall was a deliberate act, a plan for expansion, for greater existence, and an ultimate birth.  
   
 Scholars consider the 82nd Psalm as one of the most difficult of all the psalms to interpret, stating that although the idea may be perennial, its meaning has vanished.  
@@ -70,7 +72,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Fall and the Plan for Expansion
 - The fall of man from God was a deliberate act that allowed for expansion and greater existence.
 - The 82nd Psalm suggests a deeper meaning, stating that all children of humanity are considered gods.

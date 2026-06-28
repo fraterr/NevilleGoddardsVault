@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 4
+
 *"I have told you that I AM; if therefore ye seek me, let these go their way"* ([John 18:8](https://www.biblegateway.com/passage/?search=John+18:8&version=KJV))
 
 *"As soon then as he had said unto them, I AM they went backward and fell to the ground."* ([John 18:6](https://www.biblegateway.com/passage/?search=John+18:6&version=KJV))
@@ -60,7 +62,6 @@ Do this and you will know that you have found the master, the Master Magician, m
 
 
 ## Summary
-
 ### The I AM is the Master
 
 Your awareness of being is the one true Master. Look within, not to others. Your consciousness determines your expression.

@@ -1,3 +1,5 @@
+# Who Is The Son Of Man
+
 So, the Tonight’s subject is: *"Who is The Son of Man?"* In the 16th chapter of the Book of Matthew, the question is asked of the Disciples: *"‘Who do men say that the Son of Man is?’ and they answered, ‘Some say John the Baptist come again, others say Jeremiah or one of the prophets, others say Elijah.’ And then he said to them, ‘But who do you say that I am?’"* [[Matthew 16:13-15](https://www.biblegateway.com/passage/?search=Matthew+16:13-15&version=KJV)]
 
 So here He equates the Son of Man with I AM. It is the one title that is most used concerning Jesus in Scripture. We find it in Ezekiel throughout the entire book, and the 7th chapter of the Book of Daniel, we hear *"one like a son of man, and he came to the Ancient of Days and was presented before him. And to him is given dominion and glory and kingdom."* [[Daniel 7:13](https://www.biblegateway.com/passage/?search=Daniel+7:13&version=KJV)].
@@ -124,7 +126,6 @@ So I know from experience that Heaven is not a realm, but it is the body of the 
 
 
 ## Summary
-
 ### The Son of Man
 - In [Matthew 16](https://www.biblegateway.com/passage/?search=Matthew+16&version=KJV), Jesus asks the Disciples who they think the Son of Man is.
 - The Son of Man is equated with "I AM" and is the most used title for Jesus in Scripture.

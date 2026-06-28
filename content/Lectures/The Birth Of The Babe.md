@@ -1,3 +1,5 @@
+# The Birth Of The Babe
+
 When I left two months ago I asked you to join in testing with me what I have heard and told you, but now I can say as did Job (42:5) 'I have heard of thee by the hearing of the ear, but now mine eyes seeth thee.' Tonight as I stand here I can say what he said centuries ago. When I left I had heard of this principle and I had proved it but I had not seen it; but now I have seen it so I can stand here and tell you something I could not have told you two months ago.
 
 Here we are in 1959 and we wonder about a book written centuries ago ' the Bible. How can it guide us in an atomic age? We think we are now so wise. There comes one scientific book after another, and each wiser than the previous one, and how can a book written, you might say, by shepherds, be a guide today? Is it true? I know tonight it is more true than anyone knows. The book called the Bible is not what any of the priesthoods of the world think it to be. We say that God is all Imagination and that God and man are one; and we exist in Him and He in us. 'The eternal body of man is all Imagination; that is, God Himself.' (Blake) I told you that and I believed it and I heard it and read it and tried to put it into practice, but now I know that you and I are made of the very substance of God and we are one with Him.
@@ -52,7 +54,6 @@ Answer: A child is best taught by example. Living the life of loving man is the 
 
 
 ## Summary
-
 ### The Bible and its relevance in the atomic age
 - The author discusses the significance of the Bible in modern times and how it can guide us even in the atomic age.
 - He asserts that the Bible is not what religious institutions perceive it to be, but it embodies the concept that God and man are one.

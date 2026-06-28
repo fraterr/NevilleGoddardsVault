@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 1
+
 [!info] Hear, O Israel 
 HEAR, O Israel: the Lord our God is one Lord.
 Hear, O Israel:
@@ -79,7 +81,6 @@ The conceiver and the conception are one. If your conception of yourself is less
 Name God by consciously defining yourself as your highest ideal.
 
 ## Summary
-
 ### Unconditioned consciousness is God
 
 - Unconditioned consciousness is a sense of awareness, a knowing that *"I AM"* apart from knowing who I am.

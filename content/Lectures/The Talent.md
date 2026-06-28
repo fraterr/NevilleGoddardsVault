@@ -1,3 +1,5 @@
+# The Talent
+
 A talent is a gift entrusted to one for his use. And when one is given the greatest talent of them all, its use gives meaning to existence.
 
 In the 25th chapter of the Book of Matthew, a parable is told comparing this gift to the kingdom of heaven as: "A man going on a long journey called his servants and entrusted to them his property. To one he gave five talents, to another two, and to another, one. Then he went away. When he returned, the servants explained their use of the talents. The one who had received five had increased it to ten, for which he was highly commended and invited to enter into the joy of his master. The one who received two had doubled his and he, too, was highly commended and invited to enter into the joy of his master. But he who had received one, being afraid to test it, had buried his talent. He was condemned, the talent taken from him, and given to the one who had ten. 
@@ -68,7 +70,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Parable of the Talents
 - The parable told in the 25th chapter of Matthew compares the gift of talents to the kingdom of heaven.
 - The man in the parable entrusts his servants with talents and when he returns, he commends those who have multiplied their talents but condemns the one who buried his talent.

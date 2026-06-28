@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 16
+
 Self surrender is essential, and by that is meant ‘the confession of personal impotence. I can of mine own self do nothing.
 
 Since creation is finished, it is impossible to force anything into being. The example of magnetism previously given is a good illustration. You cannot make magnetism; it can only be displayed. You cannot make the law of magnetism. If you want to build a magnet, you can do so only by conforming to the law of magnetism. In other words, you surrender yourself, or yield to the law. In like manner, when you use the faculty of Assumption, you are conforming to a law just as real as the law governing magnetism. You can neither create nor change [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption). It is in this respect that you are impotent. You can only yield or conform, and since all of your experiences are the result of your assumptions (consciously or unconsciously) the value of consciously using the power of Assumption surely must be obvious.
@@ -6,7 +8,6 @@ Willingly identify yourself with that which you most desire, knowing that it wil
 
 
 ## Summary
-
 ### Self Surrender is Essential
 
 Confess personal impotence *"I can of myself do nothing."*

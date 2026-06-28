@@ -1,3 +1,5 @@
+# Meditation
+
 Many people tell me they cannot meditate. This seems to me a bit like saying they cannot play the piano after one attempt. Meditation, as in every art or expression, requires constant practice for perfect results. A truly great pianist, for instance, would feel he could not play his best if he missed one day of practice. If he missed a week or a month of practice he would know that even his most uninitiated audience would recognize his defects. So it is with Meditation. If we practice daily with joy in this daily habit, we perfect it as an art. I find that those who complain of the difficulty in Meditation do not make it a daily practice, but rather, wait until something pressing appears in their world and then, through an act of will, try to fix their attention on the desired state. But they do not know that Meditation is the education of the will, for when will and imagination are in conflict, imagination invariably wins.
 
 The dictionaries define Meditation as fixing one’s attention upon; as planning in the mind; as devising and looking forward; engaging in continuous and contemplative thought. A lot of nonsense has been written about Meditation. Most books on the subject get the reader nowhere, for they do not explain the process of Meditation. All that Meditation amounts to is a controlled imagination and a well sustained attention. Simply hold the attention on a certain idea until it fills the mind and crowds all other ideas out of consciousness. The power of attention shows itself the sure guarantee of an inner force. We must concentrate on the idea to be realized, without permitting any distraction. This is [the great secret](/lectures/the-great-secret) of action. Should the attention wander, bring it back to the idea you wish to realize and do so again and again, until the attention becomes immobilized and undergoes an effortless fixation upon the idea presented to it. The idea must hold the attention – must fascinate it – so to speak. All Meditation ends at last with the thinker, and he finds he is what he, himself, has conceived. The undisciplined man’s attention is the servant of his vision rather than its master. It is captured by the pressing rather than the important.
@@ -24,7 +26,6 @@ Creation is finished and what we call creativeness is really only a deeper recep
 
 
 ## Summary
-
 ### Daily Practice
 
 Meditation requires regular, joyful daily practice like playing an instrument. Occasional, willed attempts will not perfect the art. Meditation trains the will when imagination and will conflict.

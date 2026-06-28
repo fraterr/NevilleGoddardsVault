@@ -1,3 +1,5 @@
+# Awake O Sleeper
+
 The Bible is addressed to the Imagination - which is [spiritual sensation](/lectures/spiritual-sensation) - and only immediately to the understanding, or reason.   
   
 In the fifth chapter of the Book of Ephesians we are told to: *"Awake O sleeper and rise from the dead."* Now, reason could never comprehend these words, but the Bible is calling upon Imagination to awaken, telling Him that he is sleeping, dreaming his world into being. But Imagination, now a rational being, does not know this and therefore cannot believe it.   
@@ -102,7 +104,6 @@ Now let us go into the silence
 
 
 ## Summary
-
 ### The Bible is Addressed to the Imagination
 - The Bible speaks to the imagination as spiritual sensation, rather than reason or understanding.
 - The fifth chapter of Ephesians calls upon the imagination to awaken from its sleep and recognize its role in creating the world.

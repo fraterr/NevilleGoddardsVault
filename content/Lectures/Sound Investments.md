@@ -1,3 +1,5 @@
+# Sound Investments
+
 Today's subject is *"Sound Investments"*.
 
 I want to share with you today what I consider one of the truly great revelations of all time.

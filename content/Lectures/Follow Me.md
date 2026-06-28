@@ -1,3 +1,5 @@
+# Follow Me
+
 We are told that when Jesus found Philip, he said: *"Follow me."* Then Philip told Nathanael: *"We have found him of whom Moses and the law and the prophets wrote."* Philip is one who is interested in the workings of the mind. Looking for one who is searching for the source of the phenomena of life, Jesus finds one in whom he can reveal himself.   
   
 The Book of John begins: *"In the beginning was the Word and the Word was with God and the Word was God."* Now turning into a person, it is said: *"He was in the beginning with God. All things were made through him and without him was not anything made that was made. In him was life, and the life was the consciousness of men."*   
@@ -108,7 +110,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Jesus Finds Philip and Reveals Himself
 - Jesus finds Philip, who tells Nathanael they have found the one Moses and the prophets wrote about.
 - Jesus finds someone interested in understanding the mind's workings and searching for the source of life's phenomena.

@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 2
+
 A clear concept of the dual nature of man's consciousness must be the basis of all true Prayer. Consciousness includes a subconscious as well as a conscious part. The infinitely greater part of consciousness lies below the sphere of objective consciousness. The subconscious is the most important part of consciousness. It is the cause of voluntary action. The subconscious is what a man is. The conscious is what a man knows. *"I and my Father are one but my Father is greater than I."* The conscious and subconscious are one, but the subconscious is greater than the conscious.
 
 *"I of myself can do nothing, the Father within me He doeth the work."* I, objective consciousness, of myself can do nothing; the Father, the subconscious, He doeth the work. The subconscious is that in which everything is known, in which everything is possible, to which everything goes, from which everything comes, which belongs to all, to which all have access.
@@ -33,7 +35,6 @@ Ideas are best suggested when the objective mind is partly subjective, that is, 
 
 
 ## Summary
-
 ### The Dual Nature of Consciousness
 
 - Consciousness has a subconscious and conscious part

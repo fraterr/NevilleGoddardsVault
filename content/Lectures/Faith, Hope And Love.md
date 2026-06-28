@@ -1,3 +1,5 @@
+# Faith, Hope And Love
+
 Scripture makes the most profound statements in the world. You can believe them or reject them, but you will never know their truth until scripture is experienced. When it is once experienced, you can no more deny it than you can the humblest evidence of your senses.  
   
 I make the claim God is love. Scripture tells us God is faith, saying: *"Through faith the world was made by the Word of God."* And we are told to *"Put your hope fully upon the grace that is coming to you at the resurrection of Jesus [Christ in you](/lectures/christ-in-you)."* Now, I can tell you that his name is I AM and that God's first revelation to man is that of the Father. I can tell you that all this is true of yourself; that you are God the Father; that you are infinite love, infinite faith, and infinite hope, but you will not know this truth until it becomes your own experience.  

@@ -1,3 +1,5 @@
+# The Crucifixion
+
 The crucifixion is the history of man. Our human history begins with birth and ends with death. In Divine history it begins with death and ends with birth. There is a complete reversal of these histories. Here we begin in the womb and end in the tomb: but in Divine history we begin in the tomb and awaken in the womb where we are born. Now here in this fantastic drama I think we have misconceived the part of [Jesus Christ](/lectures/jesus-christ) and made of him an idol, and having made of him an idol he hides from us the true God.
 
 Let us turn to the Book of [Luke 18:31-34](https://www.biblegateway.com/passage/?search=Luke+18:31-34&version=KJV): *"And taking the twelve he said to them; 'Behold, we are going up to Jerusalem, and everything that is written of the Son of man by the prophets will be accomplished. For he will be delivered to the Gentiles, and will be mocked and shamefully treated and spit upon; they will scourged him and kill him, and on the third day he will rise.' But they understood none of these things; this saying was hid from them, and they did not grasp what was said."* We are told that no one understood him. Now believe this; I am speaking to you, as I have tried every night, from experience. I am not theorizing. I have no interest whatsoever in trying to set up some workable philosophy of life, I really haven't. If I made my exit tonight it would make no difference to me personally, maybe to my wife and my child, my family, - but not to me.
@@ -109,7 +111,6 @@ And this is the wonderful mystery of life through death. Now here is our story f
 
 
 ## Summary
-
 ### The Crucifixion as the History of Man
 
 - The history of man begins with birth and ends with death.

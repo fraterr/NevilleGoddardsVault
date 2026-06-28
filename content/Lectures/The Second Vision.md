@@ -1,3 +1,5 @@
+# The Second Vision
+
 We make the statement with Blake that, '[All that you behold](/lectures/all-that-you-behold), though it appears to be without, it is within, in your imagination of which this world of mortality is but a shadow.' I mean that literally. The whole of humanity is contained in you, for that is the being you really are, and that is God. 'And we exist in Him and He in us. The eternal body of the Imagination: that is, God Himself.'
 
 Did you hear President Eisenhower speak just recently on his reaction to his recent trip? Then he came to what he felt was the very spirit of our land ' the freedom of the individual. He said we have two great documents: one, the Declaration of Independence, the other is one that takes precedence over it, and that is the Bible. I wish he spoke for every one of us in the world, but even the majority who accept it as the Word of God do not understand it. It is a series of visions from beginning to end. The Old Testament shows what is taking place in the whole; the New Testament tells what is taking place in the single or individual man. The whole vast vision in both Old and New is actually taking place in the individual.
@@ -60,7 +62,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ###  The Whole of Humanity Exists Within You
 The text emphasizes that all that exists is within the individual's imagination, including the entire human race. The individual is God, and the visions in the Bible represent what is occurring within each person.
 

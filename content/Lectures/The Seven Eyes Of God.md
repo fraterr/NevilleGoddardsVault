@@ -1,3 +1,5 @@
+# The Seven Eyes Of God
+
 …we must go on to higher and higher levels, for that is the purpose of the teacher. I would like to look tonight into what it is to my mind, the greatest book in the world, the Bible, and show you a section with which you may not be familiar. It concerns the Seven Eyes of God, from the visions of Zechariah. He saw a stone with seven facets, and the Voice said, this is actually the seven eyes of God that reach over the entire world. For these seven eyes are really in man, for man is the earth of God. So forget this little planet and know that man is the true earth in which God is planted. These are the seven visions of God, seven increasingly clarifying visions of the Creator. The Bible names them but you must look for them.
 
 The first appears only once in the Bible in [Isaiah 14](https://www.biblegateway.com/passage/?search=Isaiah+14&version=KJV) ~ Lucifer, the morning star. And it tells how he is fallen and cut down to the ground - this shining being. All races have taught that man has fallen. It is not something that belongs to the Christian or the Jewish faiths, but all races have held this concept. So the first Eye of God is Lucifer - cut down to the ground.
@@ -73,7 +75,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Seven Eyes of God
 
 #### Introduction

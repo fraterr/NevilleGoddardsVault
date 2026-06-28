@@ -1,3 +1,5 @@
+# The Pattern Man
+
 Tonight’s subject is *"The Pattern Man."* Paul, in his final letter to Timothy, -- when he felt that he was about to depart this world, he wrote Timothy, and he said: *"[Follow the pattern](/lectures/follow-the-pattern) of the sound words which you have heard from me. Guard the truth which has been entrusted to you by the Holy Spirit who dwells within us."* [[II Timothy 1:13](https://www.biblegateway.com/passage/?search=II+Timothy+1:13&version=KJV), 14]
 
 Paul’s Letters were written twenty-odd years before any other part of the New Testament. The earliest Gospel is Mark; that came twenty-odd years after the Letters of Paul. It was in Paul that the entire story unfolded itself. Paul said: *"When it pleased God to reveal His Son in me, I did not confer with flesh and blood."* [[Galatians 1:16](https://www.biblegateway.com/passage/?search=Galatians+1:16&version=KJV),17] To whom would he turn? And he spent his last days, as told us in the Book of Acts, expounding the matter to them [[Acts 28:23](https://www.biblegateway.com/passage/?search=Acts+28:23&version=KJV)], *"trying to convince them about Jesus, then from the law of Moses and from the prophets. And some were convinced by what he said, while others disbelieved."* [[Acts 28:23](https://www.biblegateway.com/passage/?search=Acts+28:23&version=KJV),24]
@@ -175,7 +177,6 @@ End of source document.
 
 
 ## Summary
-
 ### The Pattern Man
 - Paul wrote about following the pattern of sound words in his final letter to Timothy
 - Paul's letters were written before any other part of the New Testament and contain the entire unfolding story

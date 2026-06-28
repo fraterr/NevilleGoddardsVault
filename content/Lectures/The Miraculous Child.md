@@ -1,3 +1,5 @@
+# The Miraculous Child
+
 Tonight's subject is 'The Miraculous Child.' This child will not appear to the world, for they are so fixed in their misconceptions of Scripture, and there is no dead weight so heavy. But tonight I wish you would pay special attention, as I want to introduce you to this miraculous child. For 'Though Christ a thousand times in Bethlehem be born, if he is not born in thee, thy soul is still forlorn.'
 
 God participates in human history and is known in those through whom his timeless purpose is working in time. He who began a good work in you will bring it to completion at the day of [Jesus Christ](/lectures/jesus-christ), and he appears, symbolized as a child. This miraculous child is not Christ, but a sign that Christ is born, in you. Now listen to one in whom God's timeless purpose has been fulfilled in time.
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Introduction to the Miraculous Child
 
 - The Miraculous Child is not known to the world due to misconceptions of Scripture.

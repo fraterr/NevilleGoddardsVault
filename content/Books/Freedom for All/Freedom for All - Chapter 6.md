@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 6
+
 The formula for the cure of leprosy as revealed in the fourteenth chapter of Leviticus is most illuminating when viewed through the eyes of a mystic. This formula can be prescribed as the positive cure of any disease in man’s world, be it physical, mental, financial, social, moral – anything.
 
 It matters not about the nature of the disease or its duration, for the formula can be successfully applied to any and all of them.
@@ -45,7 +47,6 @@ You impress upon yourself the fact that you are that which you desire to be unti
 Living in this fixed attitude of mind, living in the consciousness that you are now that which you formerly desired to be, is the bird in flight, unfettered by the limitations of the past and moving toward the embodiment of your desire.
 
 ## Summary
-
 ### The cure for leprosy is symbolic
 
 - The biblical cure for leprosy has symbolic meaning.

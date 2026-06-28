@@ -1,3 +1,5 @@
+# Biblical Language
+
 *"All are Men in Eternity. Rivers, Mountains, Cities, Villages,   
 All are Human, and when You enter into Their Bosoms,  
 You walk In Heavens and Earths;   
@@ -69,7 +71,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Language of the Bible
 - The language of the Bible evokes another world and describes places as human.
 - Biblical language speaks of a New Man, a different age, and a different reality.

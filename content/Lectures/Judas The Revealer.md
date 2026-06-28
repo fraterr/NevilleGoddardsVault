@@ -1,3 +1,5 @@
+# Judas The Revealer
+
 Every fact is a dream made visible, so I invite you to live as though your dream were already a fact! I am convinced that every dream (desire) I have dared to live in the now has gradually and unnoticed blossomed into fact in my life.
 
 I also know, not only from personal experience but from eternal vision, that the spiritual states of the soul are eternal. That like a traveler, individual man passes through states but the states remain forever.
@@ -93,7 +95,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Living as though a dream is already a fact
 - Every dream that is lived in the present gradually becomes a reality.
 - Spiritual states of the soul are eternal, and individuals pass through different states but they remain forever.

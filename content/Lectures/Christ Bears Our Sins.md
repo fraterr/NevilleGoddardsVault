@@ -1,3 +1,5 @@
+# Christ Bears Our Sins
+
 Peter tells us that Christ bears our sins in his body on the cross. And the prophet Isaiah said: *"He takes our infirmities and bears our diseases."*   
   
 Who is this being who bears our sins, our infirmities, and our diseases? Christ! Our wonderful human imagination! When you are in pain, or experiencing deep sorrow, your imagination is doing the suffering. If a friend tells you he is not feeling well, or is in great pain, and you tell him that his imagination - called Christ - is doing the suffering, your friend would not believe you, because he conceives Christ to be someone other than himself. But Christ is the human imagination, and until man discovers this for himself the Bible will make no sense to him whatsoever.   
@@ -83,7 +85,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Christ as our Imagination
 - Christ is the being who bears our sins, infirmities, and diseases, which are experiences of our imagination.
 - Until one recognizes that Christ is the human imagination, the Bible will not make sense.

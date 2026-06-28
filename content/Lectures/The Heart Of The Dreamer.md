@@ -1,3 +1,5 @@
+# The Heart Of The Dreamer
+
 The Christian world calls this the season of Advent; the coming of the great event or person; the coming of the Lord [Jesus Christ](/lectures/jesus-christ). Of course Paul, in his letter to the Galatians doesn't condemn it, but wonders if they really got the message, saying: 'I notice you observe days and months and seasons and years! I am afraid I have labored over you in vain.' There is nothing wrong with observing this season of the year, as long as you understand it as the coming of the great event or person.
 
 Tonight I will tell you what I know from experience, from which my conviction was born. I must, however, use certain imagery in order to explain it. so I ask that you follow me in your imagination. Your wonderful human imagination is a reproduction of the Divine Imagination. Think of the human imagination as brain cells in the mind of the dreamer, which Divine Imagination sent out to infinity for a divine purpose. These brain cells are destined to return, like a boomerang, right back into the center of Divine Imagination as the dreamer who is God the Father.
@@ -82,8 +84,7 @@ In the 4th chapter of the Book of Daniel, the decree was made to: 'Let his mind 
 Now let us go into the silence.
 
 
-## Summary 
-
+## Summary
 ### The Season of Advent 
 - The Christian world refers to this season as Advent, symbolizing the coming of the Lord Jesus Christ.
 - Paul questions if the Galatians truly understand the significance of this season.

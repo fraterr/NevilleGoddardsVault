@@ -1,3 +1,5 @@
+# Seedtime And Harvest
+
 As you have been told, this morning's subject is [Seedtime and Harvest](/books/seedtime-and-harvest/seedtime-and-harvest).
 
 Although it bears the same title as my latest book, it is not to be found in that book, for that book is an attempt to interpret some of the more difficult passages of the Bible. I have given you in the nine chapters a mystical view, and also a certain approach how you yourself may approach the interpretation of the Bible, for, as you know, it is not a book of history. And so, when I became aware of deeper meanings in the passages than those normally assigned to them, I began to see them or to apprehend them mystically, and so I have given you a mystical interpretation of many of the darker passages.
@@ -78,7 +80,6 @@ Now my time is up.
 
 
 ## Summary
-
 ### The Mystical Interpretation of the Bible in "Seedtime and Harvest"
 - The book "Seedtime and Harvest" provides a mystical interpretation of difficult passages in the Bible.
 - The author discovered deeper meanings in these passages and presented them in a mystical way.

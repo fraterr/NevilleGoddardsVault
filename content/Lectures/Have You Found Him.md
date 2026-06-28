@@ -1,3 +1,5 @@
+# Have You Found Him
+
 Tonight's subject is: *"Have you found him?"* In this question I am asking if you have found the source, the cause of the phenomena of life. I can tell you from experience that he is a person as I am, as you are. Called *"the Father,"* he is the one of whom I speak tonight.  
   
 I have met the Father. He embraced me and incorporated me into his body, so I wear (not to the mortal eye, but to the Spiritual eye) the human form divine, the body of infinite love. On this level this statement sounds insane, but it is true. Tonight I am going to try to show you how he will appear when you find him.   
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Father - the Source of Life
 - The speaker asks if the audience has found the cause of the phenomena of life, referring to the "Father" as the one.
 - The speaker claims to have personally met the Father and been embraced and incorporated into his body.

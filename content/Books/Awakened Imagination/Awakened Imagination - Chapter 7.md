@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 7
+
 *"I am the beginning and the end, there is nothing to come that has not been, and is."* ([Ecclesiastes 3:15](https://www.biblegateway.com/passage/?search=Ecclesiastes+3:15&version=KJV))  
 BLAKE SAW all possible human situations as *"already-made"* states. He saw every aspect, every plot and drama as already worked out as *"mere possibilities"* as long as we are not in them, but as overpowering realities when we are in them.  
 He described these states as *"Sculptures of Los's Halls"*.  
@@ -63,8 +65,6 @@ But the crucial matter is thinking from the end, for thinking from means unifica
 
 
 ## Summary
-
-
 ### States Already Exist
 
 - Blake saw all human situations as already existing *"states"*

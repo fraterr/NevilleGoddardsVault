@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 7
+
 Imagination is the beginning of creation.
 
 You imagine what you desire, and then you believe it to be true.
@@ -32,7 +34,6 @@ Our subconscious assumptions continually externalize themselves that others may 
 
 
 ## Summary
-
 ### Imagination Begins Creation
 
 - Imagine your desire then believe it to be true

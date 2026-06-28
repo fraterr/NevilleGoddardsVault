@@ -1,3 +1,5 @@
+# Feeling is the Secret - Chapter 1
+
 THE world, and all within it, is man's conditioned consciousness objectified. Consciousness is the cause as well as the substance of the entire world.
 
 So it is to consciousness that we must turn if we would discover the secret of creation.
@@ -94,7 +96,6 @@ These are the two gateways into the subconscious.
 
 
 ## Summary
-
 ### The Law of Consciousness
 
 - Everything in the world is a manifestation of consciousness.

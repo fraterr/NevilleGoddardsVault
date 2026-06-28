@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 13
+
 *"General knowledge is remote knowledge; It is in particulars that wisdom consists. And happiness too."* (William Blake)
 
 We must use our imagination to achieve particular ends, even if the ends are all trivia. Because men do not clearly define and imagine particular ends the results are uncertain, while they might be perfectly certain. To imagine particular ends is to discriminate clearly. *"How do we distinguish the oak from the beech, the horse from the ox, but by the bounding outline?"* (William Blake, Human Form Divine)
@@ -64,7 +66,6 @@ Man rates wealth in a way that bears no relation to real values.
 
 
 ## Summary
-
 ### Happiness is in particulars, not generalities
 
 Define clearly and imagine particular ends. Undefined, results will be uncertain.

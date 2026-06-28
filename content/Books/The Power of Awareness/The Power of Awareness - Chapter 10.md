@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 10
+
 *"I am God, declaring the end from the beginning, and from ancient times things that are not yet done."* ([Isaiah 46:9, 10](https://www.biblegateway.com/passage/?search=Isaiah+46:9,+10&version=KJV))
 
 Creation is finished. Creativeness is only a deeper receptiveness, for the entire contents of all time and all space, while experienced in a time sequence, actually coexist in an infinite and eternal now. In other words, all that you ever have been or ever will be — in fact, all that mankind ever was or ever will be — exists now. This is what is meant by creation, and the statement that creation is finished means nothing is ever to be created, it is only to be manifested. What is called creativeness is only becoming aware of what already is. You simply become aware of increasing portions of that which already exists. The fact that you can never be anything that you are not already or experience anything not already existing explains the experience of having an acute feeling of having heard before what is being said, or having met before the person being met for the first time, or having seen before a place or thing being seen for the first time.
@@ -23,7 +25,6 @@ Thus it is clearly seen how you, by your concept of yourself, determine your pre
 
 
 ## Summary
-
 ### Creation is Finished
 
 All of creation coexists in an eternal now, though experienced sequentially.

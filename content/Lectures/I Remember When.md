@@ -1,3 +1,5 @@
+# I Remember When
+
 When I receive a great revelation concerning the creative power of God I cannot keep it to myself, but must share it with all that will listen. Here is one I received many years ago. I found myself, in Spirit, in the interior of a stately mansion in New York City. It was the kind of home the great financial giants lived in at the turn of the century. Fully awake and aware, I was visible to the three generations who were present. The son spoke to his children saying: 'Your grandfather would stand on an empty lot and say: I remember when this was an empty lot.' Then he would paint a word picture of his desire for that lot so vividly that those who heard him could see it completed right before their eyes. This is the grandfather who made the fortune we are now enjoying." 
 
 I awoke, recorded the experience, returned to sleep, and re-dreamed the dream - only this time I was the grandfather. Speaking to those present I said: 'I remember when this was an empty lot." Then I pictured the building placed there so vividly the very stones molded themselves into the form I envisioned.
@@ -71,8 +73,7 @@ When you return to the source, the cause of all life, you will know that you and
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The Power of Memory and Imagination
 - The author shares a revelation about the creative power of God.
 - The author witnesses a scene where a man vividly describes his desires for an empty lot, which later becomes a successful building.

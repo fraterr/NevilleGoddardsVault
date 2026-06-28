@@ -1,3 +1,5 @@
+# The Search
+
 ONCE IN an idle interval at sea, I meditated on *"the perfect state"*, and wondered what I would be, were I of too pure eyes to behold iniquity, if to me all things were pure and were I without condemnation. As I became lost in this fiery brooding, I found myself lifted above the dark environment of the senses. So intense was the feeling, I felt myself a being of fire dwelling in a body of air. Voices as from a heavenly chorus, with the exaltation of those who had been conquerors in a conflict with death, were singing *"He is risen – He is risen"*, and intuitively I knew they meant me.  
 Then I seemed to be walking in the night. I soon came upon a scene that might have been the ancient Pool of Bethesda, for in this place lay a great multitude of impotent folk – blind, halt, withered – waiting not for the moving of the water as of tradition, but waiting for me. As I came near, without thought or effort on my part they were, one after the other, molded as by the Magician of the Beautiful. Eyes, hands, feet – all missing members – were drawn from some invisible reservoir and molded in harmony with that perfection which I felt springing within me. When all were made perfect, the chorus exulted, *"It is finished"*. Then the scene dissolved and I awoke.  
 I know this vision was the result of my intense Meditation upon the idea of perfection, for my meditations invariably bring about union with the state contemplated. I had been so completely absorbed within the idea that for a while I had become what I contemplated, and the high purpose with which I had for that moment identified myself drew the companionship of high things and fashioned the vision in harmony with my inner nature. The ideal with which we are united works by association of ideas to awaken a thousand moods to create a drama in keeping with the central idea.  
@@ -46,8 +48,6 @@ The universe which we study with such care is a dream, and we the dreamers of th
 
 
 ## Summary
-
-
 ### Vision of Perfection
 
 - In Meditation, the author envisioned himself as a fiery being dwelling in air

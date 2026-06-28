@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 7
+
 *"So shall My word be that goeth forth out of My mouth; it shall not return unto Me void, but it shall accomplish that which I please, and it shall prosper in the thing whereunto I sent it."* (– [Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 God speaks to you through the medium of your basic desires. Your basic desires are words of promise or prophecies that contain within themselves the plan and power of expression.
@@ -93,7 +95,6 @@ You turn your attention from your present conception of yourself and assume the 
 This feat is accomplished with the help of [the twelve disciples](/lectures/the-twelve-disciples), which are the twelve disciplined qualities of mind (see *"Your [Faith is Your Fortune](/books/your-faith-is-your-fortune/your-faith-is-your-fortune)"* by the same author, chapter 18).
 
 ## Summary
-
 ### God speaks through your basic desires
 
 - God speaks to you through your basic, core desires.

@@ -1,3 +1,5 @@
+# The Game Of Life
+
 The game of life, like every game, is played within the framework of certain rules, and any violation of those rules carries a penalty. You and I are playing this game from morning to night, and should therefore learn its rules in order to play it well.
 
 Ecclesiastes gives us this rule: *"Even in your thought do not curse the king, or in your bed chamber curse the rich, for a bird will carry your voice or some winged creature tell the matter."* And Mark gives us another, as: *"Whatever you desire, believe that you have received it and you will."* If you must believe you have received your desire in order to attain it, then you must start your game by believing it is finished. You must feel yourself into and partaking of your goal. And you must persist in that feeling in order to achieve it.
@@ -88,7 +90,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Importance of Knowing the Rules of Life
 - Life is like a game with certain rules and violating them carries penalties.
 - In order to play the game well, it is important to learn and understand these rules.

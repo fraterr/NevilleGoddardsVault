@@ -1,3 +1,5 @@
+# Feeling is the Secret - Chapter 2
+
 SLEEP, the life that occupies one-third of our stay on earth, is the natural door into the subconscious.
 So it is with sleep that we are now concerned. The conscious two-thirds of our life on earth is measured by the degree of attention we give sleep. Our understanding of and delight in what sleep has to bestow will cause us, night after night, to set out for it as though we were keeping an appointment with a lover.
 
@@ -106,7 +108,6 @@ Sleep is the door into heaven. What you take in as a feeling you bring out as a 
 
 
 ## Summary
-
 ### Introduction
 
 - Sleep allows us to enter the subconscious mind to make impressions and receive instructions.

@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 17
+
 *"When thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly."* ([Matt. 6:6](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 *"What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them."* ([Mark 11:24](https://www.biblegateway.com/passage/?search=Mark+11:24&version=KJV))
@@ -22,7 +24,6 @@ With your desire defined, quietly go within and shut the door behind you. Lose y
 
 
 ## Summary
-
 ### Prayer is Spiritual Union
 
 Prayer joins you in consciousness with your desire, like a spiritual marriage.

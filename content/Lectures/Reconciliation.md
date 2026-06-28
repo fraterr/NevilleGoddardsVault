@@ -1,3 +1,5 @@
+# Reconciliation
+
 If I told you who you really are it would shock you, for in this world you can be frightened, limited, and filled with doubt; yet I tell you that you are God himself, the very one who created and sustains the universe. When you first hear this you will no doubt resist it and believe the one who makes this statement to be insane because the idea seems impossible. But I tell you: God is in Christ reconciling the world to himself. [Jesus Christ](/lectures/jesus-christ) is in you as your plan of redemption. As he awakens, his message of reconciliation is entrusted to you to tell it to your brothers who are waiting, confused by reason of the dream into which they have placed themselves.
 
 When this message of reconciliation happens in you, you have entered the state called Paul. Then you, too, will say: *"From now on I regard no one from the human point of view. Even though I once regarded Christ from the human point of view I regard him thus no longer."*
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ###  You are God himself
 - In this world, you may feel frightened, limited, and filled with doubt.
 - But you are actually God himself, the creator and sustainer of the universe.

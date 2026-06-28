@@ -1,3 +1,5 @@
+# God's Creative Power
+
 We are told in the Book of Exodus: *"God said to Moses, ‘I AM the I AM. I appeared to Abraham, to Isaac, and to Jacob as God Almighty, but by my name I AM I did not make myself known to them.’"* And if you read the 1st chapter, the 24th verse of 1 Corinthians, you will discover that the I AM (the creative power of God) is personified as [Jesus Christ](/lectures/jesus-christ)! Now you and I are called upon to find this creative power. The Christian world claims to believe in Christ, but they do not know him for he must be found. This challenge is given in scripture. *"Examine yourselves to make sure you are holding to the faith. [Test yourselves](/lectures/test-yourselves)!"* If you want to find Jesus Christ you must test yourself!  
   
 Are you really convinced that Jesus Christ is in you? Have you tested him? If you have and are still not sure, then you have failed the test. Ask the highest leader of the Christian faith down to the lowest if he believes that Jesus Christ is in him, and if he is not convinced that the creative power of the universe is within and personalized as himself, then he has failed to meet the test regardless of what his man-made rank may be. You can attend all the churches in the world, give to the sick and poor on the outside, but if you do not know from experience that Jesus Christ is in you, you have failed the test. I tell you that Jesus Christ is your own wonderful human imagination, who is the eternal creative power of God. If you do not know that, you do not know Jesus Christ! You may say: *"He is a person."* Well, you are a person, aren’t you?  
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Challenge of Finding Jesus Christ
 - We are called to examine ourselves and test our faith in Jesus Christ.
 - Believing that Jesus Christ is in us is essential.

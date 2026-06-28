@@ -1,3 +1,5 @@
+# What Are You Doing
+
 Many times I have heard someone say: *"I believe that [imagining creates](/lectures/imagining-creates) reality, but I once imagined something and it never came to pass."* Then I ask: "What are you doing, saying: 'I once imagined it' and not imagining it now? For God's name is I Am, not I did! Always thinking of God as someone outside of himself, man finds it difficult to keep the tense, but God is the human imagination and there is [no other God](/lectures/no-other-god). 
 
 When you imagine you may include others, but do not think in terms of influence. Rather, think only in terms of clarity of form. 
@@ -63,8 +65,7 @@ If a certain desk designates that you are occupying a desired position, occupy t
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Imagining Creates Reality:
 - It may be difficult to keep the tense while thinking of God as someone outside of oneself, but God is the human imagination and there is no other God.
 - When imagining, think only in terms of clarity of form, not trying to influence others.

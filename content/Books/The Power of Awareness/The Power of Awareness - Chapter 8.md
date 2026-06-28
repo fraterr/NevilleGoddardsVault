@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 8
+
 There is no coal of character so dead that it will not glow and flame if but slightly turned.
 
 Resist not evil.
@@ -19,7 +21,6 @@ The happier, more noble life you will experience will be the result of wisely pr
 
 
 ## Summary
-
 ### Resist Not Evil, Renounce It
 
 - Resisting evil gives it attention, making it real.

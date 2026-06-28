@@ -1,3 +1,5 @@
+# Christ Is Your Life
+
 This teaching is essentially a revelation of the Risen Christ. I am not speaking of the life of any man between his physical birth and death, but of the Christ who has risen in me and who rises in all. I have no mental image of a being outside of my life, or yours.   
   
 Paul tells us: *"You have died, and your life is hid with Christ in God. When Christ who is our life appears, you will appear with him in glory."* ([Col. 3:3,4](https://www.biblegateway.com/passage/?search=Colossians+3:3,4&version=KJV)) Here we see Paul equating your life with Christ. You are alive now, so what does Paul mean when he claims you have died? All of Paul’s letters equate death with a sleep so profound the past is forgotten. It is from the sleep of death he urges you to roust yourself from saying: *"[Awake O sleeper](/lectures/awake-o-sleeper) and rise from the dead."*   
@@ -84,7 +86,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Revelation of the Risen Christ
 - The teaching is about the Christ who has risen and lives within each individual.
 - The idea is that the individual's life is hidden with Christ in God.

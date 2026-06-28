@@ -1,3 +1,5 @@
+# The Free Man
+
 Paul was the first man in history to be set free. His letters, forming a quarter of the New Testament, were written approximately thirty years prior to the four gospels, Matthew, Mark, Luke, and John. His 1st letter, chronologically speaking, was to the Galatians and began in this manner: *"Paul, an apostle - not from men nor through man, but through [Jesus Christ](/lectures/jesus-christ) and God the Father who raised him from the dead."* That statement, if understood, tells the entire story of salvation.
 
 An apostle is one who is sent on a mission. Paul's mission was to tell the story of salvation from experience. In this same first chapter he makes this confession: *"I will have you know, brethren, that I did not receive this from man, it came through a revelation of Jesus Christ."*
@@ -88,7 +90,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Paul's Mission and Revelation
 - Paul was the first man in history to be set free and his letters in the New Testament tell the story of salvation.
 - He received a revelation of Jesus Christ, which made him question the traditional understanding of the story.

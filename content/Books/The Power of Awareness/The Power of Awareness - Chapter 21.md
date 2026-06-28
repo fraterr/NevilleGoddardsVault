@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 21
+
 The question is often asked, *“What should be done between the Assumption of the wish fulfilled and its realization?”* Nothing. It is a delusion that, other than assuming the feeling of the wish fulfilled, you can do anything to aid the realization of your desire. You think that you can do something, you want to do something; but actually you can do nothing. The illusion of the free will to do is but ignorance of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) upon which all action is based. Everything happens automatically. All that befalls you, all that is done by you happens. Your assumptions, conscious or unconscious, direct all thought and action to their fulfillment. To understand the law of Assumption, to be convinced of its truth, means getting rid of all the illusions about free will to act. Free will actually means freedom to select any idea you desire. By assuming the idea already to be a fact, it is converted into reality. Beyond that, free will ends and everything happens in harmony with the concept assumed.
 
 I can of mine own self do nothing... because I seek not mine own will, but the will of the Father which hath sent me.
@@ -33,7 +35,6 @@ The important thing to bear in mind is that you have infinite free will in choos
 
 
 ## Summary
-
 ### Do Nothing Between Assumption and Realization
 
 Nothing besides assuming the wish fulfilled can aid its realization.

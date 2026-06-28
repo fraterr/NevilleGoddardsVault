@@ -1,3 +1,5 @@
+# Whom Do You Seek
+
 The Bible, from beginning to end, is the vision of the Lord God Jehovah, yet the message given there can be applied in a most practical manner.
 
 In two weeks the Western world will be told the story of Good Friday. They will hear of a man who was in a garden with those who believe him, when a band of soldiers came looking for a certain person. Then it is said: *"Knowing what was to befall him, Jesus came forward and said, 'Whom do you seek?' and they answered, 'Jesus of Nazareth.' Then he said to them, 'I am.' (The pronoun "*he*" is not in the original manuscript.) When they heard that, they drew back and fell to the ground. Again he asked, 'Whom do you seek?' and again they replied, 'Jesus of Nazareth,' and he said, 'I told you that I am; so if you seek me, let these men go.'"*
@@ -54,7 +56,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Jesus of Nazareth, the I AM
 - The story of Jesus in the garden reflects the concept of the I AMness.
 - The name "Jesus" means "I am" and represents the revelation of God's name, "Jehovah the Lord".

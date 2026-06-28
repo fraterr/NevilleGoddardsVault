@@ -1,3 +1,5 @@
+# God Only Acts
+
 You may ask how can a mortal man, born as we were born and who will die as we all will die, know that God only acts, but I tell you I know it from experience. I have experienced the Word of God and tonight I will tell you how I know that God and God only, acts.  
   
 The name of God is the key to understanding the biblical doctrine of God. In biblical terms the question is asked, 'Does God exist? Who is our God? What is his name and what is his son's name?' For Israel, the personal name of God is I AM. Although I read that statement in scripture, I did not know it until it was revealed to me through experience.  
@@ -70,7 +72,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God Only Acts
 
 - The author claims to know from personal experience that God only acts.

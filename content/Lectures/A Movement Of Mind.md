@@ -1,3 +1,5 @@
+# A Movement Of Mind
+
 In the 33rd chapter of [the Book of Job](/lectures/the-book-of-job) we are told that [God speaks to man](/lectures/god-speaks-to-man) in two ways, but man does not perceive them. It is said: *"In a dream, in a vision of the night when deep sleep falls upon men while they slumber on their beds, he opens the ears of men and seals their instructions."* Tell that to a psychiatrist and, because he separates the dreamer from God, he will tell you that all Dreams come from the individual dreamer and not from God. But I tell you: God’s eternal name is I AM, and if I asked who is dreaming the dream would the individual not say, *"I am?"* And are we not told that that is God’s name forever and ever? 
 
 You cannot separate the dreamer from God, and all Dreams proceed from Him. Some are simple and need no interpretation, while others are revealed in a symbolic language and need an interpreter, as told us in the story of Joseph. His true identity is revealed when he looked into the faces of those who had had a dream and saw they were disturbed, for he said: *"Do not interpretations belong to God? Tell me your dream."* Then he interpreted the Dreams of the butler, the baker, and even Pharaoh himself, and they all came to pass just as he had said they would. Now, if only God can interpret a dream, why tell Joseph? Because he is a personification of God. His name was changed from Joseph (meaning *"salvation"*) to Joshua, which means *"Jehovah is salvation."* 
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God Speaks in Dreams
 
 - God speaks to man in Dreams and visions from the depth of man's own being

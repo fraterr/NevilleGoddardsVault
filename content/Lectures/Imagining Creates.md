@@ -1,3 +1,5 @@
+# Imagining Creates
+
 The creator of the world works in the depth of your soul, underlying all of your faculties, including perception and streams into your surface mind least disguised in the form of creative fancy. Watch your thoughts, and you will catch Him in the act of creating, for He is your very Self. Every moment of time you are imagining what you are conscious of, and if you do not forget what you are imagining and it comes to pass, you have found the creative cause of your world. 
 
 Because God is pure imagination and the only creator, if you imagine a state and bring it to pass, you have found Him. Remember: God is your consciousness, your
@@ -99,8 +101,7 @@ When you imagined being secure did you forget the feeling? Are you imagining you
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Imagination as the Creator
 - The creator of the world works within the depths of our souls, underlying all of our faculties.
 - God is pure imagination and the only creator.

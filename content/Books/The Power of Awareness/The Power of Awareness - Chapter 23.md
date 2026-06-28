@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 23
+
 It will be extremely helpful at this point to cite a number of specific examples of the successful application of this law. Actual case histories are given. In each of these, the problem is clearly defined and the way imagination was used to attain the required state of consciousness is fully described. In each of these instances, the author of this book was either personally concerned or was told the facts by the person involved.
 
 Case Study 1
@@ -133,7 +135,6 @@ The building being subject to rent control, their rental was just about what the
 
 
 ## Summary
-
 ### Persisting in Imagination and Feeling
 
 The soldier persisted in imagining himself honorably discharged and at home every night until his Assumption hardened into fact.

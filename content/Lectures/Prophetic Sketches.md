@@ -1,3 +1,5 @@
+# Prophetic Sketches
+
 The stories recorded in the Bible are prophetic sketches of events predestined to take place in the individual you! 
 
 We are told in the seventh chapter of John: *"We know where this man comes from, yet we are told that when the Christ appears no one will know where he comes from."* Speaking of the Father and the higher realm to which he now belongs, Jesus says: *"A time will come when I will no longer speak to you in parables, but tell you plainly of the Father."* Trying to convince man of man's own Fatherhood from which he came and to which he will return, Jesus said: *"I came out from the Father and I have come into the world. Again I am leaving the world and returning to the Father."* Now, where does he speak plainly? In the 14th chapter of John, saying: *"He who sees me has seen the Father,"* and in the 10th [chapter] of John, when he states: *"I and the Father are one."*
@@ -64,7 +66,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Bible: Prophetic Sketches
 - The stories in the Bible are prophetic sketches of events that will happen in the individual
 - Jesus speaks of the Father and the higher realm, stating that he will eventually speak plainly about the Father

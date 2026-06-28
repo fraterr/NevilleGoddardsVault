@@ -1,3 +1,5 @@
+# Salvation History
+
 It is God's purpose to give himself to you as though there were no other! And when He does, it will not be you and God, but you as God! Although it seems impossible for the God who created the universe and all within it, to give himself to one who is born in time and will die in time, it is true.
 
 Ask a devoted Christian who knows his Bible if he believes in [Jesus Christ](/lectures/jesus-christ) and thinks of him as the Lord; he will answer, Yes. Ask him if he believes that Jesus was referring to the creator of the universe, when he said: *"I and my Father are one, and when you see me you have seen the Father,"* and again he will agree.
@@ -79,7 +81,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God's Purpose to Give Himself
 - God's purpose is to give himself to individuals and for them to become one with him.
 - This may seem impossible, but it is true according to the Bible and the words of Jesus Christ.

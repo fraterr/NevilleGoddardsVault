@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 27
+
 *"Never wouldst Thou have made anything if Thou hadst not loved it."* ([Wisdom 11:24](https://www.biblegateway.com/passage/?search=Wisdom+11:24&version=KJV)).
 
 IN ALL creation, in all eternity, in all the realms of your infinite being the most wonderful fact is that which is stressed in the first chapter of this book. You are God. You are the *“I am that I am.”* You are consciousness. You are the creator. This is the mystery, this is [the great secret](/lectures/the-great-secret) known by the seers, prophets, and mystics throughout the ages. This is the truth that you can never know intellectually. Who is this you? That it is you, John Jones or Mary Smith, is absurd. It is the consciousness which knows that you are John Jones or Mary Smith. It is your greater self, your deeper self, your infinite being. Call it what you will. The important thing is that it is within you, it is you, it is your world. It is this fact that underlies the immutable law of Assumption. It is upon this fact that your very existence is built. It is this fact that is the foundation of every chapter of this book. No, you cannot know this intellectually, you cannot debate it, you cannot substantiate it. You can only feel it. You can only be aware of it.
@@ -11,7 +13,6 @@ Our deepest feelings are precisely those we are least able to express, and even 
 
 
 ## Summary
-
 ### You Are God
 
 Greatest fact you are the I AM, consciousness, the creator.

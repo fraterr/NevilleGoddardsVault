@@ -1,3 +1,5 @@
+# Feel Deeply
+
 What you feel deeply is far more important than what you are thinking. You may think about doing something for a long time and never do it, but when you feel something deeply you are spurred to act - and God acts! He who is the cause of all life acts through the sense of feeling. You can think of a thousand things, yet not be moved to act upon one of them. A deep conviction - felt, is far more important than anything you could ever think.
 
 Let us turn to the first chapter of the epistle of James. *"Ask in faith with no doubting, for he who doubts is like the wave of the sea that is driven and tossed by the wind. Let not that person believe that a double-minded man, unstable in all his ways, shall receive anything from the Lord. But be ye doers of the word and not hearers only, deceiving yourself. For if you are a hearer only and not a doer, you are like a man who observes his natural face in the mirror and then goes his way, forgetting what he is like. But if you are a doer of the word and not just a forgetful hearer, you will look into the perfect law of liberty, and persevere. That man shall be blessed in all his doings."*
@@ -58,7 +60,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Feeling deeply is more important than thinking
 - Feelings spur action, while thoughts may not
 - Deep conviction is more important than mere thoughts

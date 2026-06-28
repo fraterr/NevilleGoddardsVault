@@ -1,3 +1,5 @@
+# The Mystery Of Life
+
 The words of one in whom [the great mystery](/lectures/the-great-mystery) of life unfolded, are enigmatic. And the evangelist who wrote the gospels, kept that great mystery as it was told. In the 17th chapter of the Book of John, he is speaking to God the Father, the depth of himself, saying: *"Now I am no more in the world, but they are in the world and I am coming to thee. Holy Father, keep in thy name that which thou hast given to me that they may be one, even as we are one."* (The only name that can bind us together and make us one is Father. When you and I discover that we really are the Father, we will understand the mystery of life.) Now he makes this statement: *"I have guarded them and none is lost but the son of perdition that the scripture might be fulfilled."* 
 
 Bear in mind, this is not secular history, but [salvation history](/lectures/salvation-history); so who is this son of perdition that is lost? Scholars claim it is one called Judas, but that is not true. If you want to get close to the answer, read the 18th Psalm, which is repeated in the 22nd chapter of 2 Samuel. This is a hymn David sings, praising the Lord for saving him from death and destruction. And the word *"perdition"* means *"death and destruction."* 
@@ -112,7 +114,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Mystery of Life Unfolded by One
 In the 17th chapter of the Book of John, the evangelist speaks of the great mystery of life, referring to God the Father and the oneness that can be achieved through Him. The son of perdition, referred to in the scripture, is not an individual such as Judas, but rather one who rejects the Christian revelation.
 

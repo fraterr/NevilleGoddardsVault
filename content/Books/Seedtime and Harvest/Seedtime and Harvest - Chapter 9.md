@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 9
+
 *“And with many such parables spake he the word unto them, as they were able to hear it. But without a parable spake he not unto them: and when they were alone, he expounded all things to his disciples.”*  
 ([Mark 4:33](https://www.biblegateway.com/passage/?search=Mark+4:33&version=KJV), 34)
 
@@ -41,7 +43,6 @@ Transforms me into God.”
 
 
 ## Summary
-
 ### Bible's Parables Reveal Mind's Laws
 
 - Bible parables symbolically reveal laws and purpose of mind

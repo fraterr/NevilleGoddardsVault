@@ -1,3 +1,5 @@
+# Your Husband
+
 Probably one of the most misunderstood verses in the Bible is recorded in the 3rd chapter of Genesis, the 16th verse: *"The Lord said to the woman, I will greatly multiply your sorrow and in pain you shall bring forth children, yet your desire shall be for your husband and he shall rule over you."*
 
 In this fabulous world of ours, many accept this statement literally and believe that the children spoken of here come from the womb of woman and the male is the husband and ruler; however in the 54th chapter of Isaiah, you are told: *"[Your Maker](/lectures/your-maker) is your husband, the Lord of hosts is his name."*
@@ -68,7 +70,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Misunderstood Bible verse in [Genesis 3:16](https://www.biblegateway.com/passage/?search=Genesis+3:16&version=KJV)
 - Many interpret this verse literally, assuming it refers to childbirth and male dominance.
 - However, in [Isaiah 54](https://www.biblegateway.com/passage/?search=Isaiah+54&version=KJV), it is revealed that God is the husband of all humanity.

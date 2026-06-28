@@ -1,3 +1,5 @@
+# A Prophecy
+
 In his poem called *"Europe,"* which is a prophecy about you, William Blake said: *"Then Enitharmon woke, nor knew that she had slept, and eighteen hundred years were fled as if they had not been."* 
 
 Told in the form of a story, Blake used the name *"Enitharmon"* to express any emanating desire or image. Enitharmon is the emanation of Los, who - in the story - had the similitude of the Lord and all imagination. Entering into his image (his Enitharmon), Los Dreams it into reality; and when he awoke he knew not that he had slept, yet eighteen hundred years had fled. 
@@ -99,7 +101,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God Enters His Image
 
 - God falls in love with his image, enters it and Dreams it into reality

@@ -1,3 +1,5 @@
+# Your Supreme Dominion
+
 As you have been told, this morning's subject is *"Your Supreme Dominion"*. As a man does not possess it or he does not know that he possesses it for he certainly is not exercising it. As we read in the very first chapter of the Book of Genesis, *"And God made man in His own image, in the image of God made He him. He made them male and female, and God blessed them."* And God said unto them, *"Be fruitful and multiply and replenish the earth, and subdue it and have dominion over all the fish of the sea and all the fowls of the air, and every moving thing that moves upon the earth. And God saw all that He had done, all that He had done, all that He had made, and they were very good."*
 
 Now, you and I reading the Bible, not knowing it to be a psychological truth and seeing it as historical fact, we cannot understand the word. But when man knows the Bible is the greatest collection of psychological truths and was never intended to be seen as history or cosmology, then he gets a glimpse into this great wonderful book. For man himself is the great psychological earth that must be subdued. In man move all the passions, all the great emotions symbolized as creeping things and animals. In the deep of man actually live the invisible states symbolized as fish. In the deep of man actually live all the unnumbered infinite ideas symbolized as the fowls of the air. It is this man that must be self subdued, for subdue it, then comes the promise and have dominion over this vast wonderful country that is man. If man does not know that he himself is the earth spoken of, he thinks he must go out into the world and conquer it. The world reflects the work done on man. And so when he looks upon this wonderful world round about him, he thinks himself so little.
@@ -52,7 +54,6 @@ If you remain in that state, you are told in the Bible three days, you will be *
 
 
 ## Summary
-
 ### "Your Supreme Dominion"
 
 - The Bible teaches that man was created in the image of God and given dominion over the earth.

@@ -1,3 +1,5 @@
+# Out of this World - Chapter 4
+
 *"And for their sakes I sanctify myself, that they also might be sanctified through the truth."* ([John 17:19](https://www.biblegateway.com/passage/?search=John+17:19&version=KJV))
 
 The ideal we serve and strive to attain could never be evolved from us were it not potentially involved in our nature.
@@ -47,7 +49,6 @@ There is nothing to change but our concept of self. As soon as we succeed in tra
 
 
 ## Summary
-
 ### The Ideal Comes From Within
 
 - The ideal we strive for is latent in our own nature, not externally imposed.

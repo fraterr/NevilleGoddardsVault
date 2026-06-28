@@ -1,3 +1,5 @@
+# The Bible's Mystery
+
 Think of this fabulous world as a play filled with horrors, violence, and fear, from which there seems to be no escape. Then think of the play as coming to its end as one man is called, incorporated into the body of the play's author and sent back to tell what he heard, what he saw and felt. This is the story of salvation.
 
 Our New Testament finds each author claiming to be an apostle, to be one who is sent - yet they are all anonymous. Matthew, Mark, Luke, and John are not mentioned in any contemporary work of the time these gospels were supposed to have been written; but each author, although unknown physically, claims to have had the experience of being called and sent. And they shared with us what they heard, what they saw and experienced. 
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Story of Salvation
 - The New Testament authors claim to be apostles, despite being anonymous.
 - Paul shares his experience of being caught up into the third heaven.

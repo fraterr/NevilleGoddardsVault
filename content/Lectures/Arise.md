@@ -1,3 +1,5 @@
+# Arise
+
 When our great scientist, Dr. Robert Millikan was young and very poor he set a goal for himself. Condensing his dream of greatness and security into a simple statement, he silently repeated the thought over and over again. This he did until the feeling of greatness and security crowded all other thoughts out of his consciousness. These are his words: 'I have a lavish, steady, dependable income, consistent with integrity and mutual benefit'  
   
 As I have said repeatedly, everything depends upon your attitude towards yourself! That which you will not affirm as true of yourself cannot develop in your life!  
@@ -46,7 +48,6 @@ Character is largely the result of the direction and persistence of voluntary ac
 
 
 ## Summary
-
 ### Dr. Robert Millikan's Goal
 - When he was young and poor, Dr. Millikan set a goal for himself.
 - He repeated his goal silently until it crowded out other thoughts.

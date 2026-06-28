@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 14
+
 *"In whom also ye are circumcised with the circumcision made without hands; in putting off the body of the sins of the flesh by circumcision of Christ"* ([Col. 2:11](https://www.biblegateway.com/passage/?search=Colossians+2:11&version=KJV))
 
 Circumcision is the operation which removes the veil that hides the head of creation. The physical act has nothing to do with the spiritual act. The whole world could be physically circumcised and yet remain unclean and blind leaders of the blind. The spiritually circumcised have had the veil of darkness removed and know themselves to be Christ, [the light of the world](/lectures/the-light-of-the-world).
@@ -16,7 +18,6 @@ Jesus is called the Lord. You are told that the Lord’s name is I AM — Jesus.
 
 
 ## Summary
-
 ### Circumcision Reveals Truth
 
 Spiritual circumcision removes the veil hiding your true identity as the light of the world.

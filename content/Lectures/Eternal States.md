@@ -1,3 +1,5 @@
+# Eternal States
+
 Sit quietly and ask yourself who you are, where you are and what you are. Your answers will reveal your state of consciousness: your body of belief. Paul said, *"We do not look to the outer things, but to the things unseen, for the outer things are transient, but the unseen things are eternal."* Your beliefs, seen by the mystic, are personified. They form a state, which completely controls your behavior. Any modification within your body of belief will result in a change in your outer world.   
   
 Blake tells us, *"Eternity exists and all things in eternity independent of creation which was an act of mercy. By this you will see that I do not consider either the just or the wicked to be in a supreme state, but to be everyone of them states of the sleep which the soul may fall into in its deadly Dreams of good and evil when it leaves paradise following the serpent."*   
@@ -36,7 +38,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ###  State of Consciousness and Behavior
 - Your state of consciousness, or your body of belief, shapes your behavior.
 - Modifying your beliefs will result in a change in your external world.

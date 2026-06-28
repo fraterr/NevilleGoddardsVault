@@ -1,3 +1,5 @@
+# The Coin Of Heaven
+
 This being my last Sunday for a year, I wish to leave no doubt in your mind of what I tried to tell you in the last nineteen lectures. So I am going to ask a question which you can silently answer yourself. Have you lived this life of yours in such a way that you desire to live it again? Well, if you haven't, you'd better listen very carefully to what I will say this morning, if you have not already started, for may I tell you the next life is this life. When the eye is opened you will see it, that man unless he awakes and changes the tracks of this life he walks them forever. So if you have not lived this life in such a way that you really desire to live it again, you start now to interfere with these tracks and laying new tracks.
 
 Let me give you just one simple little vision; these are all true visions of the speaker. Lying on my bed, suddenly the eye opened, the inner eye opened, and I saw a man casually dressed in working clothes walking the sidewalks of a major city. As he came to a hole that was open to receive coal, in fact the coal had just been delivered, he dropped something from his hand and bending down instead of picking up the thing dropped, he picked up huge hunks of coal that were scattered around the hole, and then my vision relaxed. When I re-concentrated the vision it was on the early part of that scene of the man walking down the sidewalk. He came to the manhole, he dropped, as he had in the previous state, bending down he picked up the coal as he had done before. Everything was in detail. As I saw it for the second time, I said *"Now that scene hasn't changed one iota."* My attention again relaxed; when I re-concentrated it, it was on the early part of the scene. Now I could prophesy for that man; I knew exactly what he would do every moment of time right up to that manhole; that he would drop his package and not pick it up but pick up the coal. I knew he would look into that manhole and then change his mind either because someone below saw him pick it up and he didn't want the consequences of his action or else he had a change of heart, but I knew in detail what that man would do.
@@ -56,7 +58,6 @@ And now my time is up.
 
 
 ## Summary
-
 ### The next life is this life
 - If you have not lived your life in a way that you desire to live it again, you need to start interfering with the tracks and laying new ones.
 - The tracks we walk are forever and by the curvature of time, our next life is this life replayed.

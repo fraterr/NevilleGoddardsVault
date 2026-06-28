@@ -1,3 +1,5 @@
+# My Word
+
 *"My word that goes forth from my mouth shall not return to me empty, but shall accomplish that which I purpose and prosper in the thing for which I sent it."* ([Isaiah 55](https://www.biblegateway.com/passage/?search=Isaiah+55&version=KJV)) This is the same word recorded in the Book of John as: *"In the beginning was the word and the word was with God and the word was God. The word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) The Revised Standard Version of the Bible has mistranslated the preposition *"in"* to read *"among"* as the word, becoming flesh, dwells in us. Notice John used the plural "us', for it was not a person the word assumed, but the nature of being a person. The word assumed human nature, to become the mold upon which the pattern is molded. 
 
 In the beginning the word was with God and was God. The Greek word *"logos"* (translated *"word"*) means *"pattern, that which gives meaning, a plan."* In the beginning there was a plan called [Jesus Christ](/lectures/jesus-christ). He is [the pattern man](/lectures/the-pattern-man), who took upon himself human nature to become the mold upon which our nature is being formed. The word did not become an individual called John, Neville, Peter, or Grace - but human nature, so that when his work is finished in an individual, he will say: *"I am He."*
@@ -37,7 +39,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Word and its Purpose
 
 - The word from the mouth of God does not return empty, but accomplishes its purpose.

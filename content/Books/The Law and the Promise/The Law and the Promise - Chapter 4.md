@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 4
+
 *"The distinction between what is real and what is imaginary is not one that can be finally maintained... all existing things are, in an intelligible sense, imaginary."* — John S. MacKenzie
 
 [There is no fiction](/lectures/there-is-no-fiction). If an imaginal activity can produce a physical effect, our physical world must be essentially imaginal. To prove this would require merely that we observe our imaginal activities and watch to see whether or not they produce corresponding external effects. If they do, then we must conclude that there is no fiction. Today's imaginal drama — fiction — becomes tomorrow's fact.
@@ -117,7 +119,6 @@ Imagine better than the best you know.
 
 
 ## Summary
-
 ### Imagining Creates Reality
 
 Imagination transforms fiction into fact. Observe imaginal activities producing effects to know reality is imaginal. Today's drama becomes tomorrow's reality.

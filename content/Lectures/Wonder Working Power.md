@@ -1,3 +1,5 @@
+# Wonder Working Power
+
 You have within you a wonder working power! To understand this power, let us turn to the Book of Joshua, where we are told: *"Wherever the sole of your foot shall tread, I have given you."* The Hebrew form of the word *"Joshua"* is Yad He Vav [corr. Yod Hey Vav Shin Hey, pron. Ye-ho-SHOO-ah] and means, *"Jehovah saves"*. So you see, Joshua is not promising another, but himself!
 
 Jehovah leads the dance of life. We are his dancers, yet his very self; for God and his eternal name is one I AM. There is no place you can go and not know that you are! You may suffer from amnesia and not know who you are or where you are, but you know that you are; so without voicing it you are saying I AM! That's God. There is no place where God is not and there is nothing that God is not; for if there is something, it has to be God!
@@ -75,8 +77,7 @@ That is how you move from one state to another until you reach the state called 
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The Wonder Working Power
 - The Book of Joshua reveals that each person possesses a wonder working power.
 - The name "Joshua" means "Jehovah saves" and represents the individual themselves.

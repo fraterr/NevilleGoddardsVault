@@ -1,3 +1,5 @@
+# Feeling is the Secret - Chapter 4
+
 *"NOT by might, nor by power, but by my spirit, saith the Lord of hosts"* ([Zechariah 4:6](https://www.biblegateway.com/passage/?search=Zechariah+4:6&version=KJV)). Get into the spirit of the state desired by assuming the feeling that would be yours were you already the one you want to be. As you capture the feeling of the state sought, you are relieved of all effort to make it so, for it is already so. There is a definite feeling associated with every idea in the mind of man. Capture the feeling associated with your realized wish by assuming the feeling that would be yours were you already in possession of the thing you desire, and your wish will objectify itself.
 
 Faith is feeling, *"According to your faith (feeling) be it unto you"* ([Matthew 9:29](https://www.biblegateway.com/passage/?search=Matthew+9:29&version=KJV)). You never attract that which you want, but always that which you are. As a man is, so does he see. *"To him that hath it shall be given and to him that hath not it shall be taken away..."* ([Matthew 13:12](https://www.biblegateway.com/passage/?search=Matthew+13:12&version=KJV); 25:29; [Mark 4:25](https://www.biblegateway.com/passage/?search=Mark+4:25&version=KJV); [Luke 8:18](https://www.biblegateway.com/passage/?search=Luke+8:18&version=KJV); 19:26). That which you feel yourself to be, you are, and you are given that which you are. So assume the feeling that would be yours were you already in possession of your wish, and your wish must be realized.
@@ -11,7 +13,6 @@ When a man believes in the value of the advice given him and applies it, he esta
 
 
 ## Summary
-
 ### Spiritual Feeling
 
 - Achieve desires by feeling as if they are fulfilled, not effort.

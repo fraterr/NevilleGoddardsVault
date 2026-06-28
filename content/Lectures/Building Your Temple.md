@@ -1,3 +1,5 @@
+# Building Your Temple
+
 William Blake, in his poem *"The Four Zoas: a Dream of Nine Nights,"* tells of God’s fall into division and his resurrection to unity - his fall into generation, decay, and death and his resurrection into the unity of the one Father. Associating his poem with the 6th chapter of Ephesians, the 12th verse, he states: *"We wrestle not with flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in heavenly places."* So we see that the fall into division and the resurrection into unity is mental.  
   
 From beginning to end, the Bible speaks of a certain temple that is being constructed. And every day we are building our temple for the dwelling place of God the Father. In the 2nd chapter of the Book of Ephesians, we are told: *"The whole structure is joined together and grows into a holy temple in the Lord; in whom you also are built into it as a living structure of God in the Spirit."* In other words, as you bring your building and I bring mine, we are fitted together as living stones in the building of God.  
@@ -40,7 +42,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God's Fall and Resurrection into Unity
 - William Blake's poem "The Four Zoas: a Dream of Nine Nights" describes God's fall into division and his resurrection into unity.
 - The fall and resurrection are mental processes, as stated in the 6th chapter of Ephesians, verse 12.

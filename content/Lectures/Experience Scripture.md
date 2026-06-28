@@ -1,3 +1,5 @@
+# Experience Scripture
+
 To unravel the mystery of Christ from all the interpretations put upon it is quite a different task. We are up against all kinds of misunderstandings of the mystery. Most people believe that it is secular history, and the story has something to do with some historical occasion; and it isn’t. It is [salvation history](/lectures/salvation-history). The whole thing is taking place in you, the individual. It’s not taking place on the outside at all. But how to convince men that this is true? Well, tonight we will try. I will try to explain what I know from my own experience. The story is told of Christ; and the term called *"Son of Man"* is a term used most to describe the Christ, the Messiah.
 
 We are told in the Book of Daniel: *"And on like a son of man came to the Ancient of Days, and was presented before him, and he was given dominion and glory and kingdom."* [[Daniel 7:13](https://www.biblegateway.com/passage/?search=Daniel+7:13&version=KJV)]
@@ -168,7 +170,6 @@ Now that is what I mean by how difficult it is to take the mystery of Christ and
 
 
 ## Summary
-
 ### Unraveling the Mystery of Christ
 - The mystery of Christ is often misunderstood as secular history, but it is actually salvation history.
 - The story of Christ takes place within the individual, not on the outside.

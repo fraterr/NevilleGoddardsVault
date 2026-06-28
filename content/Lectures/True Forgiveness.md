@@ -1,3 +1,5 @@
+# True Forgiveness
+
 Tonight we will take two aspects of [the great mystery](/lectures/the-great-mystery): true forgiveness, and the immortal eyes which see into eternity.
 
 "He said to them, 'When two or three are gathered together in my name, there I am in the midst of them.' Then Peter said, 'Lord, how often shall my brothers sin against me and I forgive them?' and the answer came, 'Seventy times seven.' The art of forgiveness must be practiced daily, but first we must learn how to forgive. Repentance and faith are conditions of forgiveness, but true forgiveness is forgetfulness. Christianity and its doctrines make no sense to the worldly-wise, so why are people Christians? The promise that the dead will rise doesn't make sense to the mortal mind when the body is cremated and burned to ash; yet only by believing the story of redemption, can you truly forgive. You must learn to distinguish between the eternal human who occupies a state, and the state itself. This is the only means to forgiveness.
@@ -44,7 +46,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### True Forgiveness
 
 - The art of forgiveness must be practiced daily.

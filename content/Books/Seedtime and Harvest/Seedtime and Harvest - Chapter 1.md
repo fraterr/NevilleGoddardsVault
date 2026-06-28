@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 1
+
 *"I Give you the end of a golden string; 
 Only wind it into a ball, 
 It will lead you in at Heaven's gate, 
@@ -34,7 +36,6 @@ This realm, this Eden - your imagination - is vaster than you know and repays ex
 
 
 ## Summary
-
 ### Understanding the Bible and Realizing Dreams
 
 - Essays indicate approaches to understanding the Bible and realizing Dreams

@@ -1,3 +1,5 @@
+# The Rock
+
 In the 32nd chapter of the Book of Deuteronomy, we are told: *"The rock, his work is perfect."* Then this question is asked: *"Is he not your father who created you? Separating the sons of men, he fixed bounds to the people according to the number of the Sons of God."* Today there is much talk about curtailing the population explosion. This we will never do, for the bounds are already recorded.
 
 Not one child could be born were it not for a son of God giving it life. For it is the sons of God who become the perfect Rock. In the Book of Psalms, it is said: *"I will behold thy face in righteousness and I will be satisfied when I awaken with thy likeness."* Although it is hard to believe that the Rock could be God, it is true, for the Rock is the only foundation, and no other foundation can anyone lay than that which is made, which is Christ.
@@ -103,7 +105,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Perfect Rock
 - The 32nd chapter of the Book of Deuteronomy mentions the idea of the perfect rock and how it symbolizes God's work.
 - The rock represents the foundation and the only true foundation is Christ.

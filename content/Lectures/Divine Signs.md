@@ -1,3 +1,5 @@
+# Divine Signs
+
 Those raised in the Christian or Jewish faith are taught to believe that scripture is secular history. But I know that the story of Jesus, from his conception by the Holy Spirit to his ascension into heaven, is a sign rendered by God to those who will receive it.  
   
 The visions of the Old and New Testament are unchanged, eternal realities, which are forever. One day you will encounter what appears on paper to be a person, but he will be a state of consciousness, personified.   
@@ -84,7 +86,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Story of Jesus as a Divine Sign 
 - The story of Jesus, from his conception to his ascension, is a sign from God.
 - The visions in the Old and New Testament are eternal realities that one will encounter.

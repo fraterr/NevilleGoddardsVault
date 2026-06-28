@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 7
+
 *"... be ye therefore wise as serpents, and harmless as doves."* ([Matthew 10:16](https://www.biblegateway.com/passage/?search=Matthew+10:16&version=KJV))
 
 The serpent's ability to form its skin by ossifying a portion of itself, and its skill in shedding each skin as it outgrew it, caused man to regard this reptile as a symbol of the power of endless growth and self-reproduction. Man is told, therefore, to be *"wise as the serpent"* and learn how to shed his skin - his environment - which is his solidified self; man must learn how to *"loose him, and let him go"* . . . how to *"put off the old man"* . . .how to die to the old and yet know, like the serpent, that he *"shall not surely die"*.
@@ -114,7 +116,6 @@ There was her father. As she embraced him, she remembered her first imaginary ac
 
 
 ## Summary
-
 ### Be Wise as Serpents
 
 - Serpents shed skin and grow; man must shed his environment and grow

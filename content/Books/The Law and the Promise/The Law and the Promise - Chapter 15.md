@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 15
+
 In all I have related thus far — with the exception of G.B.'s Vision of the Child —imagination was consciously exercised. Men and women created stage plays in their imagination, plays implying the fulfillment of their desires. Then, by imagining themselves participating in these dramas, they created that which their imaginal acts implied.
 
 This is the wise use of God's Law. But *"No man is justified before God by the Law"*, ([Gal. 3:11](https://www.biblegateway.com/passage/?search=Galatians+3:11&version=KJV))
@@ -147,7 +149,6 @@ The Promise is still maturing to its time, its appointed time, but how long, vas
 
 
 ## Summary
-
 ### Imagination and Desire
 
 - People consciously create imaginative stage plays representing wish fulfillment, then participate in the dramas to manifest desires.

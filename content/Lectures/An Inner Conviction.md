@@ -1,3 +1,5 @@
+# An Inner Conviction
+
 I tell you that imagination creates reality and I ask you to imagine a state, any state, which would imply the fulfillment of your desire. It doesn’t really matter what anyone else thinks; it’s what you think that matters to you! If you create a scene which implies the fulfillment of your desire and dwell in it until you have an inner conviction that it is real, what does it matter what another thinks?  
   
 In the Book of Habakkuk (which means *"to embrace"*) the prophet speaks to the Lord as: *"Thou who art of purer eyes than to behold evil."* Then he asks the question: *"Why are you silent when the wicked swallows up the righteous? I will take my stand upon the watchtower, to see and hear what people say to me and what I will answer."* Now the Lord speaks, saying: *"Write the vision plain upon the tablets so that he who runs may read it. For the vision has its own appointed hour; it ripens and it will flower. If it be long, then wait, for it is sure and it will not be late."*  
@@ -58,7 +60,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Imagination creates reality
 - The important thing is what you think, not what others think
 - Create a scene that implies the fulfillment of your desire and dwell in it until you have an inner conviction that it is real

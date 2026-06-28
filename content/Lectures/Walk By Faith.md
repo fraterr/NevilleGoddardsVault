@@ -1,3 +1,5 @@
+# Walk By Faith
+
 Blake asked the question: *"Why is it that the Bible is more entertaining and instructive than any other book? Is it not because it is addressed to the Imagination, which is [spiritual sensation](/lectures/spiritual-sensation), and only immediately to the understanding, or reason?"* 
 
 The one book, called the Bible, is composed of sixty-six books. Take this challenge. Read each book as though the depth of your soul is speaking to your surface mind. As though the ineffable Imagination is speaking to the human Imagination, and not to your immediate understanding or reasoning mind. 
@@ -70,7 +72,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of Imagination
 - The Bible is more entertaining and instructive because it speaks to the Imagination.
 - The Bible is composed of sixty-six books, and each should be read as if the depth of the soul is speaking to the surface mind.

@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 14
+
 *"The natural man does not receive the gifts of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned."* ([1Cor. 2:14](https://www.biblegateway.com/passage/?search=1+Corinthians+2:14&version=KJV).)
 
 *"There is a Moment in each Day that Satan cannot find, Nor can his Watch Fiends find it; but the Industrious find This Moment & it multiply, & when it once is found It renovates every Moment of the Day if rightly placed."* (William Blake)
@@ -64,7 +66,6 @@ But Imagination seeks from us something much deeper and more fundamental than cr
 
 
 ## Summary
-
 ### A daily creative moment renews all moments
 
 Satan never acts, only reacts. Find the moment. In it, spiritual work is done.

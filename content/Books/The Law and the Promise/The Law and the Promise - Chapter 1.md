@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 1
+
 *"Man is all Imagination. God is Man and exists in us and we in Him... The Eternal Body of Man is the Imagination, that is, God, Himself"* (William Blake)
 
 The purpose of the first portion of this book is to show, through actual true stories, how [imagining creates](/lectures/imagining-creates) reality.
@@ -95,7 +97,6 @@ To make such a claim is easily done. To prove it in the experience of others is 
 
 
 ## Summary
-
 ### Imagining Creates Reality
 
 - Imagining creates reality, proven by performance

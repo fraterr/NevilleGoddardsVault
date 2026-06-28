@@ -1,3 +1,5 @@
+# The Awakening Of Faith
+
 Those who experience the Christian mystery are charged with the responsibility of telling others. Their aim is the awakening of [faith in God](/lectures/faith-in-god). For, as Paul, I ask the question: *"How can men call upon him in whom they have not believed? And how can they [believe in him](/lectures/believe-in-him) of whom they have never heard? And how can they hear unless there is a preacher? And how can men preach unless they are sent? As it is written, 'How beautiful are the feet of those who preach good news!' But not all have heeded the gospel, for Isaiah says, 'Who, O Lord, has believed what he has heard from us?' So, faith comes from what is heard, and what is heard comes from the preaching of Christ."* 
 
 Now Christ is not a person outside of you who lived 2,000 years ago. Christ is the cosmic being who became humanity by burying himself in every child born of woman. Ask the average person if they believe in God and many of them will say, Yes. But when asked to define Him, they will describe someone other than themselves. So, *"How can men call upon one in whom they do not believe?"* 
@@ -54,7 +56,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Responsibility of Sharing the Christian Mystery
 - Those who experience the Christian mystery are responsible for sharing it with others.
 - The aim is to awaken faith in God.

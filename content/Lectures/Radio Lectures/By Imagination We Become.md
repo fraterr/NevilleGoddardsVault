@@ -1,3 +1,5 @@
+# By Imagination We Become
+
 How many times have we heard someone say, *"Oh, it’s only his imagination?"* Only his imagination - man’s imagination is the man himself. No man has too little imagination, but few men have disciplined their imagination. Imagination is itself indestructible. Therein lies the horror of its misuse. Daily, we pass some stranger on the street and observe him muttering to himself, carrying on an imaginary argument with one not present. He is arguing with vehemence, with fear or with hatred, not realizing that he is setting in motion, by his imagination, an unpleasant event which he will presently encounter.
 
 The world, as imagination sees it, is the real world. Not facts, but figments of the imagination, shape our daily lives. It is the exact and literal minded who live in a fictitious world. Only imagination can restore the Eden from which experience has driven us out. Imagination is the sense by which we perceived the above, the power by which we resolve vision into being. Every stage of man’s progress is made by the exercise of the imagination. It is only because men do not perfectly imagine and believe that their results are sometimes uncertain when they might always be perfectly certain. Determined imagination is the beginning of all successful operation. The imagination, alone, is the means of fulfilling the intention. The man who, at will, can call up whatever image he pleases is, by virtue of the power of his imagination, least of all subject to caprice. The solitary or captive can, by intensity of imagination and feeling, affect myriads so that he can act through many men and speak through many voices. *"We should never be certain,"* wrote William Butler Yeats in his IDEAS OF GOOD AND EVIL, *"that it was not some woman treading in the wine-press who began that subtle change in men’s minds, or that the passion did not begin in the mind of some shepherd boy, lighting up his eyes for a moment before it ran upon its way."*
@@ -29,7 +31,6 @@ Love is our birthright. Love is the fundamental necessity of our life. *"Do not 
  
 
 ## Summary
-
 ### Imagination Shapes Reality
 
 The world we perceive is shaped by our imagination. Imagination is real, not just "only imagination". Uncontrolled imagination can lead to negative outcomes. Disciplined imagination allows us to shape our ideal reality.

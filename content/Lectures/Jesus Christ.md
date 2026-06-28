@@ -1,3 +1,5 @@
+# Jesus Christ
+
 Although only a few are teaching this wonderful principle at the present time, many others will follow; and because the Christian world believes in a man, this question will be asked over and over: *"Do you not believe that a man called Jesus Christ walked the earth?"* It is my hope that I will be able to clarify this point for you tonight. 
 
 Listen to these words from scripture: *"You will know the truth and the truth shall set you free. Thy Word is truth."* And speaking of Jesus Christ: *"His name shall be called the Word of God."* Here we see he has a name, so he is a person, yet he is the Word, the truth that sets man free. Confessing that he came into the world to do his Father's will, in the 6th chapter of the book of John he makes this statement: *"This is the will of my Father, that everyone who sees the Son and believes in him should have eternal life."* 
@@ -60,7 +62,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Jesus Christ is God's plan of salvation, not a man
 - Jesus Christ is referred to as the Word of God and the truth that sets man free
 - Confessing that he came to do his Father's will, Jesus Christ declares that seeing and believing in him leads to eternal life

@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 2
+
 *"My God, I heard this day, that none doth build a stately habitation, but he that means to dwell therein. What house more stately hath there been, or can be, than is Man, to whose creation all things are in decay?"* — George Herbert
 
 I wish it were true of man's noble Dreams, but unfortunately — perpetual construction, deferred occupancy — is the common fault of man. Why *"build a stately habitation"*, unless you intend to *"dwell therein"*? Why build a dream house and not *"dwell therein"*?
@@ -107,7 +109,6 @@ Imaginal acts — not blind fate — determine the course of history.
 
 
 ## Summary
-
 ### Dream Until It Becomes Reality
 
 - Those who dream things true lie awake living in their dream

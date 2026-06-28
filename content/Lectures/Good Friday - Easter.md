@@ -1,3 +1,5 @@
+# Good Friday - Easter
+
 You know the story of Good Friday. A man is in a garden. Its night time. And one called Judas comes in search of him, seemingly to betray him. He comes into the garden, and its dark, so he asks the simple question, *"Where is Jesus?"* Then the voice in the dark answered, *"I AM HE."* We are told in the story they all fell to the ground. When they regained their composure they asked the same question, *"Where is Jesus?"* Again the voice answered, *"I have told you that I AM HE."* This time Judas kisses him and the voice said to him, *"Now that you have found me, let all else go, but do not let Me go, and what you have to do, do quickly."* Then Judas goes out and commits suicide.
 
 Now when you read the story you might think that that drama took place in a garden. No. That drama must TAKE place in the mind of man. For this is all about re-birth. It takes a man, a normal man, a man of sense, but hidden in that man and bound hand and foot is the second man that rebirth loosens and lifts up, and that second man is God. So the mystery is all self, and he uses the word *"mystery"* no less than 18 times. He asked those in the Corinthians to esteem him as a steward of mystery. Then he said, *"Great is the mystery, God was manifest in the flesh."* Then he spoke of the greatest of all mysteries, the one hidden from the foundation of the world, *"[Christ in you](/lectures/christ-in-you) is the hope of glory."* [Christ IN man](/lectures/christ-in-man). Not Christ in the pages of history, but God IN man must be awakened, and this is the technique by which he is awakened.
@@ -38,7 +40,6 @@ Good-bye.
 
 
 ## Summary
-
 ### The Drama in the Garden
 - The story of Good Friday takes place in the mind of man, symbolizing rebirth.
 - Man is a vessel for the second man, God, who is awakened through rebirth.

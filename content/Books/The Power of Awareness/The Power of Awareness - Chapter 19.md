@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 19
+
 The essential points in the successful use of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption) are these: First, and above all, yearning; longing; intense, burning desire.
 
 With all your heart you must want to be different from what you are. Intense, burning desire [combined with intention to make good] is the mainspring of action, the beginning of all successful ventures. In every great passion [which achieves its objective] desire is concentrated [and intentioned. You must first desire and then intend to succeed].
@@ -32,7 +34,6 @@ It works just as impersonally as the law of electricity works. It can be used fo
 
 
 ## Summary
-
 ### Doers vs Hearers
 
 Hearers only deceive themselves expecting fulfillment from wishful thinking.

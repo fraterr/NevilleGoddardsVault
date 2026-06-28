@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 3
+
 *"And the children struggled within her... and the Lord said unto her, two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger."* ([Genesis 25:22,23](https://www.biblegateway.com/passage/?search=Genesis+25:22,23&version=KJV))
 
 DUALITY IS an inherent condition of life. Everything that exists is double. Man is a dual creature with contrary principles embedded in his nature. They war within him and present attitudes to life which are antagonistic. This conflict is the eternal enterprise, the war in heaven, the never-ending struggle of the younger or inner man of imagination to assert His supremacy over the elder or outer man of sense.
@@ -84,8 +86,6 @@ Ideas only act if they are felt, if they awaken inner movement. Inner movement i
 
 
 ## Summary
-
-
 ### Duality of Man's Nature
 
   - Man has two contrary principles embedded in his nature that war within him.

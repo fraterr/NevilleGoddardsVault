@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 2
+
 It is only by a change of consciousness, by actually changing your concept of yourself, that you can *“build more stately mansions”* — the manifestations of higher and higher concepts. (By manifesting is meant experiencing the results of these concepts in your world.) It is of vital importance to understand clearly just what consciousness is.
 
 The reason lies in the fact that consciousness is the one and only reality, it is the first and only cause -sub stance of the phenomena of life. Nothing has existence for man save through the consciousness he has of it. Therefore, it is to consciousness you must turn, for it is the only foundation on which the phenomena of life can be explained.
@@ -16,7 +18,6 @@ Health, wealth, beauty, and genius are not created; they are only manifested by 
 
 
 ## Summary
-
 ### Consciousness is Reality
 
 - Consciousness is the one and only reality and first cause.

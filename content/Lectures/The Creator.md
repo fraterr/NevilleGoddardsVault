@@ -1,3 +1,5 @@
+# The Creator
+
 You will find tonight to be a very practical and yet a very spiritual hour, for I am going to speak to you of the Creator.
 
 In Paul's letter to the Romans he said: *"All the invisible things of God are clearly seen, being understood by the things that are made."* Man is called upon to look at the made, in order to discover the invisible God. 
@@ -91,7 +93,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Creator
 - Man is called upon to look at the things that are made, in order to discover the invisible God.
 - God is found in one's own imagination.

@@ -1,3 +1,5 @@
+# Election And Change Of Consciousness
+
 Election is an act of God, not based upon any inherent superiority of those elected, but grounded in the love and grace of God and in his promises to the Father. Let no one boast who is called. Let no one boast who is elected, for all will be called, but in God's own predetermined time. So tonight my subject is 'Election and Change of Consciousness'.  
   
 [God speaks to Man](/lectures/god-speaks-to-man) through the medium of dream and reveals himself in vision, and we are past masters of misinterpreting his words. A dream is a parable containing a single jet of truth. Don't try to give meaning to every word or event of the dream. Perhaps there will be several Dreams, several stories in a single dream - then each story contains its own jet of truth. Let me share one such dream of a friend. Her dream is in three parts. It is a wonderful dream on the higher level.  
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ###  The Power of Dreams
 - Dreams are a means for God to communicate with humans.
 - Dreams contain symbolic truths and should not be over-analyzed.

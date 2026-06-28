@@ -1,3 +1,5 @@
+# A Movement Within God
+
 If you find yourself miserable or helpless here, may I tell you that you are not condemned to the state by a deity outside of yourself, for everything that takes place in your world is but a movement within God.
 
 We are told that in the very beginning the Spirit of God moved upon the face of the waters and things came into being. Everything - your misery, your helplessness, your joy, your sorrow - no matter what it is, comes into being by a movement within God, and he is not a deity outside yourself. You are not a helpless being, but the operant power of God. Seated as you are now, you can move without moving physically because your eternal body is all Imagination. Called [Jesus Christ](/lectures/jesus-christ) in scripture, you are God’s [power and wisdom](/lectures/power-and-wisdom). So if you find yourself in a place where you are miserable and feel helpless, it is because you either knowingly or unknowingly fell into that state, and not because of the condemnation of some deity outside of you.
@@ -60,8 +62,7 @@ But I tell you: it’s true anyway, and if one fails to bring their dream into b
 
 Now let us go into the silence.
 
-## Summary 
-
+## Summary
 ### No Outside God Condemns
 
 - If you find yourself in a miserable state, no outside God condemned you there

@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 11
+
 *"Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is God with us."* ([Matt. 1:23](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 One of the most controversial statements in the New Testament concerns the virgin conception and subsequent birth of Jesus, a conception in which man had no part. It is recorded that a virgin conceived a son without the aid of man, then secretly and without effort gave birth to her conception. This is the foundation upon which all Christendom rests.
@@ -30,7 +32,6 @@ Man will one day realize that this whole drama takes place in his consciousness,
 
 
 ## Summary
-
 ### The Virgin Birth
 
 The virgin birth story represents the soul's ability to conceive desires and birth them through consciousness alone.

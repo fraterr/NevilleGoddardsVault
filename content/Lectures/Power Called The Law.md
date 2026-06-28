@@ -1,3 +1,5 @@
+# Power Called The Law
+
 Any presentation of a doctrine must show that it has specific reference to life now, as well as hereafter, for secularized man is far more concerned with the present than with the future. So, if you would interest anyone in the truth, you must first appeal to the power they can experience here and now; for the promise is so fantastic that if they heard it first they might turn away in disgust. Show them what they can do right here and now. Get their interest in the power called *"The Law,"* and then perhaps they will desire to know of the promise.
 
 Let me share with you now a couple of stories a gentleman shared with me this week. He said: *"About ten days ago my wife told me of a little girl only fourteen months old who had developed lumps on her neck [in] which - when the doctor removed and tested a lump - there were signs of cancer. Three specialists had been brought in and each separately had declared the child had cancer. Only one doctor, looking at the results questioned the verdict, but they were keeping the child in the hospital for further examination. As I listened to her story I cued my wife's voice out to the point that I couldn't even hear what she was saying, but hearing her voice, I reconstructed the story and heard its Revision in my minds eye. That night as I fell asleep I listened again and heard my wife tell me the revised story. A few days later the doctors made another test from another lump and the vote was unanimous, the child did not have cancer. And since they had performed no remedial treatment in the hospital, they determined she never did have cancer, for without treatment the child could not have overcome the condition. When my wife heard the new verdict she told the grandmother and the mother what I had done, but they could not believe that an imaginal act has any power of causation."*
@@ -47,7 +49,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of "The Law"
 
 - The presentation of a doctrine must show its relevance to both present and future life.

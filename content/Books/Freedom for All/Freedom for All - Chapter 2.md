@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 2
+
 It cannot be stated too often that consciousness is the one and only reality, for this is the truth that sets man free.
 
 This is the foundation upon which the whole structure of biblical literature rests. The stories of the Bible are all mystical revelations written in an Eastern symbolism which reveals to the intuitive the secret of creation and the formula of escape. The Bible is man’s attempt to express in words the cause and manner of creation. Man discovered that his consciousness was the cause or creator of his world, so he proceeded to tell the story of creation in a series of symbolical stories known to us today as the Bible.
@@ -52,7 +54,6 @@ First, you are aware; then you become aware of something; then you become aware 
 
 
 ## Summary
-
 ### Consciousness is the one reality
 
 - Consciousness is the one and only reality, the truth that sets man free.

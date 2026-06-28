@@ -1,3 +1,5 @@
+# He Is My Resurrection
+
 The gospel, which appears to be a little secular story, is truly a mystery to be known only by revelation.  
   
 In the 16th chapter of John we are told: *"I came out from the Father and came into the world. Again I leave the world and I return to the Father."* In these four short phrases we find the pre-existence of Christ, his incarnation, his death, and his ascension. I could put this in the first person, plural sense and say: *"We came out from the Father"* for we are told in the 1st chapter of Ephesians: *"He chose us in him before the foundation of the world."* So all of us were chosen in him. That is why I can say, *"We came out from the Father and came into the world. Again we are leaving the world and are going to the Father."*  
@@ -71,7 +73,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Mystery of the Gospel
 - The gospel is a mystery that can only be known through revelation.
 - In the 16th chapter of John, Jesus talks about his pre-existence, incarnation, death, and ascension.

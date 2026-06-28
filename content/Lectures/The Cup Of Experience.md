@@ -1,3 +1,5 @@
+# The Cup Of Experience
+
 [All things exist](/lectures/all-things-exist) in the human imagination, and I mean that literally. No one can know of imagination who has not tasted the cup of experience!
 
 In the Psalms we are told that in the hand of the Lord there is a cup that is bubbling over with wine which has been well mixed. And John asks: *"Shall I not drink of the cup of salvation which the Father has given me, and call upon his name?"* When we read these words we wonder what it is all about. Well, let me share with you a vision of mine of about thirty years ago.
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### All things exist in the human imagination
 - Imagination is a literal reality and cannot be understood or known without personal experience
 - The cup of experience holds the key to understanding imagination

@@ -1,3 +1,5 @@
+# All Things Are Possible
+
 [Jesus Christ](/lectures/jesus-christ) is the true identity of every one! His name, forever and ever is I am! Therefore, when you say I am, you are declaring your true identity! Do you believe that all things are possible to someone called Jesus Christ, but not yourself? If you do it is because you do not know who you are!
 
 In 1929, believing Jesus Christ to be another, I stood in His presence. We embraced and I became the infinite love that I beheld, for at that moment I was incorporated into His body and became one with the Risen Lord.
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Christ is Our True Identity
 
 - Jesus Christ is the I AM, our true identity we proclaim when we say "I am"

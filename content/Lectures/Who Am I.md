@@ -1,3 +1,5 @@
+# Who Am I
+
 *"Every generated body in its inward form is a garden of delight and a building of magnificence. Travelers from Eternity pass outward to bodies of flesh and blood and forgetfulness, but travelers to Eternity pass inward to the Father and Remembrance."* (William Blake) Notice the movement here. Those who travel from eternity pass outward to these bodies of flesh and blood and forgetfulness, while those who travel to eternity pass inward to the body of the Father and Remembrance!
 
 Tonight I want to ask this question: *"Who am I?"* Am I Neville Goddard? No. Are you John Brown or Mary Smith? You may know your physical background and if I should call your name you would answer, but are you the name you go by? No. Your name is a part of your outward journey from eternity into a state of forgetfulness of who you really are. Were you to turn around by practicing repentance, by radically changing your attitude towards everything in the world, you would move inward to the Father and Remembrance.
@@ -69,7 +71,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Who am I?
 
 - Travelers from eternity pass outward to bodies of flesh and blood and forgetfulness, while travelers to eternity pass inward to the body of the Father and Remembrance.

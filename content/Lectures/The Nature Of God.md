@@ -1,3 +1,5 @@
+# The Nature Of God
+
 To think of the Bible's events as historical, and the characters recorded there as persons such as you and I, is to see truth tempered to the weakness of the human form, unable to stand the strong light of revelation. But I tell you: it is in us, as persons, that the nature of God is revealed. 
 
 Paul tells us his conversion came through a revelation of [Jesus Christ](/lectures/jesus-christ). It did not come through a man, thereby causing him to change religions. No. Paul never forsook Judaism, but interpreted the meaning of the Old Testament through revelation. But was Paul a person, an individual being such as you are, as I am; or is he, too, one of these eternal characters? That is the question I am asking tonight. 
@@ -99,7 +101,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Revealing the Nature of God through Personal Experiences
 
 - The Bible's events and characters are not purely historical, but reveal the nature of God in individuals.

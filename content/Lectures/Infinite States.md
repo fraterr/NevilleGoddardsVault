@@ -1,3 +1,5 @@
+# Infinite States
+
 Quite often someone will say to me: *"I don't think others understand you."* I was asked this question: 'When you use the word 'state' I don't think others know what you mean, so would you please explain it?'" Tonight I will try.
 
 We are told: 'You are [sons of the Most High](/lectures/sons-of-the-most-high), all of you.*" (Not just a few, but all of us). "*Nevertheless, you will die like men and fall*"'..into infinite states of consciousness, for states are that into which the sons of the Most High fall. A state is an attitude of mind, a state of experience with a body of beliefs which you live by. Always expressing a state, you identify yourself with it by saying: "*I am poor or I am rich. I am known or I am unknown. I am wanted or I am unwanted." I could go on indefinitely, because there are infinite states into which an individual son of the Most High may fall.
@@ -52,7 +54,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### States of Consciousness: Attitudes of Mind
 
 - Definition of a state: an attitude of mind, a state of experience with a body of beliefs that an individual identifies with.

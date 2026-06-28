@@ -1,3 +1,5 @@
+# I Am The Cause
+
 According to a rabbical principle, that which is not written in scripture is non-existent. The story of [Jesus Christ](/lectures/jesus-christ) follows this principle.
 
 The unknown author of the Book of Luke (like all the others) wrote only of his own experiences. Turning to his disciplined mind in self contemplation, he is Jesus turning to his disciples and saying: *"'Scripture must be fulfilled in me. All that is written about me must be fulfilled.' Beginning with Moses and the prophets, and the psalms he interpreted to them in all the scriptures the things concerning himself. And they said to one another, 'Did not our hearts burn while he opened to us the scriptures?' Then he said to them, 'Everything written about me in the law of Moses and the prophets and the psalms must be fulfilled.' Then he opened their minds to understand the scriptures."* Luke is speaking of the [Christ in you](/lectures/christ-in-you), for any Christ coming from without is a false Christ, taught by false teachers.
@@ -94,7 +96,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Principle of Scripture
 
 - According to a rabbinical principle, only what is written in scripture exists.

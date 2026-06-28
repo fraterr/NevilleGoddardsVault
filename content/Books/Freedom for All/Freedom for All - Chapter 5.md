@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 5
+
 *"Six days shall work be done, but on the seventh day their shall be to you an holy day, a Sabbath of rest to the Lord"* ([Exodus 31:15](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV), [Leviticus 23:3](https://www.biblegateway.com/passage/?search=Leviticus+23:3&version=KJV))
 
 These six days are not twenty-four-hour periods of time.
@@ -93,7 +95,6 @@ The subjective knowing is followed by the Sabbath or mental rest. You will be as
 Your consciousness is God resting in the knowledge that – *"It is well"* – *"It is finished."* And your objective senses shall confirm that it is so for the day shall reveal it.
 
 ## Summary
-
 ### Six days are not literal days
 
 - The six days of creation are not 24-hour periods.

@@ -1,3 +1,5 @@
+# Paul's Autobiography
+
 Paul is the greatest and most influential figure in the history of Christianity. After you hear his story you may judge just who he is. After his credentials have gained him public confidence, Paul begins. Paul wrote 13 letters, if you take the double letters as two: like 1st and 2nd Corinthians, 1st and 2nd Timothy, and 1st and 2nd Thessalonians. He first appears in scripture in the Book of Acts - and bear in mind the Book of Acts was once part of the Book of Luke. The same author who wrote the Book of Luke wrote the Book of Acts. They were once one volume, or one book in two volumes. Our early fathers divided the two and placed the Gospel of John between them. He first appears in the book that we will call the Gospel of Luke, only we now call it the Book of Acts.
 
 He was present when the first Christian martyr, Stephen, was stoned to death - and Paul consented unto Stephen’s death. Those who stoned Stephen placed their coats at the feet of Saul. (His name was then Saul. [Acts 7:2](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV)) In the 9th chapter, he starts the great journey to Damascus, and he carries with him letters to the high priest in Damascus. He pledges himself if he finds anyone belonging to *"the Way,"* be he man or woman, he will bring them bound to Jerusalem. All who believed it were called *"followers of the Way,"* not Christians. On the way to bind those who belonged to the Way, he was blinded by the light, and then the whole thing was revealed to him, and his name was transformed from Saul to Paul.
@@ -64,7 +66,6 @@ So, how can you share your vision with another who is unwilling to share it with
 
 
 ## Summary
-
 ### Paul's Influence in Christianity
 - Paul is considered the most influential figure in the history of Christianity.
 - He wrote 13 letters, known as the Pauline epistles, which are a significant part of the New Testament.

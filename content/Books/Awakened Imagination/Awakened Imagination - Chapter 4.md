@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 4
+
 *"The second Man is the Lord from Heaven."* ([1Corinthians 15:47](https://www.biblegateway.com/passage/?search=1+Corinthians+15:47&version=KJV))
 
 
@@ -74,8 +76,6 @@ Try revising the day. It is to [the pruning shears of Revision](/lectures/the-pr
 
 
 ## Summary
-
-
 ### Revision as the First Act of Cure
 
   - We must start corrective acts with revising ourselves and our attitudes.

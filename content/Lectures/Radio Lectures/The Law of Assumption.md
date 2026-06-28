@@ -1,3 +1,5 @@
+# The Law of Assumption
+
 The great mystic, William Blake, wrote almost two hundred years ago, *"What seems to be, is, to those to whom it seems to be and is productive of the most dreadful consequences to those to whom it seems to be."* Now, at first, this mystical gem seems a bit involved, or at best to be a play on words; but it is nothing of the kind. Listen to it carefully. *"What seems to be, is, to those to whom it seems to be."* That is certainly clear enough. It is a simple truth about the law of Assumption, and a warning of the consequences of its misuse. The author of the Epistle to the Romans declared in the fourteenth chapter, *"I know, and am persuaded by the Lord Jesus, that there is nothing unclean of itself; but to him that esteemeth anything to be unclean, to him it is unclearn."*
 
 We see by this that it is not superior insight but purblindness that reads into the greatness of men some littleness with which it chances to be familiar, for what seems to be, is, to those to whom it seems to be.
@@ -19,7 +21,6 @@ Believing and being are one. The conceiver and his conception are one. Therefore
 
 
 ## Summary
-
 ### What Seems Is
 
 What seems true to a person is true for them. Blake warned of misusing this law of Assumption and its consequences. We project our own assumptions onto the world.

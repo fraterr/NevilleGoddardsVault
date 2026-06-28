@@ -1,3 +1,5 @@
+# He Is Dreaming Now
+
 Tonight's subject is: *"He is Dreaming Now."* The Bible begins, as far as man is concerned: *"And the Lord God caused a great deep sleep to fall upon man, and he slept. And then the Lord God formed woman out of man, and then he told man that he must leave everything and cleave to his wife until they become one"* − one body, one spirit, just one. That is the beginning of our story.
 
 In Lewis Carroll's book, Alice Through The Looking Glass, all these great writers take the same theme; all the great poets, they do it. And here we find this one little…well, a little dialogue: *"Come and look at him,"* the brothers cried. And they each took one hand of Alice and led her up to where the King was sleeping. *"He is dreaming now,"* said Tweedle Dee. *"And what do you think he is dreaming about?"* Alice said: *"No one can guess that."* *"Why, about you!"* said Tweedle Dee, triumphantly. *"And if he left off dreaming about you, where do you suppose you would be?"*
@@ -105,7 +107,6 @@ A: Why certainly my dear, every moment in time is a note. It's an experience and
 
 
 ## Summary
-
 ### The Dream of Life
 
 - The Bible tells the story of how God created man and then formed woman out of man, and they were meant to become one body and one spirit.

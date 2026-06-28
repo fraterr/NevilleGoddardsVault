@@ -1,3 +1,5 @@
+# Four Fold Vision
+
 William Blake once wrote these words to his friend, Thomas Butts:   
   
 *"Now I a fourfold vision see,   
@@ -91,7 +93,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Fourfold Vision
 - William Blake describes his experience of fourfold vision, which is superior to single and threefold vision.
 - Single vision is the ordinary sight of a rational man, who sees things as they appear in the physical world.

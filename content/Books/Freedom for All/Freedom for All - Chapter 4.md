@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 4
+
 The secret of feeling or the calling of the invisible into visible states is beautifully told in the story of Isaac blessing his second son Jacob by the belief, based solely upon feeling, that he was blessing his first son Esau ([Genesis 27:1-35](https://www.biblegateway.com/passage/?search=Genesis+27:1-35&version=KJV)).
 
 It is recorded that Isaac, who was old and blind, felt that he was about to leave this world and wishing to bless his first son Esau before he died, sent Esau hunting for savory venison with the promise that upon his return from the hunt he would receive his fatherâ€™s blessing.
@@ -99,7 +101,6 @@ With the knowledge of your power to bless you can open the doors of any prison â
 *"The Spirit of the Lord God is upon me; because the Lord hath anointed me to preach good tidings unto the meek; he hath sent me to bind up the broken hearted, to proclaim liberty to the captives, and the opening of the prison to them that are bound"* ([Isaiah 61:1](https://www.biblegateway.com/passage/?search=Isaiah+61:1&version=KJV), [Luke 4:18](https://www.biblegateway.com/passage/?search=Luke+4:18&version=KJV)).
 
 ## Summary
-
 ### Jacob steals Esau's blessing via feeling
 
 - Isaac blessed Jacob thinking he was Esau by feeling alone.

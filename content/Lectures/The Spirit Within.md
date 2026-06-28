@@ -1,3 +1,5 @@
+# The Spirit Within
+
 When reading the Bible always bear in mind that the persons Abraham, Isaac, Jacob, Jesus, Peter, Paul, (or any name appearing there) are states of consciousness. The names only identify the states represented. If you see the characters as persons, you misunderstand scripture, for the names are simply personifications of [eternal states](/lectures/eternal-states) which will be revealed to you, mortal man, in a series of divine revelations.
 
 Satan, for instance, personifies the state of complete unbelief. In the state of Satan you cannot accept a thing as real unless you can touch it or see it. Blake tells us: *"Satan believes that sin is displeasing to God. He ought to know that nothing displeases God but unbelief and eating of the Tree of Knowledge of Good and Evil. The Combat of Good and Evil is eating of the Tree of Knowledge. The Combat of Truth and Error is Eating of [the Tree of Life](/lectures/the-tree-of-life). These are not only Universal, but Particular. Each are Personified."* Here he speaks of Satan as an eternal state into which anyone may fall when a state is denied because it is not in harmony with the outer senses.
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Names in the Bible represent states of consciousness
 - Persons mentioned in the Bible, such as Abraham and Jesus, represent different states of consciousness
 - Mistakenly seeing them as literal persons leads to a misunderstanding of scripture

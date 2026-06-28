@@ -1,3 +1,5 @@
+# Revealed Truth
+
 When the Rev. Dr. Trusler criticized Blake, saying he needed someone to elucidate his ideas, Blake replied: *"You ought to know that what is grand is necessarily obscure to the weak. You also ought to know that what can be made explicit to the idiot is not worth my care. The wisest of the Ancients considered what is not too explicit as fittest for instruction because it rouses the faculties to act. I name Moses, Solomon, Aesop, Homer, Plato."* Then he asked this question: *"Why is the Bible more entertaining and instructive than any book? Is it not because it is addressed to the imagination which is [spiritual sensation](/lectures/spiritual-sensation) and only but immediately to the understanding or reason?"*
 
 Tonight I will ask you [a riddle](/lectures/a-riddle) based upon scripture and try to solve it for you. What is it that becomes its own grandson and vice versa? And how can the Divine Creator be my Father, yet my child? Now this riddle is not addressed to the reasonable and logical mind, but to the human imagination, as its answer must be revealed.
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Bible and the Power of Imagination
 - Blake argues that what is grand is often obscure to the weak, and what can be easily understood is not worth his care.
 - The Bible is more entertaining and instructive because it addresses the imagination rather than reason.

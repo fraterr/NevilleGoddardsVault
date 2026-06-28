@@ -1,3 +1,5 @@
+# Trust In God
+
 Ask any religious person if he believes in God, and he will say yes. But if you ask him who God is, everyone you ask will give you a different answer. So when I ask you to trust in God, I want you to know who God really is, for if you trust in him, your world will change. 
 
 Speaking to God, Moses asked: *"When I go to the people of Israel and tell them that the God of our fathers, the God of Abraham, the God of Isaac and the God of Jacob sent me, and they ask me your name, what shall I tell them?"* Then God replied: *"Say this, I AM has sent me to you. This is my name forever. Thus shall I be known throughout all generations."* Here we discover God's name to be I AM, the same name you use when you identify yourself! Now I ask you, do you believe in that God? 
@@ -59,8 +61,7 @@ Don't believe in anyone outside of your own wonderful human imagination! Every c
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Believing in God and Trusting in His Name
 - While many people claim to believe in God, it is necessary to truly understand who God is in order to trust in Him.
 - The name revealed by God is "I AM," the same name used when identifying oneself.

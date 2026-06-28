@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 10
+
 *"...what is seen was made out of things which do not appear."* ([Heb. 11:3](https://www.biblegateway.com/passage/?search=Hebrews+11:3&version=KJV))
 
 *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the minds of men."* — Herbert Hoover
@@ -43,7 +45,6 @@ G.B. followed her own teaching. It is fatally easy to make the acceptance of the
 
 
 ## Summary
-
 ### The visible world comes from the unseen
 
 What is seen was made from invisible imagination. History and events spring from ideas.

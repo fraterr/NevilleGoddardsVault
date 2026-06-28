@@ -1,3 +1,5 @@
+# Be What You Wish; Be What You Believe
+
 A newspaperman related to me that our great scientist, Robert Millikan, once told him that he had set a goal for himself at an early age when he was still very poor and unproven in the great work he was to do in the future. He condensed his dream of greatness and security into a simple statement, which statement, implied that his dream of greatness and security was already realized. Then he repeated the statement over and over again to himself until the idea of greatness and security filled his mind and crowded all other ideas out of his consciousness. These may not have been the words of Dr. Millikan but they are those given to me and I quote, *"I have a lavish, steady, dependable income, consistent with integrity and mutual benefit."* As I have said repeatedly, everything depends upon our attitude towards ourselves. That which we will not affirm as true of ourselves cannot develop in our life. Dr. Millikan wrote his dream of greatness and security in the first person, present tense. He did not say, *"I will be great; I will be secure,"* for that would have implied that he was not great and secure. Instead, he made his future dream a present fact. *"I have,"* said he, *"a lavish, steady, dependable income, consistent with integrity and mutual benefit."*
 
 The future dream must become a present fact in the mind of him who seeks to realize it. We must experience in imagination what we would experience in reality in the event we achieved our goal, for the soul imagining itself into a situation takes on the results of that imaginary act. If it does not imagine itself into a situation, it is ever free of the result.
@@ -30,7 +32,6 @@ Live truly, and thy life shall be a great and noble creed."
 
 
 ## Summary
-
 ### Affirming the Wish Fulfilled
 
 Robert Millikan imagined himself already having achieved greatness and security by repeatedly affirming "I have a lavish, steady, dependable income, consistent with integrity and mutual benefit." This embodying of his future dream as a present fact was key to its realization.

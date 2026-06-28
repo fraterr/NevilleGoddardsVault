@@ -1,3 +1,5 @@
+# Believe It In
+
 The objective reality of this world is solely produced by the human imagination, in which [all things exist](/lectures/all-things-exist). Tonight I hope to show you how to subjectively appropriate that which already exists in you, and turn it into an objective fact. Your life is nothing more than the out picturing of your imaginal activity, for your [imagination fulfills itself](/lectures/imagination-fulfills-itself) in what your life becomes.   
   
 The last year that Robert Frost was with us, he was interviewed by Life Magazine and said: *"Our founding fathers did not believe in the future, they believed it in."* This is true. Having broken with England, our founding fathers could have established their own royalty here by making one of them the king, thereby perpetuating a royal family. They could have chosen a form of dictatorship, but they agreed to imagine a form of government that had not been tried since the days of the Greeks. Democracy is the most difficult form of government in the world, yet our founding fathers agreed to believe it in. They knew it would take place, because they knew the power of belief - the power I hope to show you that you are, tonight.   
@@ -63,7 +65,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of Imagination
 - The objective reality of the world is created by the human imagination.
 - Your life is a reflection of your imaginal activity.

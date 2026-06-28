@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 7
+
 Experiments recently conducted by Merle Lawrence (Princeton) and Adelbert Ames (Dartmouth) in the latter’s psychology laboratory at Hanover, N.H., prove that what you see when you look at something depends not so much on what is there as on the Assumption you make when you look. Since what we believe to be the *“real”* physical world is actually only an *“assumptive”* world, it is not surprising that these experiments prove that what appears to be solid reality is actually the result of *“expectations”* or *“assumptions.”* Your assumptions determine not only what you see but also what you do, for they govern all your conscious and subconscious movements towards the fulfillment of themselves. Over a century ago this truth was stated by Emerson as follows:
 
 As the world was plastic and fluid in the hands of God, so it is ever to so much of his attributes as we bring to it. To ignorance and sin, it is flint. They adapt themselves to it as they may, but in proportion as a man has anything in him divine, the firmament flows before him and takes his signet and form.
@@ -28,7 +30,6 @@ By the intensity of her imagination and feeling, the designer cast a kind of enc
 
 
 ## Summary
-
 ### Assumptions Shape Reality
 
 - Experiments show we see based on assumptions, not objective reality.

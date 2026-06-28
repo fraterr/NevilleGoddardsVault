@@ -1,3 +1,5 @@
+# A Divine Event
+
 Christmas is the proclamation of a divine event to which all creation aspires. It is an event which puts an entirely different light upon human life, for it proclaims that man has been saved. I question seriously whether an nth part of one per cent of those who call themselves Christians know what this event is about. Tonight I will tell you from my personal experience.
 
 Paul tells us in his letter to the Corinthians that *"No one can say ‘Jesus is Lord’ except by the Holy Spirit."* Now, the Holy Spirit is nothing more than the individual’s personal experience of the event, for in the Book of John, the Risen Christ proclaims that he will *"send the Comforter, the Holy Spirit, who will lead you into all things and bring to your remembrance all that I have said to you."* In the beginning you were told that which seemed incredible, and the Holy Spirit is your experience of that event, for only then can you know that Jesus is Lord.
@@ -68,9 +70,7 @@ The Christmas that we now look forward to celebrate is one aspect of the great e
 Now let us go into the silence.
 
 
-## Summary 
-
-
+## Summary
 - Christmas is not just a historical event, but an ongoing spiritual experience happening within man
 - It is the awakening of God in man, the realization that God is one's own wonderful human imagination or I AMness
 

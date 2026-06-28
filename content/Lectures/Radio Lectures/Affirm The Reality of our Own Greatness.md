@@ -1,3 +1,5 @@
+# Affirm The Reality of our Own Greatness
+
 In the creation of a new way of life, we must begin at the beginning, with our own individual regeneration. The formation of organizations, political bodies, religious bodies, social bodies is not enough. The trouble we see goes deeper than we perceive. The essential revolution must happen within ourselves. Everything depends on our attitude towards ourself – that which we will not affirm within ourself can never develop in our world. This is the religion by which we live, for religion begins in subjective experience, like charity, it begins at home. *"Be ye transformed by the renewing of your mind"* is the ancient formula and there is no other. Everything depends upon man’s attitude toward himself. That which he cannot or will not claim as true of himself can never evolve in his world. Man is constantly looking about his world and asking, *"What’s to be done? What will happen?"* when he should ask himself *"[Who am I](/lectures/who-am-i)? What is my concept of myself?"* If we wish to see the world a finer, greater place, we must affirm the reality of a finer, greater being within ourselves. It is the ultimate purpose of my teaching to point the road to this consummation. I am trying to show you how the inner man must readjust himself – what must be the new premise of his life, in order that he may lose his soul on the level he now knows and find it again on the high level he seeks.
 
 It is impossible for man to see other than the contents of his own consciousness, for nothing has existence for us save through the consciousness we have of it. The ideal man is always seeking a new incarnation but unless we, ourselves, offer him human parentage, he is incapable of birth. We are the means whereby the redemption of nature from the law of cruelty is to be effected. The great purpose of consciousness is to effect this redemption. If we decline the burden and point to natural law as giving us conclusive proof that redemption of the world by imaginative love is something that can never come about, we simply nullify the purpose of our lives through want of faith. We reject the means, the only means, whereby this process of redemption must be effected.
@@ -12,7 +14,6 @@ Truth will strip the clever pretenders of their false aristocracy. Truth, in its
 
 
 ## Summary
-
 ### Individual Regeneration
 
 In creating a new way of life, we must begin with our own individual regeneration. Forming organizations, bodies, and institutions is not enough.

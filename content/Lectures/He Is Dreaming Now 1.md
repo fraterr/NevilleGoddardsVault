@@ -1,3 +1,5 @@
+# He Is Dreaming Now 1
+
 Tonight’s title is: *"[He is Dreaming Now](/lectures/he-is-dreaming-now)."* God’s name―His real presence―is within us, in the very midst of us, for His real presence is concentrate in His name.
 
 *"Come, let us go and look at him,"* said the brothers, and each took one of Alice’s hands and led her up to where the king was sleeping.
@@ -221,7 +223,6 @@ So, if I tell you that you are, you may not believe it, but I know I am telling 
 
 
 ## Summary
-
 ### The Power of Imagination
 - The text delves into the power and significance of the Dreamer within us, the one who Dreams our lives.
 - The Dreamer in us is the true presence of God and has the ability to shape and manifest our reality.

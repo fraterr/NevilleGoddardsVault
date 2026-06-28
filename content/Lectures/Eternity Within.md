@@ -1,3 +1,5 @@
+# Eternity Within
+
 Tonight's subject is a mystery to be known only by revelation. It is a secret that has been kept hidden from the beginning of time. Where there is no mystery, where there is no end from the beginning there is no challenge, no place for imagination or any room for faith or hope. But when it pleased God, in the fullness of time, to make it known to his apostles, those whom he called and incorporated into his own Risen body, they are sent to tell the story of the gospel of God.  
   
 The subject I have chosen for tonight is taken from the book of Ecclesiastes. I have so many commentaries on this book at home, so many written interpretations by our Biblical scholars and they are so widely separated in their opinions, yet without this, the most disputed verse in the entire book, that I have chosen tonight, everyone in this world should despair.  
@@ -78,7 +80,6 @@ Good night.
 
 
 ## Summary
-
 ### The Mystery of Eternity Within
 
 - The topic of tonight's discussion is a secret known only through revelation.

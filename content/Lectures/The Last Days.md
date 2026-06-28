@@ -1,3 +1,5 @@
+# The Last Days
+
 Man thinks history is moving towards an inevitable climax of good, but that climax has already occurred and [is] recorded in the New Testament in the words: *"It is finished."* So when I speak of the last days, I am referring to definite events which will occur in the life of you, an individual, which will take you from this age of sin and death to enter the New Age of eternal life!
 
 The most astute book in the Bible is Ecclesiastes. In it we are told: *"What has been is what will be and what has been done is what will be done; and there is nothing new under the sun. Is there a thing of which it is said, 'See this is new? It has been already in ages before us, but there is no remembrance of former things, nor will there be remembrance of things yet to happen among those who come after."* This statement is difficult for man to grasp, for he is forever thinking of progress. Man sees things today and thinks they are new and wonderful because he cannot remember them. Just a century ago electricity was unknown. Now we have light powered by nuclear energy and think it was created for and by us, but scripture tells us it has always been! The play of life moves in a wheel, closed-circuited by time, and man with his short memory cannot remember other times.
@@ -75,7 +77,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Last Days
 - Refers to events that will occur in the life of an individual, leading them from the age of sin and death to the New Age of eternal life.
 

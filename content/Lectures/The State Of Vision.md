@@ -1,3 +1,5 @@
+# The State Of Vision
+
 *"We have only to raise Imagination to the state of Vision and the thing is done."* (William Blake) Just imagine it! That is all you and I are required to do. No matter what it is we desire, we have only to raise imagination to the state of vision, and the thing is done! Now, when the prophets of old used the word vision in scripture, they meant all of the senses, either individually or in combination. The Book of Isaiah begins: *"The visions of Isaiah, the son of Amoz. Hear, O heavens and give ear O earth; for the Lord has spoken."* And the Book of Obadiah states: *"The visions of Obadiah. Thus sayeth the Lord God."* Here we find the visions are audio; but scripture records visions of sight, sound, scent, taste, and touch. The last chapter of [the Book of Job](/lectures/the-book-of-job) reads: *"I have heard of thee with the hearing of the ear, but now my eye sees thee."* 
 
 Imagination must be raised to the sense of sight in order to see. The sense of sound seems to be the most popular in scripture, yet in the story of Jacob it is the sense of touch. Isaac, Jacob's father, was blind and could not see. His twin brother, Esau, was the first out of the womb. He was covered with hair and - because of his birth - had the right of inheritance by law. Jacob, who followed his brother, was a smooth-skinned lad, who deceived his father through the sense of touch. Killing one of his father's flock, he wrapped the skin around his arm, and when his father touched him, he felt its reality and gave Jacob the right of birth. 
@@ -60,7 +62,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Imagination and Vision
 - Imagination has the power to turn desires into reality
 - In scripture, visions refer to all senses, not just sight

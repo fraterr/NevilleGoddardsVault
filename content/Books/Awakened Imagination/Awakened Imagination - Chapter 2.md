@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 2
+
 I WAS FIRST made conscious of the power, nature, and redemptive function of imagination through the teachings of my friend Abdullah; and through subsequent experiences, I learned that Jesus was a symbol of the coming of imagination to man, that the test of His birth in man was the individual's ability to forgive sin; that is, his ability to identify himself or another with his aim in life.  
 Without the identification of man with his aim, the forgiveness of sin is an impossibility, and only the Son of God can forgive sin.  
 Therefore, man's ability to identify himself with his aim, though reason and his senses deny it, is proof of the birth of Christ in him.  
@@ -88,8 +90,6 @@ Life is a controllable thing.
 You can experience what you please once you realize that you are His Son, and that you are what you are by virtue of the state of consciousness from which you think and view the world,  
 *"Son, Thou art ever with Me, and all that I have is Thine."* ([Luke 15:31](https://www.biblegateway.com/passage/?search=Luke+15:31&version=KJV))
 ## Summary
-
-
 ### Abdullah's Teachings
 
   - Abdullah taught the author about the power, nature, and purpose of imagination.

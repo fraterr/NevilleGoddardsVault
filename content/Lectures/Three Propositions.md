@@ -1,3 +1,5 @@
+# Three Propositions
+
 Well, my first proposition is this one. The individual state of consciousness determines the conditions and the circumstances of his life. The second proposition is that man can select the state of consciousness with which he desires to be identified; and the third follows naturally--therefore, man can be what he wants to be.
 
 If the first proposition is true that the individual's state of consciousness is the sole cause of the phenomena of his life, then the normal, natural question that is asked *"Why doesn't he change it to a more desirable state if he could change it?"* Well, that is not as easy as it appears.
@@ -68,7 +70,6 @@ But you can't ascend until you first make the purple robe and although we have o
 
 
 ## Summary
-
 ### Proposition 1: Individual consciousness determines life circumstances
 - A person's state of consciousness is solely responsible for the conditions and circumstances of their life.
 

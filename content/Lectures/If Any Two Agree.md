@@ -1,3 +1,5 @@
+# If Any Two Agree
+
 Concerning the Law, I can only acquaint you with the Law and leave you to your choice and its risk; but we have Scripture for it -- to tell it, regardless of what they do with the Law. In the 18th chapter of the Book of Matthew you read these words: *"If any two of you agree on earth about any request that you must make, that request will be granted by my Heavenly Father."* [[Matthew 18:19](https://www.biblegateway.com/passage/?search=Matthew+18:19&version=KJV)]
 
 Find two who agree, and that request will be granted. Well, can you conceive of something greater? If two agree on earth concerning any request -- it doesn’t have to be good, it doesn’t have to be this, that or the other, but any request -- *"that you must make, that request will be granted by my Heavenly Father."*
@@ -176,7 +178,6 @@ So, make them rearrange their words to fit a pattern of love. Then you hear that
 
 
 ## Summary
-
 ### The Power of Agreement
 - In [Matthew 18:19](https://www.biblegateway.com/passage/?search=Matthew+18:19&version=KJV), it is stated that if any two people agree on earth about any request, that request will be granted by God.
 - This reveals the power of the human imagination, as all things are possible to those who believe.

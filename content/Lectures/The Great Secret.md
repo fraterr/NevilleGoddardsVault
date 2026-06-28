@@ -1,3 +1,5 @@
+# The Great Secret
+
 Judas is called the betrayer, but what was it that he betrayed? Judas betrayed the great secret of the messiah and where Jesus might be found. His is the most important role in [the great mystery](/lectures/the-great-mystery) of God. 
 
 *"I have found in David, the son of Jesse, a man after my heart who will do all my will. Of this man's posterity God has brought to Israel a Savior, Jesus, as he promised. Then in the 43rd chapter of Isaiah, the Lord reveals the Savior saying; "*I, [I am the Lord](/lectures/i-am-the-lord), and besides me there is no savior.*" If God brought a savior to humanity, he had to bring himself - as Jesus, which simply means "*I am.*" This he revealed in the great "*I am*" statements: I am the vine; I am the door; I am the shepherd; I am the bread. In those statements Jesus is declaring that unless you believe that your "*I am*" is Lord, you die in your sins; for your "*I am" is Jesus - your Savior - the man who will rule as God, as he promised. 
@@ -71,7 +73,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Judas's Betrayal
 - Judas betrayed the secret of the messiah and where Jesus could be found
 - His role was important in the mystery of God

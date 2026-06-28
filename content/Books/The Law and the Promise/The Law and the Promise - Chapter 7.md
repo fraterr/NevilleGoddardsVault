@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 7
+
 *"This is an age in which the mood decides the fortunes of people rather than the fortunes decide the mood."* (Sir Winston Churchill)
 
 Men regard their moods far too much as effects and not sufficiently as causes.
@@ -72,7 +74,6 @@ But man need not wait for the uprising of new moods in himself; he can create ha
 
 
 ## Summary
-
 ### Moods are causes, not just effects
 
 We view moods as effects of circumstances but should see them as causes too. Assuming the wish fulfilled mood creates the circumstance.

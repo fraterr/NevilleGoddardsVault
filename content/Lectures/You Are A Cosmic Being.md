@@ -1,3 +1,5 @@
+# You Are A Cosmic Being
+
 Tonight I want you to think of Christ as a cosmic being who contains everyone within him. Having died for all, this one being is in all, and will rise in all. Only one being can rise, for only one being fell. Having deliberately destroyed his temple in the fall, God, (this one being) is rebuilding his temple out of the redeemed, in order for it to become something far greater than it was prior to its destruction. One being, containing all within him, fell into this world of death to become individualized as you, as me. That same being will rise in us all, individually: and when he does the divine name *"Lord"* will be conferred upon the individual in whom he rose. 
 
 In Paul's wonderful letter to the Corinthians, he tells us: *"From now on I regard no one from the human point of view; even though I once regarded Christ from a human point of view, I regard him thus no longer."* Why? Because Paul was led from tradition to self-discovery. While determined to destroy those who believed in a savior other than the one he was taught to believe in, Paul discovered that the Christ of whom they spoke was a pattern of salvation contained within every child born of woman. It was Paul who said: *"When it pleased God to reveal himself in me, I conferred not with flesh and blood."* The pattern unfolds in only one way, and Paul tried to describe how it unfolded in him. I cannot find the true detail by his description of it, but Paul does tell us to imitate God as dear children. 
@@ -80,7 +82,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Christ as a Cosmic Being
 - Christ is a cosmic being that contains everyone within him.
 - He died for all and will rise in all.

@@ -1,3 +1,5 @@
+# Persistent Assumption
+
 I tell you a truth: There is nothing greater than your own wonderful human imagination! It is he who inspired Blake, Shakespeare, and Einstein, for there is only one spirit in the universe! *"Hear, O Israel, the Lord our God, the Lord is One."* That one spirit is the human imagination! When Blake was asked what he thought of the divinity of Christ he answered: *"Christ is the only God, but so am I and so are you."* Don't think of Christ as someone greater than yourself. He is the only God, but so am I and so are you! Don't consider yourself less than Christ, for there is only God, who is your own wonderful human imagination.
 
 Daring to assume that [all things are possible](/lectures/all-things-are-possible) to imagine, put this one reality to the extreme test by assuming you are the person you would like to be. Your reasonable mind and outer senses may deny it; but I promise you: if you will persist, you will receive your Assumption. Believe me, you are the same God who created and sustains the universe, but are keyed low; so you must be persistent if you would bring about a change.
@@ -57,7 +59,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of Imagination
 - Your own imagination is divine and has inspired great thinkers like Blake, Shakespeare, and Einstein.
 - Recognize that Christ is not greater than yourself, as you are also divine.

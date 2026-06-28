@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 5
+
 *"I can easier teach twenty what were good to be done, than be one of the twenty to follow mine own teaching."* (Shakespeare)
 
 With this confession off my mind, I will now teach you how to play [the game of life](/lectures/the-game-of-life). Life is a game and, like all games, it has its aims and its rules.
@@ -66,7 +68,6 @@ A change of attitude is a change of position on the playing field of life. The g
 
 
 ## Summary
-
 ### Life is a Game with Rules
 
 - Life is a game with aims and rules that must be followed

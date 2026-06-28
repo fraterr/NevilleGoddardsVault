@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 22
+
 *"And He said unto them, Which of you shall have a friend, and shall go unto him at midnight, and say unto him, Friend, lend me three loaves; for a friend of mine in his journey is come to me, and I have nothing to set before him? And he from within shall answer and say. Trouble me not; the door is now shut, and my children are with me in bed; I cannot rise and give thee. I say unto you. Though he will not rise and give him, because he is his friend, yet because of his importunity he will rise and give him as many as he needeth. And I say unto you. Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you."* ([Luke 11:5-9](https://www.biblegateway.com/passage/?search=Luke+11:5-9&version=KJV))
 
 THERE ARE three principal characters in this X quotation; you and the two friends mentioned. The first friend is a desired state of consciousness. The second friend is a desire seeking: fulfillment. Three is the symbol of wholeness, completion. Loaves symbolize substance. The shut door symbolizes the senses which separate the seen from the unseen. Children in bed means ideas that are dormant. Inability to rise means a desired state of consciousness cannot rise to you, you must rise to It. Importunity means demanding persistency a kind of [Brazen impudence](/lectures/brazen-impudence). Ask, seek, and knock mean assuming the consciousness of already having; what you desire.
@@ -20,7 +22,6 @@ Here, to pray means to give thanks for already having what you desire. Only pers
 
 
 ## Summary
-
 ### Characters and Symbols
 
 You, two friends, three as wholeness

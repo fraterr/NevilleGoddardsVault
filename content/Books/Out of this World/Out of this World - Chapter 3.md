@@ -1,3 +1,5 @@
+# Out of this World - Chapter 3
+
 *"Ye shall know the truth and the truth shall make you free"* – ([John 8:32](https://www.biblegateway.com/passage/?search=John+8:32&version=KJV))
 
 Men claim that a true judgment must conform to the external reality to which it relates. This means that if I, while imprisoned, suggest to myself that I am free and succeed in believing that I am free, it is true that I believe in my freedom; but it does not follow that I am free for I may be the victim of illusion.
@@ -76,7 +78,6 @@ That man who is accustomed to call up at will whatever images he pleases, will b
 
 
 ## Summary
-
 ### Truth Need Not Conform to External Reality
 
 - Many claim a true judgment must conform to external reality.

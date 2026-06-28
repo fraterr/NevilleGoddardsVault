@@ -1,3 +1,5 @@
+# The Spiritual Cause
+
 All cause is spiritual! Although a natural cause seems to be, it is a delusion of the vanishing vegetable memory. Unable to remember the moment a state was imagined, when it takes form and is seen by the outer eye its harvest is not recognized, and therefore denied. 
 
 *"There is a moment in each day that Satan cannot find, nor can his watch fiends find it, but the industrious find this moment and it multiplies. And when it once is found, it renovates every moment of the day if rightly placed."* (William Blake) The word Satan means doubt. Desiring a certain state, reason may tell you it will be difficult to attain, and your friends may say it is impossible. If you listen to them and doubt your desire's fulfillment, Satan has made himself known to you. Your protractors - God and Satan - are always with you, for one is faith and the other doubt. Can you imagine you are the one you would like to be, and remain faithful to that Assumption? If you can and do, it will appear, and you will realize that its spiritual cause was the moment of Assumption. 
@@ -49,8 +51,7 @@ Do not blame another for the events in your life. There is no one you can turn t
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 - All cause is spiritual, even if it appears to be natural.
 - Doubt, represented by the term Satan, can hinder the fulfillment of desires.
 - The story of a friend's barber illustrates the power of Assumption in achieving success.

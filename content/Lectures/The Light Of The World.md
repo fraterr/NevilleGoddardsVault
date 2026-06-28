@@ -1,3 +1,5 @@
+# The Light Of The World
+
 In all the revelations which await you, there is none so fundamental as the revelation of [Jesus Christ](/lectures/jesus-christ). He cannot be known outwardly, but must unveil himself from within. This experience will be yours when your immortal eyes are opened inward, into eternity, the world of thought. 
 
 He who awakens in you is the Lord Jesus Christ, but he is unseen by the mortal eye. As an individual the world knows you by your records. They know your date of birth, your parents, your brothers and sisters. Your friends know your weaknesses and limitations, but no one can know the being who awakens within you until the revelation is theirs.
@@ -88,7 +90,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Revelation of Jesus Christ from Within
 
 - The most fundamental revelation is the unveiling of Jesus Christ from within.

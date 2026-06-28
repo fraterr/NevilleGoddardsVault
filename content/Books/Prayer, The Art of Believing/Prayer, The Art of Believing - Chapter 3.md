@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 3
+
 PRAYERS are not successfully made unless there is a rapport between the conscious and subconscious mind of the operator. This is done through imagination and faith.
 
 By the power of imagination all men, certainly imaginative men, are forever casting forth enchantments, and all men, especially unimaginative men, are continually passing under their power. Can we ever be certain that it was not our mother while darning our socks who began that subtle change in our minds? If I can unintentionally cast an enchantment over persons, there is no reason to doubt that I am able to cast intentionally a far stronger enchantment.
@@ -41,7 +43,6 @@ He never waits four months for the harvest. If in four months the harvest will a
 
 
 ## Summary
-
 ### Imagination and Faith Create
 
 - Imagination and faith are the only faculties needed to create objective conditions

@@ -1,3 +1,5 @@
+# The Secret Of Prayer
+
 The secret of scriptural Prayer, as told in the form of a parable, is to pray and never lose heart. One such parable tells of a widow who kept coming to a judge, asking for vindication. At first he did not respond, then he said to himself: *"Although I neither fear God, nor regard man, yet I will exonerate her, because by her much coming, she wearies me."* Parables, like Dreams, contain a single jet of truth. This parable urges persistence in mastering the art of Prayer. Once you have mastered it you will live in the state of thanksgiving, and all through the day you will say over and over again to yourself: *"Thank you, Father."* 
 
 A most effective Prayer is found in the 11th chapter of the Book of John, as: *"Father, I thank thee that thou hast heard me, for thou always hears me."* In this chapter, the story is told of someone who has died and has seemingly gone from this world. But the truth is that no one is dead to you, when you know how to pray. You may no longer touch, see, or hear those you love with your mortal senses; but if you know how to give thanks, you can move from your body of darkness into the world of light and encounter your loved ones there. Therefore, he who would learn how to pray will discover [the great secret](/lectures/the-great-secret) of a full and happy life. 
@@ -58,7 +60,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Secret of Prayer
 - The secret of scriptural Prayer is to pray and never lose heart.
 - The parable of the persistent widow teaches the importance of persistence in mastering the art of Prayer.

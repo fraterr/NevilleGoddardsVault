@@ -1,3 +1,5 @@
+# Before Abraham, Was I Am
+
 The drama tonight opens to the 8th chapter of the Book of John, where the evangelist writes of the state into which he has entered, saying: *"Truly, truly I say to you, before Abraham, was I am."*  
   
 The Bible is a recordation of the eternal spiritual states of the soul which everyone must pass through, beginning with the state of Abraham and culminating in the state called [Jesus Christ](/lectures/jesus-christ). It is important, therefore, to distinguish between the man and the state he occupies at the present time.  
@@ -64,7 +66,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Bible as a Record of States of the Soul
 - The Bible records the spiritual states of the soul that everyone must pass through, starting with Abraham and culminating in Jesus Christ.
 - It is important to distinguish between the man and the state he occupies at a given time.

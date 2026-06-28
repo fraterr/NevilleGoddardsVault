@@ -1,3 +1,5 @@
+# God Is Light
+
 We are told in the 1st Epistle of John, the 1st chapter: *"This is the message we have received from him and proclaim to you, that God is light and in him there is no darkness at all."* Is this a figure of speech or a literal fact? I am telling you from experience: it is a literal fact, for God is light!  
   
 There are three very firm statements made in scripture defining God. God is light. God is love, and God is spirit. John tells us here that God is light, a light in which there is no darkness.   
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God is Light
 - The 1st Epistle of John states that God is light, without any darkness.
 - This is not a figure of speech but a literal fact.

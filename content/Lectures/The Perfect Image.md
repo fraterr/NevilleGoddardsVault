@@ -1,3 +1,5 @@
+# The Perfect Image
+
 "He is our peace, who will make us both one by breaking down the wall of hostility, that he may create in himself one new man in place of the two, so bringing peace.' This being of peace is a person, not a doctrine or philosophy. He is a person who breaks down the wall of hostility between you who are seated here and your true identity, who is a son of God, one with his Father. 
 
 Now, a lady wrote, saying: *"I saw myself in vision as radiantly perfect, yet I knew that we were two. Remembering the words 'Be ye perfect,' I knew that at one time I was not, but now my present reflection is one of perfection. Then I awoke, got out of bed and stumbled into the door, then lost my temper and yelled at my children for pouring soap on my nice clean carpet. So it must have happened in some other dimension of my being, for I certainly am not perfect here."* She is right. While we wear these garments of flesh and blood, we lose our temper; we run into doors and do all the things people do here. Did not the perfect one, who was [the pattern man](/lectures/the-pattern-man), call Herod *"that fox,"* and the scribes and Pharisees *"Whited sepulchers, outwardly beautiful and inwardly full of hypocrisy and iniquity"*? While you are here, encased in your body of flesh and blood, certainly you will lose your temper. Maybe not as you did before you were perfect, but you will to some degree as long as you remain here. 
@@ -46,8 +48,7 @@ I hope I have made it clear how to move into states. It is done through the act 
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The Perfect Image
 - The person of peace is not a doctrine or philosophy, but a person who breaks down the wall of hostility.
 - While in physical form, people will still experience imperfections, but ultimately they will become perfect.

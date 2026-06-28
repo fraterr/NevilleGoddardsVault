@@ -1,3 +1,5 @@
+# All That You Behold
+
 *"All that you behold, though it appears without it is within, of which this world of mortality is but a shadow."* If you will but enter a state in your imagination, and assume its truth, the outer world will respond to your Assumption, for it is your shadow, forever bearing witness to your inner imaginal activity.
 
 Test yourself, and if you prove this to your own satisfaction you will come to the same conclusion the apostles did in the 13th chapter of the Book of Acts. Then you, too, will say: *"I have found in David, the son of Jesse, a man after my heart who will do all my will."* If the world responds to your imaginal activity, is the world not David doing your will? If the Lord claimed that David always does his will, and you, by a simple imaginal act, command the outer world to respond - are you not the Lord?
@@ -82,7 +84,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Outer Reflects the Inner
 
 - The outer world is but a shadow, reflecting your inner imagination

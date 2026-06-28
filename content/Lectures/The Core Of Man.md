@@ -1,3 +1,5 @@
+# The Core Of Man
+
 The last chapter of William Blake's poem, *"Jerusalem,"* (Plate 77), is addressed to the Christians. In it he says: *"Devils are false religions. I know of no other Christianity and no other gospel, than the liberty both of body and mind to exercise the divine arts of Imagination. Imagination, the real and eternal world of which this vegetable universe is but a faint shadow, and in which we shall live in our eternal or imaginative bodies when these vegetable, mortal bodies are no more. The apostles knew of no other gospel. What is that talent which is a curse to hide? What are the treasures of heaven which we are to lay up for ourselves? Are they any other than mental studies and performances?"*
 
 This is [the only Christianity](/lectures/the-only-christianity) Blake could affirm. He never knew any other gospel, or Christ, other than his own wonderful human imagination! If you will accept your human imagination as Christ, and practice the divine art of imagining, called repentance, Christ will rise in you and you will [experience scripture](/lectures/experience-scripture). When you repent, a radical change of thinking must occur. If life is bad, and you practice this divine art of imagining, you will think that life is good.
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### William Blake's Affirmation of Christianity
 - Blake affirms that the only Christianity he knows is the liberty to exercise the divine art of imagination.
 - Imagination is the real and eternal world, and by practicing imagination, one can experience scripture and the truth of Christ.

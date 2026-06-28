@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 20
+
 In the preceding chapter righteousness was defined as the consciousness of already being what you want to be. This is the true psychological meaning and obviously does not refer to adherence to moral codes, civil law, or religious precepts. You cannot attach too much importance to being righteous. In fact, the entire Bible is permeated with admonition and exhortations on this subject.
 
 *"Break off thy sins by righteousness."* ([Dan. 4:27](https://www.biblegateway.com/passage/?search=Daniel+4:27&version=KJV))
@@ -20,7 +22,6 @@ The kingdom (entire creation) of God (your I AM) IS within you. Righteousness is
 
 
 ## Summary
-
 ### Righteousness is the Consciousness of Being
 
 Righteousness means awareness of already being what you want to be.

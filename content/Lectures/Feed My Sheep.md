@@ -1,3 +1,5 @@
+# Feed My Sheep
+
 This morning's subject is *"Feed My Sheep."* This is simply saying: practice the truths you have heard, for it means to shepherd the thoughts of the mind. For most of us, our thoughts are like rambling sheep that have no shepherd. We are called upon now to rule the thoughts, to rule the mind.  
   
 As you know, the kingdom of heaven is as a man starting into a far country, and he calls unto himself his servants and gives them his property, his goods. To one he gives five talents, to another he gives two, and to another he gives one - *"every man according to his several ability."* And when he returned he asked for a reckoning. The one who had five traded and produced another five. He was highly commended and told as he was faithful over a few things he would now be ruler over many. The one who had two, he too traded and produced four, and he too was highly commended and told to enter into the joy of the Lord. But the one who had one was afraid because his master - so he thought - was a hard man, and so he buried his talent in the earth and did not expand it. But I think you know the story. He was condemned for his misuse of the talent. It was taken from him and given to the one who had the most, the one who had ten.  
@@ -42,7 +44,6 @@ Just imagine what love God has bestowed upon us that we should be called the Son
 
 
 ## Summary
-
 ###  The metaphor of the talents
 - The story of the talents from the Bible is used to illustrate the importance of practicing and expanding our understanding of the truth we have learned.
 - Talents that are not exercised become dormant and ineffective.

@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 1
+
 *"Pray for my soul, more things are wrought by Prayer than this world Dreams of"* (Tennyson).
 
 Prayer is an art and requires practice. The first requirement is a controlled imagination. Parade and vain repetitions are foreign to Prayer. Its exercise requires tranquility and peace of mind, *"Use not vain repetitions,"* for Prayer is done in secret and *"thy Father which seeth in secret shall reward thee openly."*
@@ -46,7 +48,6 @@ If a physical fact can produce a psychological state, a psychological state can 
 
 
 ## Summary
-
 ### The Essence of Prayer is Faith
 
 - Prayer is an art requiring practice and controlled imagination, not empty formulas

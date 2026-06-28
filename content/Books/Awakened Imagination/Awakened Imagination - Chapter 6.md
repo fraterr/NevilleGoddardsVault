@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 6
+
 THE INNER world was as real to Blake as the outer land of waking life. He looked upon his Dreams and visions as the realities of the forms of nature. Blake reduced everything to the bedrock of his own consciousness.  
 *"The Kingdom of Heaven is within you."* ([Luke 17:21](https://www.biblegateway.com/passage/?search=Luke+17:21&version=KJV))  
 The Real Man, the Imaginative Man, has invested the outer world with all of its properties. The apparent reality of the outer world which is so hard to dissolve is only proof of the absolute reality of the inner world of his own imagination.  
@@ -42,8 +44,6 @@ That we... *"speaking the truth in love, may grow up into Him in all things, whi
 
 
 ## Summary
-
-
 ### Blake's View of Inner Reality
 
 - William Blake believed the inner world of imagination was more real than the outer physical world

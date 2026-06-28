@@ -1,3 +1,5 @@
+# Power And Wisdom
+
 Although man develops more and more power on earth, it is like kindergarten, compared to the power that is his in the New Age. Christ within you as your hope of glory is the personification of this power 
 
 Knowing himself to be all power, Jesus turned to those who followed him, and said: *"Wait in the city until you are clothed with power from on high."* You are clothed with that power when the Holy Spirit, symbolized as a dove, descends upon you. 

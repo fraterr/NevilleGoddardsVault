@@ -1,3 +1,5 @@
+# The Pruning Shears Of Revision
+
 This morning's subject is *"The Pruning Shears of Revision"*. I firmly believe that if you will wisely and daily use the pruning shears of Revision that you will find there is no objective beyond your ability to realize. And I mean that seriously, no objective beyond your ability to realize.
 
 When I was a boy of seven, a lady said to me, *"I have had a vision concerning you. I'll make it now very, very clear to you--I do not know what it is you are going to do, but I've been shown you will do something that through the centuries after you are gone man will not undo it. I can see it and through the centuries you will grow in stature long after you have gone. And then three men will be mentioned in hundreds of years to come and you will be one of the three when something is discussed that was done for man."*
@@ -59,7 +61,6 @@ Take anything; you have a child today: we took all the requests this morning, th
 
 
 ## Summary
-
 ### The Power of Revision
 - The author believes that by using the power of Revision daily, one can achieve any objective.
 - When the author was young, a woman predicted that he would do something significant that would be discussed for centuries.

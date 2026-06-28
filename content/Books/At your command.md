@@ -1,3 +1,5 @@
+# At your command
+
 Can man decree a thing and have it come to pass? Most decidedly he can! Man has always decreed that which has appeared in his world and is today decreeing that which is appearing in his world and shall continue to do so as long as man is conscious of being man. Not one thing has ever appeared in man’s world but what man decreed that it should. This you may deny, but try as you will you cannot disprove it, for this decreeing is based upon a changeless principle. You do not command things to appear by your words or loud affirmations. Such vain repetition is more often than not confirmation of the opposite. Decreeing is ever done in consciousness. That is; every man is conscious of being that which he has decreed himself to be. The dumb man without using words is conscious of being dumb. Therefore he is decreeing himself to be dumb.
 
 When the Bible is read in this light you will find it to be the greatest scientific book ever written. Instead of looking upon the Bible as the historical record of an ancient civilization or the biography of the unusual life of Jesus, see it as a great psychological drama taking place in the consciousness of man.
@@ -240,8 +242,6 @@ You have become so enmeshed in the belief that you are man that you have forgott
 
 
 ## Summary
-
-
 ### The Nature of God and Reality
 
 - God is your awareness, your consciousness of being - the *"I AM"*. This is the creative power within you.

@@ -1,3 +1,5 @@
+# A Parabolic Revelation
+
 It is in you as a person that [the nature of God](/lectures/the-nature-of-god) is revealed, for a scriptural episode is not a record of an historical event, but a parabolic revelation of truth.  To see Jesus or David as an historical character is to see truth tempered to the weakness of your soul.  You must see what the characters represent, rather than the characters themselves.  This is true for every story in scripture, for every episode will unfold within you.
 
 The title of the 54th Psalm is translated as *"David is hiding with us"* in the King James Version, and *"David is in hiding among us"* in the Revised Standard Version; but the title should read: *"David is in hiding within us,"* for that is where he is, as well as every character in scripture.  When I say, with Blake: *"[All that you behold](/lectures/all-that-you-behold), though it appears without it is within, in your Imagination of which this world of mortality is but a shadow,"* I mean that literally, for the drama of life unfolds from within.
@@ -72,7 +74,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Scripture Unfolds Within
 
 - Biblical stories reveal truth and unfold within man, not external historic events

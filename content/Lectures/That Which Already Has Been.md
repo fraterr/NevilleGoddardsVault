@@ -1,3 +1,5 @@
+# That Which Already Has Been
+
 This platform is concerned only with [the great secret](/lectures/the-great-secret) of life. Here we are convinced that the Supreme Power that created and sustains the universe is Divine Imagining, and it does not differ from human imagination save in degree of intensity. So God-in-man is your wonderful Imagination; that is God. We tell you that Imagination creates Reality, but bear in mind that at this human level on earth it takes time and persistence. If we will persist in the image, live in it, sleep in it, breathe in it, it will crystallize into tangible form. Night after night we take different facets of this truly great secret, and as we turn to the greatest book on Imagination in the world, we treat it differently. So, as we turn to it, bear in mind that the Bible is addressed to the Imagination, not to the man of sense or the man of reason - the one that is *"lost"* or *"dead"* or *"sound asleep."*
 
 We will take a simple little verse and show you why it is not addressed to the natural man, [Ecclesiastes 3:15](https://www.biblegateway.com/passage/?search=Ecclesiastes+3:15&version=KJV): *"That which is, already has been; that which is to be, already has been; and God seeks what has been driven away."* The *"natural man"* cannot grasp that, for to him reality is based only on the evidence of the senses. The man of reason could justify the verse's end, saying if it has any meaning then the writer must mean recurrence. The sun comes every day and the moon completes its cycle and the seasons come and go. If we took a picture of the universe today, the scientists can compute how long it will take to return to this point in the picture. So the intellectual man could justify the verse; but that is not what is meant, for it is addressed not to the man of reason or the man of sense, but to the man of Imagination. What is it all about? *"That which is, already has been; that which is to be, already has been, and God seeks what has been driven away."*
@@ -49,7 +51,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Great Secret of Life
 - The platform is focused on the secret of life, which asserts that the Supreme Power that created and sustains the universe is Divine Imagining, synonymous with human imagination.
 - Imagination has the power to create reality, but persistence and time are required for manifestation at the human level on earth.

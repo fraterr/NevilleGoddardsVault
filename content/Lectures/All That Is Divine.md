@@ -1,3 +1,5 @@
+# All That Is Divine
+
 In the nature of things it is impossible for any child born of woman to go unredeemed, for the moment he says, *"I am,"* he is proclaiming all that is divine in his flesh. Therefore, God cannot cast away that which constitutes the *"I"* of man without casting himself away, and that is impossible. 
 
 Scripture teaches in the form of parables, and we must learn to distinguish between the parable told and its message. In the 18th chapter of the gospel of Matthew we read that he placed a child in the midst of them and said, *"See that you do not despise one of these little ones; for I tell you that in heaven their angels always behold the face of my Father who is in heaven."* The word ''angel'' means ''a messenger; to bring forth,'' and the word translated *"child"* means *"an infant; a term of endearment."* Here we find a child is always beholding the face of the Father who is in heaven and bringing forth his message by becoming what he beholds. 
@@ -76,7 +78,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Every Child is Redeemed
 
 - No child of woman can go unredeemed, for saying "I am" proclaims the divine

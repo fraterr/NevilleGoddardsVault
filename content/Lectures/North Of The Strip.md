@@ -1,3 +1,5 @@
+# North Of The Strip
+
 On this platform we believe that God is all Imagination and God is man (spiritual man, not the garment of skin he wears). Therefore man is all Imagination. We believe also that God, being the only creator, and God being man, then we are creators, that life itself is an activity of Imagination. The whole world in which we live is a world of Imagination. Tonight we hope to show it in such a manner that you will be encouraged to go out and prove it. Everyone can become what he or she desires to be, yet the real being is invisible and you see only its manifestation, for God is spirit, therefore man is spirit, and when we speak of spirit we mean imagining.
 
 Here are two wonderful case histories, so follow closely and try to duplicate the technique. The lady who gave these to me does not differ from anyone here, for God is man. We are that man. I do not mean male/female, for these are the garments woven for man (generic man, which is God) to wear.
@@ -60,7 +62,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Belief in Imagination and Creation
 - God is all Imagination and God is man, therefore man is all Imagination.
 - Life itself is an activity of Imagination, and the whole world is a world of Imagination.

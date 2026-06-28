@@ -1,3 +1,5 @@
+# Barabbas Or Jesus
+
 Tonight's subject is *"Barabbas or Jesus."* This is the greatest trial that ever took place in eternity. You have read of trials in countries where billions are involved. It means nothing compared to this trial. This is the greatest of all trials. When we read the scriptures we find things like the raising of Lazarus, which is the most fantastic thing you can imagine. A man who was dead for four days and his sister said: *"By this time there is an odor"* and he raises Lazarus, and yet only one Evangelist records it - only John tells the story. Matthew, Mark, and Luke do not mention the story of Lazarus. How could you tell the story of a man in this world who could raise someone who had decayed and bring him back to life, as we understand life, and not tell it as part of his biography? I could take you through the many stories and show you that one story is told by two, and sometimes three, and only by one, but here, in this story of the trial, all mention it. It has tremendous significance. The story of the greatest trial that ever took place in eternity.  
   
 May I tell you: it is taking place here tonight and you are the witnesses. You are the ones who will either cry out for the release of one or the other. It is entirely up to you, for this is the story; it must take place in this manner. The supreme effort of God to reveal himself in the present tense was the coming of Jesus. Jesus came to reveal God as the eternal contemporary. That is the trial. One believes it or they disbelieve it. But here is this supreme effort to reveal himself in the present tense - for the present tense is *"I AM,"* - that is my name forever. I have no other name.  
@@ -90,7 +92,6 @@ So, I am proud to say I am a Jew because I am a Christian. I have been born from
 
 
 ## Summary
-
 ### The Greatest Trial in Eternity
 - The trial of Barabbas or Jesus is the greatest trial in eternity.
 - It is greater than any trial involving billions of dollars.

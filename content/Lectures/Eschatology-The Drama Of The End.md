@@ -1,3 +1,5 @@
+# Eschatology-The Drama Of The End
+
 The word *"disciple"* means *"learner"*, and anyone who hears God's pattern of salvation from one who has experienced it and believes, hungering to learn more, is a disciple. Tradition tells us Peter, James, and John were disciples. No, you are a disciple if you believe my words!  
   
 Now, when I speak of Jesus, I am speaking of [the pattern man](/lectures/the-pattern-man), for *"He has made known unto me the purpose of his will which he set forth in Christ as a plan (a pattern) for the fullness of time."* That pattern has unfolded in me and I can tell you from experience: [Jesus Christ](/lectures/jesus-christ) is the unfoldment of the Father and the Son. If you believe me, you are my disciples.  
@@ -59,8 +61,7 @@ In the 1st chapter of Hebrews, we are told that Jesus is the express image of hi
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Disciples are Learners
 - The word "disciple" means "learner" and anyone who hears the pattern of salvation from someone who experienced it is a disciple.
 - Peter, James, and John were disciples, but anyone who believes the words of Jesus can also be a disciple.

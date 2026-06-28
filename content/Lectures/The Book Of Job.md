@@ -1,3 +1,5 @@
+# The Book Of Job
+
 Tonight we will speak on the Book of Job, possibly the most misquoted book in the world. I dare say all day long you use passages, and you aren't aware you are misquoting this Book of Job. For no one knows who wrote the book. It bears the title of its hero, as so many books of the Bible: the Book of Joshua, Nehemiah, Ezra, Daniel, Ruth - so many, where the name of the hero is named. That is the Book of Job. The word *"Job"* from famous scholars by analysis, means: *"Where is my father?"* You and I have heard it as *"the persecuted one,"* but the central point of the narrative is that Job was completely innocent - not guilty of any offense, but simply the victim of the most cruel experiment by God. The very last chapter reveals that it was all by God. Some scholars along the way or some scribe inserted some little story in the first chapter which is suspect, because they couldn't believe that God could do that to man. So they claim that a pact was made between Satan and God allowing Satan to do it - Satan the accuser, Satan the devil; but Satan disappears in the very first chapter and never reappears. He does just for a moment, but he doesn't in the forty-two chapters, not even in the epilogue. And so we know that this cruel experiment was by God.
 
 Now, you are Job, I am Job, the world is Job - the world of humanity. And to approach it as if it were an object lesson in patience - patience under stress, under trial - is to go astray at the very start. That is not the purpose of the story. I hope I can get it over tonight as I see it. If I were to place it in the Bible, I would place it at the very end of the Old Testament, for it seems to lead right into the revelation of the New Testament. But I am not rewriting the Bible or rearranging it - but were I to place it, that is where I would put it. It leads right into the unfolding of the vision as we find it in the gospels and the epistles. If you are not familiar with it, let me attempt to lead you through the highlights of Job.
@@ -67,7 +69,6 @@ He lived 140 years. Every letter of the Hebrew alphabet has a numerical value an
 
 
 ## Summary
-
 ### Introduction
 - The Book of Job is often misquoted and nobody knows who wrote it.
 - The word "Job" means "Where is my father?" and is not related to being persecuted.

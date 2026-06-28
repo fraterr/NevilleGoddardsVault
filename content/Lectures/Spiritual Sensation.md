@@ -1,3 +1,5 @@
+# Spiritual Sensation
+
 The Reverend Dr. Trusler saw the Bible as secular history, and criticized Blake, saying he needed someone to elucidate his ideas. Blake responded by saying: "You ought to know that what is Grand is necessarily obscure to Weak men. That which can be made Explicit to the Idiot is not worth my care. The wisest of the ancients considered what was not too Explicit as fittest for Instruction because it rouses the faculties to act. 
 
 Why is the Bible more Entertaining and Instructive than any other book? Is it not because it is addressed to the Imagination, which is Spiritual Sensation, and only immediately to the Understanding or Reason."
@@ -74,7 +76,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Reverend Dr. Trusler's criticism
 - Reverend Dr. Trusler saw the Bible as secular history and criticized Blake for needing someone to explain his ideas.
 - Blake responded by stating that grand ideas are necessarily obscure to weak men and that what can be made explicit to an idiot is not worth his concern.

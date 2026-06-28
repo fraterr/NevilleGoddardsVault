@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 25
+
 A miracle is the name given, by those who have no faith, to the works of faith.
 
 *"Faith is the substance of things hoped for, the evidence of things not seen."* ([Heb. 11:1](https://www.biblegateway.com/passage/?search=Hebrews+11:1&version=KJV))
@@ -35,7 +37,6 @@ are so pertinent that they might well have been written with the law of Assumpti
 
 
 ## Summary
-
 ### Faith Enables Law of Assumption
 
 Faith implies hoped for things have substance and are attainable.

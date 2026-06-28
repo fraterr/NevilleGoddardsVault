@@ -1,3 +1,5 @@
+# No Other Foundation 11-4-1968
+
 Defining Christ as God's [power and wisdom](/lectures/power-and-wisdom), Paul makes this statement: *"No other foundation can anyone lay than that which is laid, which is Christ. If you build on it with gold, silver, precious stones, wood, hay or stubble, your work will become manifest. It will be revealed by the day. If the work survives, you will receive a reward. If it is destroyed, you will suffer loss; but you yourself will be saved, but only as through fire."* Then he adds this thought: *"Do you not know that you are the temple of God and the Spirit of God dwells in you?"* ([1 Cor. 3](https://www.biblegateway.com/passage/?search=1+Corinthians+3&version=KJV))
 
 Paul was made an apostle for the purpose of laying the foundation of [Jesus Christ](/lectures/jesus-christ). He did not commission himself as a physical man, but was drafted, called, and sent through an act of grace. When I was drafted, called, and sent, it was with the command: *"Down with the bluebloods."* In other words, down with all church protocol, with anything that would interfere with the individual's direct access to God. There is only one foundation upon which to build. That foundation is I am, and there is no other!
@@ -78,7 +80,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Christ as the Only Foundation
 - Paul defines Christ as God's power and wisdom and states that there is no other foundation than Christ.
 - Building on any other foundation will result in the manifestation of one's work and its fate will be revealed.

@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 6
+
 *"For if ye believe not that I AM, ye shall die in your sins."* ([John 8:24](https://www.biblegateway.com/passage/?search=John+8:24&version=KJV))
 
 *“All things were made by him; and without him was not anything made that was made.”* This is a hard saying for those trained in the various systems of orthodox religion to accept, but there it stands. All things, good, bad and indifferent, were made by God. *“God made man (manifestation) in his own image; in the likeness of God made he him.”* Apparently adding to this confusion it is stated, *“And God saw that his creation was good.”* What are you going to do about this seeming anomaly? How is man going to correlate all things as good when that which he is taught denies this fact? Either the understanding of God is erroneous or else there is something radically wrong with man’s teaching.
@@ -50,7 +52,6 @@ In like manner go to the end of that which you seek; witness the happy end of it
 
 
 ## Summary
-
 ### All Things Made By God
 
 All things were made by God (consciousness). Man's world reflects his conception of himself.

@@ -1,3 +1,5 @@
+# Blake On Religion
+
 When you are discussing Blake you are discussing one of the greatest spiritual giants of all time. You might just as well discuss St. Paul, for they had the identical visions, the vision of reality. Tonight we can cover only a portion of his gift to the world. In his *"Auguries of Innocence"* he says:  
   
 *“To see a World in a Grain of Sand  
@@ -182,7 +184,6 @@ But we go out and we doubt, for instance, as friends of mine (I call them my fri
 
 
 ## Summary
-
 ### Blake's Vision of Reality
 - Blake had visions of reality similar to those of St. Paul.
 - In his work, "Auguries of Innocence," he describes seeing a world in a grain of sand and a heaven in a wild flower.

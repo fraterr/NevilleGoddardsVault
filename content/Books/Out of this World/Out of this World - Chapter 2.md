@@ -1,3 +1,5 @@
+# Out of this World - Chapter 2
+
 Men believe in the reality of the external world because they do not know how to focus and condense their powers to penetrate its thin crust.
 
 This book has only one purpose – the removing of the veil of the senses – the traveling into another world.
@@ -80,7 +82,6 @@ I can, however, with the ancient teacher say: *"This one thing I do, forgetting 
 
 
 ## Summary
-
 ### Remove the Veil of the Senses
 
 - The book's purpose is removing the veil of the senses to travel into another world.

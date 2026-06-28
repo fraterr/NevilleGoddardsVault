@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 3
+
 Man’s chief delusion is his conviction that there are causes other than his own state of consciousness. All that befalls a man — all that is done by him — all that comes from him — happens as a result of his state of consciousness. A man’s consciousness is all that he thinks and desires and loves, all that he believes is true and consents to. That is why a change of consciousness is necessary before you can change your outer world. Rain falls as a result of a change in the temperature in the higher regions of the atmosphere, so, in like manner, a change of circumstance happens as a result of a change in your state of consciousness.
 
 Be ye transformed by the renewing of your mind.
@@ -25,7 +27,6 @@ O be strong then, and brave, pure, patient and true; The work that is yours let 
 
 
 ## Summary
-
 ### Chief Delusion of External Causes
 
 - All that happens to a man stems from his state of consciousness.

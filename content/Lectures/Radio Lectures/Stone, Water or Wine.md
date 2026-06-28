@@ -1,3 +1,5 @@
+# Stone, Water or Wine
+
 It has been my privilege and pleasure to address Dr. Frederick Bailes’ Sunday audiences in the past few years. Today, I am to extend the privilege in speaking to you, his unseen audience of the radio. This will be a very practical series of talks for my subjects will be drawn largely from the Bible, the most spiritual of all books. And I am firmly convinced that whatever is most profoundly spiritual is, in reality, most directly practical. All mistakes made in Biblical interpretation come from referring statements of which the intention is spiritual and mystical, and implying principles or states to times, persons or places. In one sense, not one work of Scripture is true according to the letter. Yet, I say that every word is true; but the Scriptures are true only as He intended them that spoke them; they are true as God meant them, not as man will have them. A spiritual and symbolical interpretation alone yields truth, whilst a literal acceptation profits nothing. The Bible contains historical elements, but these are always used as picture language of great ideas.
 
 The Gospel narrative is to be studied in order that we may know. It does not convey knowledge immediately. Getting to know is a gradual process – a progressive inner experience. God reveals Himself within us as we are able to receive Him. The deep meanings have always been recognized partially by a few, as will be found by consulting the writings of the seers of all past ages.
@@ -25,7 +27,6 @@ How to love and to adore."
 *
 
 ## Summary
-
 ### Beyond the Literal
 
 The Bible is symbolic, not literal history. Mistakes in interpretation come from implying literal meanings to spiritual intentions. The spiritual interpretation yields truth, not the literal.

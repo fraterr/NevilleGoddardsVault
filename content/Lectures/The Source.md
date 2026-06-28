@@ -1,3 +1,5 @@
+# The Source
+
 Man is seeking the source, the cause, of the phenomena of life. In his search, he grows and outgrows his many concepts of God until he finds the one God he can never outgrow, and therefore can never lose. That is the God which he finds in a first person, present tense experience. 
 
 Here is a true story that verges on this truth. While a friend was shaving, his little girl watched, and questioning him, asked: *"Where does God really live?"* and he absent mindedly answered: *"In the well."* Laughing at his silly answer, the little girl ran to tell her mother. At breakfast that morning when his wife asked why he had made such a statement, he could not answer, but later that day he remembered. 
@@ -104,7 +106,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Man's Search for the Source of Life
 - Man seeks the source, the cause of life's phenomena.
 - As man's concepts of God evolve, he discovers a personal, present-tense experience of God that he can never outgrow or lose.

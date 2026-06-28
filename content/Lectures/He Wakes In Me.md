@@ -1,3 +1,5 @@
+# He Wakes In Me
+
 Tonight's subject is *"He Wakes in Me"*. I should say *"he wakes in us"*. Who is he? The Lord [Jesus Christ](/lectures/jesus-christ) who is crucified in us. He was never crucified on anything outside of man, and because he was crucified in us, he must rise in us. Paul said: *"I have been crucified with Christ; it is not I who live, but Christ who lives in me. And if we have been united with him in a death like his we shall certainly be united with him in a resurrection like his."*  
   
 The resurrection, although not described in any portion of scripture, is really the high watermark, the very center of the Christian faith. As Paul said: *"If Christ is not raised then our faith is in vain and we are as men the most to be pitied."*  
@@ -68,7 +70,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Crucifixion and Resurrection of Jesus 
 - Jesus is crucified within us and must rise in us.
 - The resurrection is the center of the Christian faith.

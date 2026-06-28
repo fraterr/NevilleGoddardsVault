@@ -1,3 +1,5 @@
+# Sons Of The Most High
+
 President Hoover, a man who began his life here on earth in the state of poverty, yet rose to the highest office in our land made this statement at a convention in San Francisco: *"Human history, with its forms of governments, its revolutions, its wars, and in fact the rise and fall of nations, could be written in terms of the rise and fall of ideas implanted in the mind of men."*
 
 We are told in the 8th chapter of Nehemiah that Ezra read from the Book, from the law of God with interpretation, so that the people understood the reading. It is my hope that I can interpret the words of President Hoover and the meaning behind the words from the Epistle of John so that you may understand their meaning. The words are these: *"I am from above; you are from below. You are of this world; I am not of this world. Now I say to you, unless you believe that I am he you will die in your sins."*
@@ -52,7 +54,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Rise and Fall of Ideas
 
 - President Hoover stated that human history, governments, revolutions, wars, and the rise and fall of nations can be understood in terms of ideas implanted in the minds of men.

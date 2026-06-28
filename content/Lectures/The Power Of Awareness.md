@@ -1,3 +1,5 @@
+# The Power Of Awareness
+
 I think you know how thrilled I am to be back here, for this is the one platform that grants me complete freedom. You know that. Dr. Bailes has never once restricted me or even suggested any condition. He gives me complete freedom of this platform, and for that I am really very happy, for I couldn't be here unless he did.
 
 Now I have brought you this year an entirely new series. I have named this first one “[The Power of Awareness](/books/the-power-of-awareness/the-power-of-awareness)" because it is the foundation stone on which the entire structure rests. Not a thing has happened in the past year to shake that foundation. Many things have happened, many revelations, many experiments, and yet the foundation remains intact.
@@ -64,7 +66,6 @@ Now I see my time is up, and so at this moment I'll take the chair and let us al
 
 
 ## Summary
-
 ### The Power of Awareness - Foundation Stone
 
 - Consciousness is the ultimate reality, referred to as God.

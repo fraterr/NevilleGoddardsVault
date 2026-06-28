@@ -1,3 +1,5 @@
+# Release Barabbas And Crucify Jesus
+
 As you know, we feel that life should be a perpetual increase of the things you love! That, to me is the art of living. In man's ability to live in the end, to live in the feeling of the wish fulfilled, lies man's capacity to live the more abundant life. I do not care what your objective is; feeling that you have it is living a more, abundant life.
 
 First, tonight, let us turn to three who were awake, and by three I mean three men. The whole purpose of life is to awaken and join the chorus of awakened humanity, which is God. We will turn to a great poet, one who passed from this sphere only within the last two or three years, Walter de La Mare.
@@ -58,7 +60,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Art of Living
 - Life should be a perpetual increase of the things you love
 - Living in the feeling of the wish fulfilled allows for a more abundant life

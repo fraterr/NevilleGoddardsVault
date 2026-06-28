@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 15
+
 The Assumption of the wish fulfilled is the ship that carries you over the unknown seas to the fulfillment of your dream. The Assumption is everything; realization is subconscious and effortless.
 
 Assume a virtue if you have it not.
@@ -15,7 +17,6 @@ Learn the art of Assumption, for only in this way can you create your own happin
 
 
 ## Summary
-
 ### Assumption is the Ship
 
 Assuming the wish fulfilled carries you to its fulfillment.

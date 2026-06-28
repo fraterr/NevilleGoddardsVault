@@ -1,3 +1,5 @@
+# Bear Ye One Another'S Burdens
+
 The Bible is the most practical book in the world. In it we are told that one named Simon carried the cross behind Jesus. The word *"Simon"* means *"to hear with understanding and consent to what is heard."* And Jesus is your own wonderful human imagination.   
   
 The gospel tells what happens in the soul of Jesus. The events recorded there are seen and heard by none save but Him. Through these experiences He gains the certainty that He is not only the Son of God, but also God Himself. But when he tells his story few will accept it, as his experience of scripture differs greatly from its interpretation by the priests and rabbis. Simon, however, understands what he hears and, consenting to it, he carries the cross.   
@@ -72,7 +74,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Role of Simon and the Law of Christ
 - The Bible tells the story of Simon, who carries the cross behind Jesus, symbolizing understanding and consent to what is heard.
 - Jesus, as our own imagination, gains certainty in his identity as the Son of God and God Himself through his experiences.

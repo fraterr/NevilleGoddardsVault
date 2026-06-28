@@ -1,3 +1,5 @@
+# The Fourfold Gospel
+
 As you know, and I think you do, the Bible is a mystery. A mystery to be known only by revelation. As I told you in the past, a mystery is not a matter to be kept secret but a truth which is mysterious in character. The four Gospels are the flower of the entire Bible. Everything that was promised Israel, as we have it recorded in the 39 books of the Old Testament, came into flower - in the fulfillment of the four Gospels. But even to this day, 2000 years later, many women came seeking, - in the Bible, - for the Christ of whom the prophets spoke and whose coming is told. As we are told, the prophets who prophesied of the grace that was to be yours inquired and searched about that salvation. They inquired what person or time was indicated by the Spirit of Christ within them when predicting the sufferings of Christ and the subsequent glory, but they could not find him. They are all looking for a man, and today the whole vast Christian world turns to a man. Those who deny it think in terms of a man that they deny, but they do not know the Christian mystery.
 
 Paul makes the statement: *"From now on we will regard no one from the human point of view, even though we once regarded Christ from a human point of view we regard him thus no longer."* Yes, even though I once thought of Christ from a human point of view I think of him so no longer. It is something entirely different.
@@ -70,7 +72,6 @@ Then comes the presentation of the ideal servant. [Zech. 3:8](https://www.bibleg
 
 
 ## Summary
-
 ### The Mystery of the Bible
 - The Bible is a mysterious truth that can only be known by revelation
 - The four Gospels are the fulfillment of the promises made in the Old Testament

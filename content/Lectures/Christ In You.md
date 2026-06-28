@@ -1,3 +1,5 @@
+# Christ In You
+
 *"Examine yourselves to see if you are holding to your faith. [Test yourselves](/lectures/test-yourselves)! Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you?"* Now, faith is not complete until through experiment it becomes experience! When you test the Christ in you and prove from experience that it works, then you have the faith. But first you must find who Christ is, where he is, and what he is. You are not called upon to test a tradition of man as something on the outside, but Jesus Christ who is in you!  
   
 Perhaps you heard on the news tonight that the Catholics have just eliminated forty saints. For hundreds of years millions of people have prayed to Saint Christopher, yet now they are being told that he never existed. How many St. Christopher medals and figurines were sold to protect those who went into battle or traveled afar? Believing he was the saint of the traveler, how many put their faith in him? Santa Barbara was named after Saint Barb, who is now believed to be non-existent, yet the cause of the recent broken oil line!  
@@ -69,7 +71,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ###  Testing the Christ Within You
 - Faith becomes complete through experience and testing.
 - The Christ in you is not a tradition or something external, but a real presence within.

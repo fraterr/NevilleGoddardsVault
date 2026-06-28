@@ -1,3 +1,5 @@
+# No Other Foundation 10-10-1969
+
 In Paul's 1st letter to the Corinthians he said: *"No other foundation can anyone lay then that which is laid, which is [Jesus Christ](/lectures/jesus-christ)."* And in his 2nd letter he asked: *"Do you not realize that Jesus Christ is in you?"* Now I ask you: who is this Jesus Christ who is in you? He is your own wonderful human imagination - the foundation stone of your world! Your Dreams create your world, and the dreamer dreaming those Dreams, is your human imagination scripture calls Jesus Christ.
 
 You may think of Jesus as someone other than yourself, someone separate and apart from you, but I tell you, Jesus Christ is in you as your wonderful human imagination. He is the dreamer, the foundation of your day as well as your night Dreams. You may not be able to write a letter, paint a picture, or carry a tune, but you can dream because Jesus Christ is in you.
@@ -88,7 +90,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Foundation of Your World
 - Your Dreams create your world, and the dreamer is your human imagination, which is Jesus Christ.
 - Jesus Christ is within you, as your own imagination, the foundation of your Dreams.

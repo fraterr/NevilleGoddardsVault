@@ -1,3 +1,5 @@
+# Yours For The Taking
+
 There is only one cause for the phenomena of life. That cause is God. Housed in you, God is a person in the most literal sense of the word. Believe me, for I know this from experience. God, the only creator, is pure imagination working in the depth of your soul. God began a good work in you and He will bring it to completion on the day [God's creative power](/lectures/god-s-creative-power) is unveiled in you! God's creative [power and wisdom](/lectures/power-and-wisdom) is defined in scripture as Christ. When Christ unveils himself in you, you will know you are God's power and God's wisdom. 
 
 God, your own wonderful human imagination, underlies all of your faculties, including perception, and streams into your surface mind least disguised in the form of creative, productive fantasy. When you ask yourself what you can do to transcend your present limitation of life, you are dwelling upon the means. God does not ask you to consider the means, but to define the end. Speaking to you through the medium of desire, God asks the question: *"What wantest thou of me?"* Then he tells you not to be concerned with the ways and means, for his ways are unsearchable. They are inscrutable and past finding out. This statement you will find in the 11th chapter of the Book of Romans. So don't be concerned as to how God will fulfill the end, only know that He will. Can you believe your desire is fulfilled? Can you believe it is true? If you can, it is yours for the taking, for nothing is impossible to one who believes. 
@@ -49,7 +51,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of God's Imagination
 - God is the one cause for all experiences in life.
 - God is pure imagination and resides within every person.

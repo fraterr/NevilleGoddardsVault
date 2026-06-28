@@ -1,3 +1,5 @@
+# Occupant Or Inmate
+
 Tonight’s subject is *"Occupant or Inmate."*
 
 An occupant established title to property by dwelling in it and is free to come and go as he chooses. An inmate is confined. Whether it be a prison or asylum, the inmate is restrained by law, yet he is just as free as the occupant, but he does not know it.
@@ -65,8 +67,7 @@ Choose, this night, where you would like to live, for the world is yours and eve
 Now let us go into the Silence.
 
 
-## Summary:
-
+## Summary
 ### Occupant or Inmate
 - Distinguishing between an occupant and an inmate in the context of property ownership and confinement.
 - Relating the concept to the nature of Christ and Man, emphasizing the interconnectedness of God and Man.

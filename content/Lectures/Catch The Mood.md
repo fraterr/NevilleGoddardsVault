@@ -1,3 +1,5 @@
+# Catch The Mood
+
 You will find tonight's message a very practical one. I don't think it will disturb anyone, but there are adjustments to be made concerning what man believes God to be, and what God really is. We are told in Scripture, in the birth of the twins, which begins the great drama as told in Scripture, *"In your limbs..."* and I am speaking now, not of anyone, but of you individually:  
   
 *"In your limbs lie nations twain, rival races from their birth; one the mastery will gain, the younger o'er the elder reign."* ([Genesis 25:23](https://www.biblegateway.com/passage/?search=Genesis+25:23&version=KJV), Moffatt translation)  
@@ -139,7 +141,6 @@ Now let us go into the Silence.
 
 
 ## Summary
-
 ### The Birth of the Twins
 - In the birth of the twins as mentioned in Scripture, there are two rival races from birth: Esau and Jacob.
 - The "second man," Jacob, is the Lord from Heaven, who is sleeping in every individual.

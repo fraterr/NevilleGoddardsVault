@@ -1,3 +1,5 @@
+# The Incarnate Revelation
+
 Recently I read a book called, Vanished Parts of Yesterday, by Lord Frederick Hamilton. In it he tells the story of Catherine the Great - who, when she found the first violet of spring, ordered a sentry to be placed over it to protect it from being plucked. Forgetting to rescind the order, day and night, summer and winter, a sentry stood where 150 years ago, a violet bloomed. The new generation did not know why the sentry was there and he didn't either. It was simply a tradition! 
 
 Make sure no sentry is now standing on your lawn, keeping you from the word of God; for you void the word of God through the traditions of your fathers which have been handed down from generation to generation. 
@@ -105,8 +107,7 @@ Now let us go into the silence.
 
 
 
-## Summary:
-
+## Summary
 ### The Incarnation of Revelation
 
 - The story of Catherine the Great illustrates how traditions can hinder access to the word of God.

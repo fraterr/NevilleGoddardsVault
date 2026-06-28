@@ -1,3 +1,5 @@
+# All Things Exist
+
 *"[All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your imagination of which this world of mortality is but a shadow."*   
 (William Blake)  
   
@@ -67,8 +69,7 @@ Start now to look upon [the great mystery](/lectures/the-great-mystery) of creat
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The World of Imagination and the World of Generation
 
 - Imagination is infinite and eternal, while generation is finite and temporary.

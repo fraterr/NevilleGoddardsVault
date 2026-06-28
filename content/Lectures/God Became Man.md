@@ -1,3 +1,5 @@
+# God Became Man
+
 You are told that God became man that man may become God. You may think you are the man that God, as another, became, but I tell you: you are the God who became man, that man may become you! Because my visions which parallel scripture are accurate, I can boldly say that what I have just told you is true. In the 82nd Psalm we are the speaker, speaking to ourselves, saying: *"I say, 'You are gods, [sons of the Most High](/lectures/sons-of-the-most-high), all of you; nevertheless, you will die like men and fall as one man, O princes.'"* We are the sons of the Most High, and we and our creator are one. Although we are now in a world of men, we have been promised that posterity will serve us and tell of the Lord who wrought it. You and I actually became human, that humanity may become spirit - as we are! You are not a little worm that God became. You were God before you devised the grand experiment, knowing it was the only way that man could become as you are!   
   
 Reverse your thinking: Think of yourself as God and you will have an entirely different feeling about becoming man. Although certain passages of scripture are not understood on this level, their meaning will be revealed, for we made everything because we loved it. Then we became man (man/woman) to raise and glorify our creations. We had to completely forget our true being in order to assume our creation and raise it to our level. The 22nd Psalm begins with our cry of despair: *"My God, my God, why hast thou forsaken me?"* but ends on this triumphant note: *"Posterity will serve him; men will tell of the Lord to the coming generation and proclaim that he has wrought it to those that are yet unborn."* This is not referring to another generation, but to the gods who have not yet discovered they came down, assumed human nature, and then accomplished what they set out to do.   
@@ -33,7 +35,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God became man that man may become God
 - We are the God who became man, that man may become us
 - Our visions parallel scripture and confirm the truth of this statement

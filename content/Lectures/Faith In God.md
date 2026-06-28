@@ -1,3 +1,5 @@
+# Faith In God
+
 In the 11th chapter of the Book of Hebrews, faith is described as: "The assurance of things hoped for, the evidence of things not seen.” By faith we understand that the world was created by the word of God, so things seen are made out of that which does not appear.   
   
 In the Hebraic world, the rabbi is the father of his congregation. Paul called his followers his little children, saying: *"Although you have countless guides in Christ, you do not have many fathers. I became your father in [Jesus Christ](/lectures/jesus-christ) through the gospel. I urge you then to be imitators of me"*   
@@ -55,8 +57,7 @@ I ask you to test your creative power every moment of time. Live with absolute f
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### Faith as described in Book of Hebrews
 - Faith is defined as the assurance of things hoped for and the evidence of things not seen.
 - The world was created by the word of God through faith.

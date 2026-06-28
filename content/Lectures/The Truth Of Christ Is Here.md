@@ -1,3 +1,5 @@
+# The Truth Of Christ Is Here
+
 There is something in this changing, changing world that never changes, and Scripture refers to that which never changes as Truth, So, Paul said, 'The Truth of Christ is here.'
 
 Now he defines Christ as 'the power of God and the wisdom of God.' He confesses that once he thought Christ to be a man. He said, 'Hereafter, I regard no one from the human point of view. Even though I once regarded Christ from the human point of view, I regard him thus no longer.'
@@ -162,7 +164,6 @@ In the 14th chapter of John, he does say, 'but my Father is greater than I.' As 
 
 
 ## Summary
-
 ### The Truth of Christ
 
 - Scripture refers to something unchanging as Truth

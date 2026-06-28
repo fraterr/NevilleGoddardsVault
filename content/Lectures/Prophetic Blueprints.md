@@ -1,3 +1,5 @@
+# Prophetic Blueprints
+
 Tonight's subject is *"Prophetic Blueprints."* Now we could take it on this level, but I will not. To summarize it on this level, may I tell you: if you could conceive of an infinite might as a great computer, and if the imaginal activities of all of us - every man, woman and child in the world - make us free to change this activity at any moment in time, then you could predict the future for this level; for this level is the outpouring or outpicturing of the imaginal activities of men, women, and children in this world. You can prove it in your own individual life by setting a goal and imagining that you are at the end of that goal. Remain faithful to your goal, and no power in this world can stop it in your peculiar individual life. Take it and multiply it by the world, and you will see what it would be on this level. You will see that you and I are free to imagine things that are in conflict with God's purpose, and in the short run we can accomplish them. Yet, it is God's purpose that is ultimately the only true end and that is realized. So, tonight we will take it from a higher level.
 
 If you would know your future, study the story of [Jesus Christ](/lectures/jesus-christ). Jesus Christ is the actual realization of God's prophetic blueprint for man's redemption. Everything said of Jesus Christ will one day be said of you, individually. Everything that he ever experienced, you will experience. Jesus Christ is only the fulfillment of all that was told us in the Old Testament. The old is the plan, the plot, the purpose of God - and Jesus Christ is the fulfillment of that purpose. There is a rabinnical principle that what is not written in Scripture, is non-exisistant. Now, when they speak of Scripture, they meant only the Old Testament. There was no New Testament. The drama of Jesus was this principle. As I stand here tonight, I am speaking from experience. I make no claim to be any other than the man you know me to be. I do not differ from you at all - just a man with all the weaknesses and limitations of any man in this world. Yet, I know this story to be true, and I know it to be true from experience. The five words in the end of Luke could summarize the entire Gospel: *"They told what had happened."* Moffit describes this phrase in Greek. As he translated it: *"They related their own experience."* Tonight, I will relate my own experience, to tell you how true this is.
@@ -49,7 +51,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Prophetic Blueprints
 
 - The world is the outpouring of the imaginal activities of everyone in it.

@@ -1,3 +1,5 @@
+# Feeling is the Secret - Chapter 3
+
 Prayer, like sleep, is also an entrance into the subconscious.
 
 *"When you pray, enter into your closet, and when you have shut your door, pray to your Father which is in secret and your Father which is in secret shall reward you openly"* ([Matthew 6:6](https://www.biblegateway.com/passage/?search=Matthew+6:6&version=KJV)).
@@ -31,7 +33,6 @@ All you can possibly need or desire is already yours. You need no helper to give
 
 
 ## Summary
-
 ### Prayer as Gateway to Subconscious
 
 - Prayer is like sleep, allowing entrance to the subconscious mind.

@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 3
+
 *"And the Lord had respect unto Abel and in his offerings; But unto Cain and to his offering he had no respect."* ([Genesis 4:4, 5](https://www.biblegateway.com/passage/?search=Genesis+4:4,+5&version=KJV))
 
 *"If we search the Scriptures, we will  become aware of a far deeper  meaning in the above quotation than  that which a literal reading would give  us. The Lord is no other than your  own consciousness "*. . . say unto the  children of Israel, I AM hath sent me  unto you.*"  ([Exodus 3:14](https://www.biblegateway.com/passage/?search=Exodus+None&version=KJV).) "*I AM" is the self-definition of the Lord.
@@ -67,7 +69,6 @@ After their fourteen-day vigil, a man went into the one and only jewelry store i
 
 
 ## Summary
-
 ### Abel's Gift Pleases God
 
 - Abel's offering of faith pleases God, Cain's earthly offering does not

@@ -1,3 +1,5 @@
+# The Secret Of Causation
+
 *"The secret of imagining is the greatest of all problems, to the solution of which every man should aspire; for supreme power, supreme wisdom, and supreme delight, lie in the solution of this great mystery."* Imagination is the [Jesus Christ](/lectures/jesus-christ) of scripture, and when you solve [the great mystery](/lectures/the-great-mystery) of imagining, you will have found the cause of the phenomena of life. Imagination is called *"Jehovah"* in the Old Testament and *"Jesus"* in the New, but they are one and the same being. Divine Imagination, containing all, reproduces itself in the human imagination; therefore, [all things exist](/lectures/all-things-exist) in the human imagination. When you solve the problem of imagining, you will have found Jesus Christ, the secret of causation. 
 
 Let me share with you two experiences which came to me this past week. The first lady said: "Returning from a wonderful cruise recently, I checked my baggage at La Guardia Airport, bound for Chicago, where I expected to spend a few days with friends. Arriving in Chicago, I discovered that the bag which contained most of my clothes and all of the presents I had bought for my friends and relatives - as well as a locket I had had made from the engagement and wedding band my late husband had given me - was missing. I immediately reported the loss to the airline, but when I arrived in California there was still no trace of it. 
@@ -74,7 +76,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Imagination as the Secret of Causation
 - Imagination is the key to understanding the cause of life's phenomena.
 - Imagination is referred to as Jehovah in the Old Testament and Jesus in the New Testament.

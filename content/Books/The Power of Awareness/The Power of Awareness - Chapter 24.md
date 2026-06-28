@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 24
+
 This book would not be complete without some discussion of failure in the attempted use of [the law of Assumption](/lectures/radio-lectures/the-law-of-assumption). It is entirely possible that you either have had or will have a number of failures in this respect – many of them in really important matters. If, having read this book, having a thorough knowledge of the application and working of the law of Assumption, you faithfully apply it in an effort to attain some intense desire and fail, what is the reason? If to the question *“Did you persist enough?”* you can answer Yes – and still the attainment of your desire was not realized, what is the reason for failure?
 
 The answer to this is the most important factor in the successful use of the law of Assumption. The time it takes your Assumption to become fact, your desire to be fulfilled, is directly proportionate to the naturalness of your feeling of already being what you want to be – of already having what you desire. The fact that it does not feel natural to you to be what you imagine yourself to be is the secret of your failure. Regardless of your desire, regardless of how faithfully and intelligently you follow the law, if you do not feel natural about what you want to be, you will not be it. If it does not feel natural to you to get a better job, you will not get a better job. The whole principle is vividly expressed by the Bible phrase *“you die in your sins”* — you do not transcend from your present level to the state desired.
@@ -17,7 +19,6 @@ Emerson
 
 
 ## Summary
-
 ### Reasons for Failure
 
 Failures using this law are possible even with thorough knowledge and effort.

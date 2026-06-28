@@ -1,3 +1,5 @@
+# Awakened Imagination
+
 As you have heard, this morning's subject is *"Awakened Imagination"*. It is my theme for the entire series of nineteen lectures. Everything is geared towards the awakening of the imagination. I doubt if there is any subject on which clear thinking is more rare than the imagination. The word itself is made to serve all kinds of ideas. many of them directly opposed to one another. But here this morning I hope to convince you that this is the redeeming power in man. This is the power spoken of in the Bible as the Second Man. *"the Lord from Heaven"*.  
 This is the same power personified for us as a man called Christ Jesus.  
   

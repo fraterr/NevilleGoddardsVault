@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 4
+
 EVERYONE is amenable to the same psychological laws which govern the ordinary hypnotic subject.
 
 He is amenable to control by suggestion. In hypnosis, the objective senses are partly or totally suspended. However, no matter how profoundly the objective senses are locked in hypnosis, the subjective faculties are alert, and the subject recognizes everything that goes on around him.
@@ -37,7 +39,6 @@ Control of the subconscious is dominion over all. Each state obeys one minds con
 
 
 ## Summary
-
 ### Subjective Mind in Hypnosis
 
 - Same psychological laws govern hypnosis subjects

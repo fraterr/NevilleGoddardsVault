@@ -1,3 +1,5 @@
+# Behold The Dreamer
+
 In the 37th chapter of Genesis we read the story of Joseph, a dreamer whose Dreams always came true. His father, Israel, loved Joseph more than any of his other sons, and made him a long robe with sleeves. Now I ask you, who is Joseph? He is the foreshadowing of [Jesus Christ](/lectures/jesus-christ), your true identity. Historical evidence for Jesus, the man, is nonexistent, yet he is the only reality and the true identity of every child born of woman. When you say within yourself, *"I am,"* that is Jesus Christ, he who is dreaming this whole vast world into being.   
   
 One day you will understand this truth, for:
@@ -82,7 +84,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Joseph, the Dreamer
 
 - Joseph, a dreamer in the book of Genesis, is a foreshadowing of Jesus Christ.

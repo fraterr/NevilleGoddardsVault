@@ -1,3 +1,5 @@
+# The Mystery Of Inspiration
+
 Inspiration is a divine action which qualifies the individual to receive and communicate sacred revelation. The prophets, apostles, and incurrent eyewitnesses are those who receive such inspiration. 
 
 The prophets' visions are foreshortened. They see as present what is really future. Prophesying of the grace that is to be yours, they searched and inquired what person or what time was indicated by the spirit of Christ in them, when they predicted the sufferings of Christ and the subsequent glory. It was revealed to them that they were serving not themselves, but you! 
@@ -93,7 +95,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Inspiration is a divine action
 - Inspiration qualifies individuals to receive and communicate sacred revelation.
 - Prophets, apostles, and eyewitnesses receive inspiration.

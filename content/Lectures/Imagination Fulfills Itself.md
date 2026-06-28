@@ -1,3 +1,5 @@
+# Imagination Fulfills Itself
+
 I say imagination creates reality, and if this premise is true then imagination fulfills itself in what your life becomes. Although I have changed the words, what I am saying is not new. Scripture says it in this manner: *"Whatsoever you desire, believe you have received it and you will."* This statement goes back two thousand years, yet even before that Jeremiah tells of the same principle in his story of the potter and his clay. 
 
 But until imagination becomes a part of your normal, natural currency of thought, you will not act consciously. Like breathing, this awareness must become so much a part of you that you will not turn to the left or the right to praise or blame anyone. When you know this presence it will not matter if you started life behind the eight-ball, or in a palace; as a poor, or a rich child; you will realize that life is always externalizing what you are imagining. 
@@ -84,7 +86,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Imagination Creates Reality
 
 - Imagination fulfills itself in your life.

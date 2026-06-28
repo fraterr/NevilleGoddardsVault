@@ -1,3 +1,5 @@
+# The Forming Of Christ In You
+
 That which is profoundly spiritual is in reality most directly practical. Tonight I will tell you a story from scripture which is profoundly spiritual. It is misunderstood in the world, but I know its inner meaning and will show you how altogether practical it is.
 
 In all the revelations which await you, there is none so fundamental as the forming of [Christ in you](/lectures/christ-in-you). How is it formed? By whom and where is the sphere of the forming? In order to answer these questions we will turn to scripture.
@@ -96,7 +98,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Story of the Twins
 - Paul tells the story from scripture of the twins in the womb of Rebecca.
 - The Lord tells Rebecca that two nations will be born from her, one stronger than the other.

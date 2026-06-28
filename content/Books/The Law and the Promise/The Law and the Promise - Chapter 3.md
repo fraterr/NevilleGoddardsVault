@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 3
+
 *"Oh, let your strong imagination turn the great wheel backward, until Troy unburn."* Sir John Collings Squire, *"The Birds"*
 
 *"All life is, throughout the ages, nothing but the continuing solution of a continuous synthetic problem."* — H. G. Wells
@@ -125,7 +127,6 @@ Revise each day.
 
 
 ## Summary
-
 ### Imagining Transforms Reality
 
 Imagination transforms reality. By revising scenes in imagination, we can change the past and reorder the present. Though the senses show a solid world, imagination alters its themes.

@@ -1,3 +1,5 @@
+# The Lord, Our Potter
+
 In the 64th chapter of the Book of Isaiah we read: *"O Lord, thou art our Father; we are the clay. Thou art our potter; we are the work of thy hand."* When you hear the words Lord, Father, and potter, do you think of another? I certainly hope not. 
 
 The word *"Lord"* is Jod He Vau He [pron. *"Yod Hey Vav Hey"*] which is defined as *"I AM"*. Your own wonderful I AMness is the Lord, your Father. And the word *"potter"* means *"imagination"* that which is shaping your world. Imagination is the Lord, the potter, the shaper of your world, molding it into its present form. 
@@ -80,8 +82,7 @@ Now let us go into the silence.
 
 
 
-## Summary:
-
+## Summary
 - The verse in Isaiah states that the Lord is our Father and we are the clay, implying that imagination is the Lord and the potter shaping our world.
 - A story is shared about a prisoner who imagines his escape and sees it become a reality through his imaginal activity.
 - The text emphasizes that attempting to change circumstances without changing one's imaginal activity is futile.

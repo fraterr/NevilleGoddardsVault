@@ -1,3 +1,5 @@
+# Freedom
+
 When asked: *"What is the greatest of all the commandments?"* God answered: *"Hear O Israel, the Lord our God, the Lord is one."* Accept this commandment! Live by it and you will be free from all secondary causes. There is only one God. He is the father of us all who is above all, through all, and in all. He is a universally diffused individuality whose name forever and ever is I AM. You may not be aware of who you are, what you are, or where you are; but by being aware, you are mentally saying I am. Every conscious being says I am; and if there is only one I am, then I am one individual - diffused! I am the sole cause of all that is. All things were made through imagining, and without awareness was not anything made that was made.   
   
 In the 8th chapter of Matthew, one of the miracles of scripture is recorded as an acted parable. It is said that when he entered the boat, he fell asleep and a great storm arose; so they woke him saying: *"Lord we perish, save us."* And he said: *"Why are you afraid, O men of little faith?"* Then he rose and rebuked the wind and the sea, and there was a great calm. If there is only one cause, then he who quelled the wind and the sea is the one who caused the storm. There cannot be another. If there is confusion in your life, and you resolve it in your imagination, and the world bears witness to what you have done - you caused the change. And since there is no other cause, then did you not cause the confusion also? There is only one God and Father of us all who is above all, through all, and in all. If He is in every being who says I am, and there is only one God, no one can accuse another; for God's name is not he is, but I am. No matter what appears on the outside, I am its cause. Assume full responsibility for the things you observe, and if you do not like what you see, know you have the power to change them. Then exercise that power and you will observe the change you caused. If you are truly willing to assume that responsibility, you are set free.   
@@ -49,7 +51,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Greatest Commandment
 - God declared that the greatest commandment is to recognize that there is only one God who is above all, through all, and in all.
 - By being aware of our existence, we acknowledge our oneness with God and become individual aspects of this universal diffused individuality.

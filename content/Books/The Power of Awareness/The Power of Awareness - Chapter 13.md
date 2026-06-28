@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 13
+
 Man’s Perceptions are not bounded by organs of Perception: he perceives more than sense (though ever so acute) can discover.
 
 However much you seem to be living in a material world, you are actually living in a world of imagination. The outer, physical events of life are the fruit of forgotten blossom-times — results of previous and usually forgotten states of consciousness. They are the ends running true to ofttimes forgotten imaginative origins.
@@ -26,7 +28,6 @@ The Lord of hosts will not respond to your wish until you have assumed the feeli
 
 
 ## Summary
-
 ### Perception Beyond Sense
 
 Man perceives beyond physical senses, in imagination's world.

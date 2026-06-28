@@ -1,3 +1,5 @@
+# Christ In Man
+
 Christ is the reality, the God that is in Man. It is he who breaks down the dividing wall between himself and Man and makes of the two, one new Man. Is this all done on the other side of the veil, or is there something that we can do on this side of that dividing wall? Let me share with you a story of a very dear friend of mine, one who has had most of my experiences. Listen to me carefully, for [God speaks to man](/lectures/god-speaks-to-man) through the medium of dream and unveils himself through revelation. This is his letter.  
   
 'I awoke at 6:00 o'clock in the morning. It was too early to get up, so I decided to lie in bed and do some purposeful imagining. Then this thunderous voice came from within me declaring, 'I AM GOD! I AM SELF-CONTAINED! I AM SELF SUFFICIENT!' It kept repeating these words over and over and over until finally I said to it, 'I know, and I'm trying to do something about it, but you are speaking so loudly I cannot imagine.' But the voice continued 'I AM GOD! I AM SELF-CONTAINED! I AM SELF SUFFICIENT!' over and over again. It seemed to me like rape, if you can't prevent it, relax and enjoy it, so I did, and fell asleep enjoying this declaration.  
@@ -62,8 +64,7 @@ Salvation is of the Jews, as it was revealed in the Old Testament and fulfilled 
 Good night.
 
 
-## Summary:
-
+## Summary
 ### Christ In Man as the Reality
 - Christ breaks down the dividing wall between himself and Man, making them one new Man.
 - The question is whether this is only done on the other side of the veil or if there is something we can do on this side.

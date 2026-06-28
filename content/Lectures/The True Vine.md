@@ -1,3 +1,5 @@
+# The True Vine
+
 Today, as you know, is Good Friday, and undoubtedly millions have attended services and heard some portion of the last seven words of Christ; but I wonder how many of them know who he is and what the words really mean. I tell you: [Jesus Christ](/lectures/jesus-christ) is your awareness, your I Amness, who became as you are that you may be as he is. I want you to accept this literally, for it is true. 
 
 Now, each one of the seven words spoken of today is really a sentence, the first of which is: -*"Father, forgive them for they know not what they do,-"* and the last is: -*"Father, into thy hands I commit my Spirit.-"* This is only a portion of the quote from the 5th verse of the 31st chapter of the Book of Psalms. The complete thought is this: -*"Father, into thy hands I commit my Spirit. Thou hast redeemed me, O Lord, faithful God.-"* Here we find the redeemer to be one with the redeemed, for speaking to the Father, he says: -*"Thou hast redeemed me,-"* yet he has already confessed -*"I and the Father are one.-"* So you see the redeemer and the redeemed are really one. 
@@ -79,7 +81,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Jesus Christ as Awareness
 - Jesus Christ is the awareness, the I Amness, of each individual.
 - Jesus Christ became human so that humans can become like him.

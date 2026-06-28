@@ -1,3 +1,5 @@
+# He Dreams In Me
+
 The Old Testament calls upon God to awake, saying: "Rouse thyself! Why sleepest thou, O Lord? Awake! Do not cast us off forever! Having hurled Himself into time/space, God is dreaming he is man and sees Himself as enslaved and cast off.   
   
 But in the New Testament, God succeeds in awakening in man, and in the Book of Ephesians calls upon man to *"Awake and rise from the dead and Christ will give you life."* Tonight I will take the two and try to show you who this presence really is. Your own wonderful human imagination is God. It is your imagination who is calling upon you to awake, for you are all imagination and God is you and you in Him. Your external body is the imagination, and that is God Himself.   

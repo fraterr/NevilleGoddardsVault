@@ -1,3 +1,5 @@
+# There Is No Fiction
+
 Fiction is defined as an imaginary construction which is unreal - as opposed to truth, or reality. But what is real and what is imaginary when, in a spiritual sense, all existing things are imaginary?
 
 Mark tells the parable of the fig tree, which - having been cursed - was found withered to its roots. Calling attention to this fact, awakened imagination) said: *"Have [faith in God](/lectures/faith-in-god). Truly I say to you, whoever says to this mountain, 'Be taken up and cast into the sea,' and does not doubt in his heart that what he has said will come to pass, it will be done for him. Therefore I tell you, whatever you desire, when you pray believe you have received it and you will."* [Mark 11](https://www.biblegateway.com/passage/?search=Mark+11&version=KJV).
@@ -108,7 +110,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Fiction vs Reality
 - Fiction is considered an unreal imaginary construction, while reality is defined as the truth.
 - However, in a spiritual sense, all existing things can be seen as imaginary.

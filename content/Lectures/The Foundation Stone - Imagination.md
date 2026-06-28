@@ -1,3 +1,5 @@
+# The Foundation Stone - Imagination
+
 We believe that man can create anything he desires. We believe the Universe is infinite response and the one who causes it is the individual perceiver. Nothing is independent of your perception of it. We are so interwoven we are part of the machine, but as we awake we detach ourselves from this machine and make life as we wish it to be. *"For man is all Imagination and God is man and exists in us and we in him."* *"The eternal body of man is the Imagination: that is God himself."* You can imagine and I can imagine, and if we can be faithful to the state imagined it must appear in our world. This is not new. This was given centuries ago, for we have it in the Bible; but people do not know how to read the Bible, so they got together and organized it into an *"ism."* It is not an *"ism,"* but it is the great plan to free man. The Bible shows this plan in detail. We will turn to a few passages and show you what those who wrote it intended we should see.
 
 [Isaiah 28:16](https://www.biblegateway.com/passage/?search=Isaiah+28:16&version=KJV): *"Thus says the Lord God, 'Behold, I am laying in Zion for a foundation a stone, a tested stone, a precious cornerstone, of a sure foundation: He who believes will not be in haste.'"* Now, we are told in the Book of Psalms that the world rejected the stone. *"The stone which the builders rejected has become the head of the corner."* *"You cannot lay any other stone."* *"On this stone you may build gold, silver, hay or stubble and the day will reveal it."* I tell you that this stone is your Imagination, and it is called in the Bible: Christ Jesus, or God, or the Lord. It is your Imagination, which is one with the Divine Imagination which created, sustains, changes, and even destroys parts of the creation. This is the stone that is tested and it is a sure foundation, and he who believes in it will not be in haste. If I can but imagine and know that [imagining creates](/lectures/imagining-creates) reality I will not be impatient or lead a superficial life. When a man does not live in his Imagination he will become impatient of the outcome of what he desires, and finally he will become violent in his effort to get things.
@@ -39,7 +41,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Man's Power of Creation
 - We believe that man can create anything he desires.
 - The Universe responds to the individual's perception.

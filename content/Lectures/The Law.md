@@ -1,3 +1,5 @@
+# The Law
+
 The whole vast world is no more than man's imagining pushed out. I must qualify that by saying that the world outside of man is dead, but Man is a living soul, and it responds to man, yet man is sound asleep and does not know it. The Lord God placed man in a profound sleep, and as he sleeps the world responds as in a dream, for Man does not know he is asleep, and then he moves from a state of sleep where he is only a living soul to an awakened state where he is a life-giving Spirit. And now he can himself create, for everything is responding to an activity in man which is Imagination. *"The eternal body of man is all imagination; that is God himself."* (Blake)
 
 Three wonderful case histories were given to me last Tuesday and I can best describe what I mean by telling you of one of them. Here is this lady driving east on Sunset and she comes to a stop at Laurel Canyon. A bus is to her right, and then she sees this little elderly lady in grey who is running diagonally across the street through traffic, trying to catch that bus. The bus driver sees her but he pulls out leaving her on the street. The lady, who gave me this story, told me that she felt compassion for this elderly lady, but she was not in a lane where she could give her a lift; she had to pull out with her line when the light changed. She said to herself, 'I will give that lady a lift just the same.' So in Imagination, she opens her car door and lets her in.
@@ -53,7 +55,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The world is a reflection of man's imagination
 - The world outside of man is dead, but man as a living soul responds to it.
 - Man is asleep and unaware that he is creating the world through his imagination.

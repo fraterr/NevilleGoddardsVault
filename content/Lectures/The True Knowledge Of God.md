@@ -1,3 +1,5 @@
+# The True Knowledge Of God
+
 The attitude of the world towards [the great mystery](/lectures/the-great-mystery) of Christ is due to their ignorance of who he really is. And only to the degree that the individual experiences the mystery, will he know that he is the heavenly being who came down and assumed the body of death to rise as [Jesus Christ](/lectures/jesus-christ).
 
 Follow me closely into the drama, as recorded in the 18th chapter of the Book of John, where Jesus is being questioned by Pilate. Now, the word *"Pilate"* means *"closely pressed like a contracted form; the limit of contradiction; of opacity."* To see the characters of scripture as historical is to see truth tempered to the weakness of the human soul. They are not people such as you and I, but [eternal states](/lectures/eternal-states), attributes, and qualities of the individual. Pilate is the state of contraction the Father entered, and the story is taking place in you.
@@ -68,7 +70,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Ignorance of the World towards the Mystery of Christ
 - The world's attitude towards the mystery of Christ is due to their ignorance of who he really is.
 - Only through experiencing the mystery will one know that they are the heavenly being who took on a human body to become Jesus Christ.

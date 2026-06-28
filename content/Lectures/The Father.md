@@ -1,3 +1,5 @@
+# The Father
+
 The Bible begins with Abram, a character whose name means *"exalted father."* Abram was placed in a profound sleep, told of the trials and tribulations he would pass through, and the length of time which he would suffer. Then the Lord God said to him: *"Behold my covenant is with you. No longer shall your name be Abram, but Abraham for I have made you the father of a multitude of nations."* The insertion of the letter *"he"* [pron. *"hey"*] (the fifth letter of the Hebrew alphabet, which is *"grace"*) changed the name from Abram to Abraham. Now, grace is [Jesus Christ](/lectures/jesus-christ), for we are told: *"Grace and truth came by Jesus Christ."* So into the name of Abram goes the letter *"he"* and grace is inserted into the exalted father. Then the journey begins.
 
 Scripture tells us that [God speaks to man](/lectures/god-speaks-to-man) through the language of dream and makes himself known in a vision. If God speaks to me in a dream and makes himself known to me in a vision, there is nothing more important than to record that vision. Here is a vision I had in 1934. I was alone in my living room. My eyes were closed and I was meditating, but not on anything in particular. I love to just turn my eyes inward and watch the liquid, golden clouds form. (If you try it you will find it very easy to do. Simply turn your eyes inward, close the lids as though asleep, and suddenly all of the dark convolutions of the brain will grow luminous. They will pulse and form themselves into clouds around your head.)
@@ -54,7 +56,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Abram becomes Abraham, the father of nations
 The Bible begins with Abram, who is later renamed Abraham by God. The insertion of the letter "he" (which means "grace") changes his name from Abram to Abraham. This signifies the inclusion of grace, which is Jesus Christ, into the exalted father. 
 

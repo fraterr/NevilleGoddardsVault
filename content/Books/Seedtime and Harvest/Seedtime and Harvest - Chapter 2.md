@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 2
+
 *"And a river went out of Eden  to water the garden; and from  thence it was parted, and became  into four heads."* ([Genesis 2:10](https://www.biblegateway.com/passage/?search=Genesis+2:10&version=KJV))
 
 *"And every one had four faces.."* ([Ezekiel 10:14](https://www.biblegateway.com/passage/?search=Ezekiel+10:14&version=KJV))
@@ -110,7 +112,6 @@ In the intervening years, she had many opportunities to use her imagination cons
 
 
 ## Summary
-
 ### The Four Mighty Ones in Man
 
 - Four Mighty Ones are four aspects of Self: Producer, Author, Director, Actor

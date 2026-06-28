@@ -1,3 +1,5 @@
+# Christmas-Man's Birth As God
+
 *"In the beginning was the Word and the Word was with God and the Word was God. The Word became flesh and dwells in us."* ([John 1](https://www.biblegateway.com/passage/?search=John+1&version=KJV)) Our physical birth is God's incarnation, for incarnation signifies the Assumption by a divine being of human or animal form. When you were born your little human form was assumed by God. Christmas marks the departure from God's incarnation and your birth as God.   
   
 There are two births: one when God assumes your human form and the other when you assume the divine form as God! The first birth is from below, while the second birth - called Christmas - is from above. Every child born of woman is God incarnate, or the child could not be aware that he is. His consciousness is God's incarnation. The world, not knowing this, celebrates the wrong event; for Christmas is when man becomes conscious of being God.   
@@ -96,8 +98,7 @@ God the Father takes upon himself the form of a slave, and - becoming the son - 
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The Two Births
 - Our physical birth is considered God's incarnation, meaning that God assumes human form.
 - There are two births: one when God becomes human, and the other when we become conscious of being God.

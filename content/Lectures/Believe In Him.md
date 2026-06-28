@@ -1,3 +1,5 @@
+# Believe In Him
+
 When asked: *"What must we do to be doing the work of God?"* he answered: *"Believe in him whom he has sent."* That’s all you have to do. Salvation is yours when you believe in him. There is no aristocracy of privilege, and to believe that Jesus exists means nothing. The question is: can you believe in his story?
 
 He tells us he was sent, and everyone who is sent is Jesus, the sender. Those who are called from the world of death do not volunteer or choose the task. They are selected, called, incorporated into the body of the Risen Lord and sent as the sender, and can say: *"He who sees me sees him who sent me."* After incorporation into his being, the individual is sent - not to tell that he has a large family, a lovely home, or lots of money, but that he has fulfilled scripture.
@@ -96,7 +98,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Belief in Him
 
 - Salvation is attained by believing in Jesus, not just in his existence but in his story.

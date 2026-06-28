@@ -1,3 +1,5 @@
+# God Speaks To Man
+
 *"In a vision of the night when deep sleep falls upon men, while they slumber on their beds, he opens their ears and seals their instructions."* ([Job 33](https://www.biblegateway.com/passage/?search=Job+33&version=KJV))   
   
 Tonight you may find yourself in a terrestrial world like this one, and you feel just as real to yourself as you do here. And when you return with its memory you may think it was a dream, but it was a vision. You are dreaming right now, for this world is the dream you and I agreed to complete. Its end will appear when we turn around through a series of visions.   
@@ -81,8 +83,7 @@ Well, that's not what we are here for. We're here to fulfill scripture, and no m
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### God Speaks to Man
 
 - The vision we experience in deep sleep is just as real as our waking life.

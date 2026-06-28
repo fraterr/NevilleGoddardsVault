@@ -1,3 +1,5 @@
+# Walk On The Water
+
 The Bible is addressed to the Man of Imagination, he who is immortal and cannot die. *"The Eternal Body of Man is the Imagination. That is God Himself. The Divine Body, Jesus, we are his members."* (William Blake)
 
 Ted Kennedy recently gave a eulogy for his brother, in which he quoted a passage from George Bernard Shaw. The thought was this: *"Some men see things as they are and say, Why? I dream of things that never were and say, Why not?"* When you think of your birth into this world as an act of God, can anything be impossible to God? Not knowing how or why you are here, you sin against the Holy Ghost when you dare to put a limit on the power that brought you here! There is no sin against the Holy Ghost other than man's belief that something is impossible to his own wonderful human imagination! I want you to go all out! To put no limit on [God's creative power](/lectures/god-s-creative-power). To imagine that which is unimaginable and to walk on the water, through faith. 
@@ -51,8 +53,7 @@ When you know who you really are, you will not envy anyone. How could you, when 
 Now let us go into the silence.
 
 
-## Summary: 
-
+## Summary
 ### The Power of Imagination and Faith
 
 - The Bible addresses the Man of Imagination as the Divine Body of God.

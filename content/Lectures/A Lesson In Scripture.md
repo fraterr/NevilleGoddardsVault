@@ -1,3 +1,5 @@
+# A Lesson In Scripture
+
 In the second chapter of the Book of Luke the story is told of Jesus’ parents, worried and seeking him for three days, finding him and complaining, to which Jesus said: *"How is it that you sought me? Know you not that I must be about my Father’s business?"* I ask you now to put yourself in that frame of mind. Your earthly parents seek you and, at the tender age of twelve, you dare to say to them: *"I must be about my Father’s business."*
 
 This statement has reference to the 40th Psalm and the 4th chapter of John. In the 40th Psalm you are told: *"In the role of the book it is written about me."* Every man is destined to discover that scripture is his autobiography. It’s not written about individual beings like [Jesus Christ](/lectures/jesus-christ), Moses, Abraham, Isaac, Jacob, and so on who lived unnumbered years ago, but about the individual you! The 4th chapter of the Book of John begins with a discussion between the Lord Jesus Christ and a woman of Samaria about a well and water. After this discussion the disciples say to Jesus: *"Master you have had nothing to eat"* and he replies: *"I have food you know not of. My food is to do the will of him who sent me and to finish his work."*
@@ -80,7 +82,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The True Purpose
 
 - Man comes into the world to fulfill the purpose of God, which is to fulfill scripture

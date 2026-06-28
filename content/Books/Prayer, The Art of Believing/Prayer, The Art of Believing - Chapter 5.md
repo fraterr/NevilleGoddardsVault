@@ -1,3 +1,5 @@
+# Prayer, The Art of Believing - Chapter 5
+
 *“He sent his word and healed them, and delivered them from their destructions.”* He transmitted the consciousness of health and awoke its vibratory correlate in the one toward whom it was directed. He mentally represented the subject to himself in a state of health and imagined he heard the subject confirm it. *“For no word of God shall be void of power; therefore hold fast the pattern of healthful words which thou has heard.”*
 To pray successfully you must have clearly defined objectives. You must know what you want before you can ask for it. You must know what you want before you can feel that you have it, and Prayer is the feeling of the fulfilled desire.
 It does not matter what it is you seek in Prayer, or where it is, or whom it concerns. You have nothing to do but convince yourself of the truth of that which you desire to see manifested.
@@ -39,7 +41,6 @@ The mental sound you hear in Prayer as coming from without is really produced by
 
 
 ## Summary
-
 ### Your Word Heals
 
 - Healing is transmitting the consciousness of health to awaken its correlate

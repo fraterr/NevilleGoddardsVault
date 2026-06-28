@@ -1,3 +1,5 @@
+# Index
+
 Welcome to the Neville Goddard Vault! This website contains the published works and lecture transcripts of Neville Goddard, the influential 20th century metaphysical teacher. Every single text (be it the chapter of a book, a lecture or a radio lecture) <u>has its own comprehensive summary</u>, for enhanced readability and understanding. You can find summaries at the <u>end of each single note</u>.
 
 

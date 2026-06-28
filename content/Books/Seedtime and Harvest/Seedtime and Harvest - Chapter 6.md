@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 6
+
 *"And one said to the man clothed in linen, which was upon the waters of the river, How long shall it be to the end of these wonders? And I heard the man clothed in linen, which was upon the waters of the river, when he held up his right hand and his left hand unto heaven, and swear by him that liveth forever that it shall be for a time, times, and an half."* ([Daniel 12:6, 7](https://www.biblegateway.com/passage/?search=Daniel+12:6,+7&version=KJV))
 
 At one of my lectures given in Los Angeles on the subject of the hidden meaning behind the stories of the Bible, someone asked me to interpret the above quotation from the Book of Daniel. After I confessed I did not know the meaning of that particular passage, a lady in the audience said to herself, *"If the mind behaves according to the Assumption with which it starts, then I will find the true answer to that question and tell it to Neville."* And this is what she told me.
@@ -27,7 +29,6 @@ That cat lived comfortably for five more years, when, without pain or illness, h
 
 
 ## Summary
-
 ### Assume Knowing to Receive Insight
 
 - A woman assumed she knew a Bible verse's meaning to receive the answer

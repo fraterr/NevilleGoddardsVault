@@ -1,3 +1,5 @@
+# The Tree Of Life
+
 Our evangelists, the unknown authors of the gospels, knew that people understood best what they could see in picture form, so they told God's plan of redemption) in the form of a tale that it could be seen and not forgotten. They knew the risk they ran. They knew that those who could see the picture mentally could easily mistake the personification which conveyed the truth for a person and the vehicle which conveyed the instruction for the instruction, yet they took the greatest of all truths and embodied it in a tale, that it may enter lowly doors.
 
 It was Paul who said: *"O foolish Galatians! Who has bewitched you before whose eyes [Jesus Christ](/lectures/jesus-christ) was publicly portrayed as crucified? Let me ask you only this: Did you receive the Spirit by works of the law, or by hearing with faith? Are you so foolish? Having begun with the Spirit, are you now ending with the flesh?"* I tell you: the entire Christian and Jewish world has ended with the flesh. They are unable to think of Jesus Christ as a pattern of redemption, but only as a man of flesh who is unique and different from themselves. Paul is urging all to see the Spirit, the pattern which is contained in every child born of woman and to remember that spiritual pattern called Jesus Christ. I tell you: belief can cause that pattern to be fertilized, then the time element will enter for its development and no one can stop its fulfillment. Just as the egg in a woman does not unfold until it is fertilized, so is this spiritual seed in man. After fertilization a built-in time begins, and the savior in man (which is a pattern) begins to bloom.
@@ -45,7 +47,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Man embodies God's plan of redemption in the form of a tale
 - The unknown authors of the gospels told God's plan of redemption) in the form of a tale that could be seen and not forgotten.
 - They risked people mistaking the personification in the tale for a real person and missing the true meaning.

@@ -1,3 +1,5 @@
+# The Sin Against The Holy Spirit
+
 Tonight we have as our subject, 'The Sin Against the Holy Spirit.' Undoubtedly you have heard unnumbered concepts of this statement from scripture. The most common interpretation is the violation of the sex act. But that is not my picture - not as it has been revealed to me. As I told you: the Bible is not something you can open up and read as you would a novel. It is a building on three levels. As you are told: 'A three-fold cord is not quickly broken.' I, personally, cannot conceive that you will violate and blaspheme against the Holy Spirit. I will give you my reason for it afterwards. So, if I can comfort you, may I tell you: don't be anxious, that you will simply sin. Yes, we all sin every moment of time. But all sins are forgiven, all blasphemies are forgiven.
 
 The only blasphemy that cannot be forgiven is that against the Holy Spirit, as told in [Matthew 12](https://www.biblegateway.com/passage/?search=Matthew+12&version=KJV), [Mark 3](https://www.biblegateway.com/passage/?search=Mark+3&version=KJV), and [Luke 2](https://www.biblegateway.com/passage/?search=Luke+2&version=KJV). I find in the Book of Luke a more advanced development of the theme than I do in Matthew and Mark. Mark is the earliest revelation of this theme, but each statement is followed by the strangest, most irrelevant theme in the three books. That which follows in the Book of Luke gave me my cue. He made the statement that blasphemy against the Holy Spirit is not forgiven ([Luke 12:8](https://www.biblegateway.com/passage/?search=Luke+12:8&version=KJV)). You will think you are reading an entirely different chapter on a different theme. Then it goes right into this statement: 'And when they bring you before the synagogues and the rulers and the authorities, do not be anxious how or what you are to say; for the Holy Spirit will teach you in that very hour what you ought to say.' ([Luke 11](https://www.biblegateway.com/passage/?search=Luke+11&version=KJV)-12). That little word 'ought' reveals so much. It implies you need not say what you should say. 'The Holy Spirit will teach you in that very hour what you ought to say' - and that is the crux of the whole thing. Man is free and, because he is free, he need not say what he should say. So, He will teach you in that very hour what you ought to say.
@@ -42,7 +44,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Sin Against the Holy Spirit
 - Different interpretations of the sin against the Holy Spirit
 - The Bible is a building on three levels, not a novel

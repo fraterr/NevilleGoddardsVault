@@ -1,3 +1,5 @@
+# Love Endureth
+
 Tonight's subject is 'Love Endureth'
 
 We are told, 'He who has not loved does not know God, for God is love.' This is not a conclusion that the prophet reached after years of philosophic study, but an act of God in self-revelation. If God never revealed himself to man, I doubt that man would ever know that God is love. But, in spite of all the horror of the world, I know from experience that God is love.
@@ -54,7 +56,6 @@ Now let us go into the Silence.
 
 
 ## Summary
-
 ### Love Endureth
 
 - God is love and it is through God's self-revelation that we know of His love.

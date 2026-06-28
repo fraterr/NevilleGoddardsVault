@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 5
+
 *"...all you behold; tho' it appears Without, it is Within; In your Imagination, of which this World of Mortality is but a Shadow."* — Blake
 
 Nothing appears or continues in being by a power of its own. Events happen because comparatively stable imaginal activities created them, and they continue in being by virtue of the support they receive from such imaginal activities. The part which imagining the wish fulfilled plays in consciously creating circumstances is obvious in this series of stories.
@@ -54,7 +56,6 @@ From morn to night, my friend."
 
 
 ## Summary
-
 ### Fancy and imagination
 
 The images of our imagination are the realities of which any physical manifestation is only the shadow. Imagining is [spiritual sensation](/lectures/spiritual-sensation). If we are faithful to vision, the image will create for itself the only physical manifestation of itself it has a right to make.

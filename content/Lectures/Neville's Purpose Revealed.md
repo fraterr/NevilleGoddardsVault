@@ -1,3 +1,5 @@
+# Neville's Purpose Revealed
+
 When purpose is revealed, all falls into place. The revelation of purpose gives meaning to everything, and there is a purpose in this wonderful, vast creation of God. Paul said: *"He has made known unto us . . . . the mystery of His will, according to His purpose which He set forth in Christ as a plan for the fullness of time."* [[Ephesians 1:9](https://www.biblegateway.com/passage/?search=Ephesians+1:9&version=KJV), 10] There is a plan behind it all. 
 
 Now let us turn to the most disputed verse in Ecclesiastes: *"God has put Eternity into man’s mind, yet so that man cannot find out what Cod has done from the beginning to the end."* [[Ecclesiastes 3:11](https://www.biblegateway.com/passage/?search=Ecclesiastes+3:11&version=KJV)] 

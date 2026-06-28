@@ -1,3 +1,5 @@
+# Jeremiah's Discovery
+
 The body of scripture is the Word of God, which every child born of woman must hear, assimilate, understand, and fully accept. This belief will cause the Word to erupt within him, and as he experiences [God's Word](/lectures/god-s-word), he discovers who he really is. 
 
 The Book of John begins: *"In the beginning was the Word, and the Word was with God and the Word was God. He was in the beginning with God: all things were made through him and without him was not anything made that was made. He was in the world, the world was made by him, yet the world knew him not. He came to his own home and his own people received him not."* 
@@ -136,7 +138,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Word of God and Self-Discovery
 
 - The body of scripture is the Word of God, which every person must hear, understand, and fully accept. This belief leads to self-discovery.

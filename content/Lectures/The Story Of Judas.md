@@ -1,3 +1,5 @@
+# The Story Of Judas
+
 We tell you here that we believe you can be what you want to be in this world and that it is my purpose to tell you. If I have moments in my life I regret it, not in the sense of a change of mind as in the word repent, still I must tell you. I may have moments of regret that you have misused this power for any purpose, yet it is better that you misuse it, rather than not to use it. How many times one feels concerned at the misuse of this principle. Yet it is better to misuse it than to bury it, for even by the misuse we learn, though painfully. In the story of the talents it was only the one who did not use it that was condemned.
 
 We are living in a world that is like a play and some seem from birth to be cast in a difficult role, and yet you tell him that God is Infinite Love. But he is the playwright and the casting director, for this is a play. As Shakespeare says, *"All the world’s a stage and all the men and women merely players. We have our exits and our entrances and one man in his time plays many parts.” But that "*time” is not three-score and ten; it is the time it takes to awaken that man, the perfect actor, or God. So I play every part, but playing every part does not mean I play every man or woman in the world. There are billions of actors but only so many parts, and every part you and I must play. The central figure, the star, is Christ, and the whole play is about Christ from Genesis to Revelation, but there are many parts that reveal it. There are twelve main characters (the 12 disciples), and the four-and-twenty elders, and the High Priest Caiaphas and his political opponent, Pilate. These are in every age and every time. The purpose of the play is to awaken in us the actor, God. These characters of the Bible are not people: they never walked the earth as people. We play all the characters, but they do not live any more than Hamlet lived. When Olivier plays Hamlet, Hamlet can do nothing but what Olivier does, and then Olivier can if he wishes play another character altogether. The characters are the [eternal states](/lectures/eternal-states) of the Soul, but we must learn to distinguish the man from the characters he is playing. The characters are real in eternity and we assume the character and play it on this sphere. To say that everything in this world is a play does disturb, but I want you to believe it.
@@ -46,7 +48,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Power of Imagination
 - We have the power to be what we want in this world
 - It is better to misuse this power than to not use it at all

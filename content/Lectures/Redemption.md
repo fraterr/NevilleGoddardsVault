@@ -1,3 +1,5 @@
+# Redemption
+
 We are told in Paul's letter to the Romans that this world is a world of sorrow. Then he gives us the reason and the glorious end it produces, saying: *"I consider the sufferings of this present time not worth comparing to the glory that is to be revealed in us. The creation waits with eager longing for the revealing of the sons of God; for the creation was made subject unto futility - not of its own will, but by the will of him who subjected it in hope; for the creation will be set free from its bondage to decay and obtain the glorious liberty of the children of God."* 
 
 Here we see that the redemption of the universe depends upon the revealing of ourselves, for, buried in this world, we are the sons of God but we do not know it. The world did not subject us; we subjected ourselves. No one took our lives; we laid them down ourselves. We have the power to lay our life down and the power to take it up again. Coming into this world for a purpose, we deliberately became what we are in the hope that one day we would rise and redeem the world by setting it free from its bondage to decay. 
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The World of Sorrow and Glorious Redemption
 - Paul's letter to the Romans describes the world as a place of sorrow but also reveals the glorious end it leads to.
 - The redemption of the universe depends on the revealing of the sons of God.

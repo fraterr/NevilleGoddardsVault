@@ -1,3 +1,5 @@
+# The Primal Wish
+
 Tonight’s subject is *"The Primal Wish"*. I am so thrilled that you are here tonight. Listen carefully to what I will tell you concerning this primal wish.
 
 In the very first chapter of Genesis, God said, *"Let us make man in our image, after our likeness."* That’s the primal wish. And Shakespeare said, *"It has been taught us from the primal state that he which is was wished until he were."* This is tonight’s subject. We are making an image.
@@ -74,7 +76,6 @@ A: You are told in scripture, if two different persons agree in testimony it is 
 
 
 ## Summary
-
 ### The Primal Wish
 
 - In Genesis, God expressed the primal wish of creating man in his image.

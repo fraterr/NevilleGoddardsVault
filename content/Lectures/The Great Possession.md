@@ -1,3 +1,5 @@
+# The Great Possession
+
 The book of Genesis is made up of three records, called the J, P, and E manuscripts. Tonight I will refer to the E manuscript, which begins with the 15th chapter of Genesis: "As the sun was going down, Abram fell into a deep sleep and great darkness fell upon him. Then the Lord said to Abram, 'Know for a surety that your descendants will be sojourners in a land that is not theirs. They will be slaves there and they will be oppressed for four hundred years. After that they will come out with great possessions.'
 
 *"Abraham believed and it was accounted unto him for righteousness."* 
@@ -79,7 +81,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The E manuscript in the book of Genesis
 - The book of Genesis consists of three manuscripts: J, P, and E.
 - The E manuscript, starting from the 15th chapter of Genesis, focuses on the story of Abraham.

@@ -1,3 +1,5 @@
+# The Battle Of Armageddon
+
 Your true environment is in your imagination! [All that you behold](/lectures/all-that-you-behold), though it appears without, it is within, in your imagination - of which this world of mortality is but a shadow. No matter what is taking place on the outside, it is but a symbol telling you what is taking place within; for the world is nothing more than yourself pushed out. Its image, alive in your imagination, overwhelms you. 
 
 Tonight let us turn to the greatest of all books, the Bible. In it we are told that at the end of the world there would be a great war whose final battle is called 'Armageddon'. You may have been taught that this battle will take place on the outside, as races battle races, and nations battle nations. It doesn't mean communism against democracy or socialism against capitalism. There will always be wars and conflicts; but the battle of Armageddon is the battle of ideology. This battle does not take place on the outside, but within each and every individual.
@@ -58,7 +60,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Your Imagination and the World
 - Your true environment is in your imagination.
 - The world is a reflection of what is happening within you.

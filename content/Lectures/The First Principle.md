@@ -1,3 +1,5 @@
+# The First Principle
+
 Do not accept any statement from scripture, the church, or an individual (including the speaker) as true until you have found God or a living truth in what is being said. What I tell you I know from experience, but I ask you not to accept my words without questioning them within yourself. It is silly to accept something simply because the church said it, or you read it in the Bible, or heard it from Neville. You must pursue the thought ceaselessly by questioning yourself.
 
 Why do I stress this? Because among the spirit world there are many Babel's where no two speak with the same tongue. One may tell you to give up meat, while another will tell you something entirely different. This we are told in the 11th chapter of the Book of Genesis. I am not speaking of multiple tongues as the many languages we have today. We can overcome those with an interpreter; but if someone tells you: *"This is the way,"* and another says: *"No. This is the way,"* and they don't agree - you are in Babel, a city of confusion in the pathway of the spirit.
@@ -81,7 +83,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The First Principle
 - Do not accept any statement as true until you have found God or a living truth in it.
 - Question everything, including statements from scripture, the church, or individuals.

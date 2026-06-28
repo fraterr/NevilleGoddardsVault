@@ -1,3 +1,4 @@
+## Summary
 We have been talking about God's law and God's promise. God's law is conditional. You cannot be in one state and not suffer the consequences of not being in another state, and you and I are free to imagine any state in the world, and imagining that state we can occupy it. Occupying the state, we fertilize it; having fertilized it, it has its own appointed hour for fulfillment. Every vision has its own appointed hour it will flower; if it seems long, wait for it - it is sure and it will not be late. Some things will grow overnight, and some things will grow in a week, then in three weeks, and then in a month, and some things will take years. It could be a problem over which we seem to have no control. We have told you the story here, where on one occasion it took five years, but oh! the joy of reaping the fruit then. It was the relationship of a mother and son-in-law. I have told you unnumbered stories where it took intervals of time, but it doesn't matter, if we apply the principle.
 
 Now today if you read in the headlines: *"England denies union with Europe,"* and you may be inclined to resent De Gaulle - restrain your resentment. I was born and raised a Britisher, born under the Union Jack. All my family are still living under the Union Jack. I am very proud I was born with that background, a rugged, rugged background of Scotch, English, and Irish. My forefathers were from Cornwall, that rugged English setup. I wouldn't change it for anything in the world. They were adventurers when they ventured and re-adventured across all the seas of the world. Nothing could be more clear than my background.
@@ -51,7 +52,6 @@ Now let us go in to the silence.
 
 
 ## Summary
-
 ### God's Law and Promise
 - God's law is conditional and requires consequences for not being in a certain state.
 - We have the freedom to imagine and occupy any state in the world.

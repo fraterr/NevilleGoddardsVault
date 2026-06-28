@@ -1,3 +1,5 @@
+# The Power of Awareness - Chapter 9
+
 *"And all mine are thine, and thine are mine."* ([John 17:10](https://www.biblegateway.com/passage/?search=John+17:10&version=KJV))
 
 *"Thrust in thy sickle, and reap; for the time is come for thee to reap; for the harvest of the earth is ripe."* ([Rev. 14:15](https://www.biblegateway.com/passage/?search=Revelation+14:15&version=KJV))
@@ -36,7 +38,6 @@ You go and prepare a place for yourself by imagining yourself into the feeling o
 
 
 ## Summary
-
 ### Claim What Is Yours
 
 Do not seek what you already are. Appropriate, claim, and assume it. Your self-concept determines what can be realized. Assume the lovely and good in imagination to make life worthwhile.

@@ -1,3 +1,5 @@
+# Perception
+
 There is nothing that appears in perception which cannot be duplicated in fancy, and what the world perceives is all imaginative in character. Here is a graphic example: I am sure everyone knows what it is to detect the fragrance of a rose. Now smell is a chemical sense and depends upon contact for perception. But does one really need a rose to detect its fragrance? Cannot its fragrance be reproduced imaginatively? 
 
 Having smelled an Easter lily, can you not discriminate between the smell of a rose and a lily, imaginatively? Then they do not exist independent of you, but live on some level (or levels) of your imagination! Can you call upon your memory of an experience of long ago, bring it back, and duplicate it in fancy? If so, then this world is no different from your imaginal one! 
@@ -54,7 +56,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Perception and Imagination
 - Perception and imagination are closely related - anything perceived in the world can also be reproduced in the imagination.
 - Examples include the ability to detect the fragrance of a rose without the physical presence of a rose, and the ability to remember and reproduce past experiences in the mind.

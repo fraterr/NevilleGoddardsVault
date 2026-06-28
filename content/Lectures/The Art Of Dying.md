@@ -1,3 +1,5 @@
+# The Art Of Dying
+
 If you are with us for the first time, this is what we believe and teach here. We firmly believe that you, the individual, can realize your every dream, and the reason is that God and man are one. We believe that the difference is not in the mentality with which we operate, but only in the degrees of intensity of the operant power itself, and that we call human Imagination.
 
 Keats said: *"You can take any one great and spiritual passage and it will serve as a starting point to lead you to the two-and-thirty palaces."* Take this simple one in Paul's letters to the Corinthians: *"I die daily,"* or Blake's statement in his letter to Crab Robinson: *"Death is the best thing in life. There is nothing in life like death, but people take such a long time in dying. At least, their neighbors never see them rise from the grave."* If you understood Blake you would not think of death as the world thinks of death, but you would see that no one can grow without outgrowing. But man is not willing to outgrow, [and] yet he wants other things than those he has. But if you remain in one state, you will forever have to suffer the consequences of not being in another state. (From the *"Hermetica"*) If I remain in the state of poverty, I must suffer the consequences of not being in the state of wealth. So I must learn the art of dying. Paul says: *"I die daily."* Blake says: *"People take such a long time in dying."* Man does not outgrow his state of ill health or his old job or his environment. We must learn the art of dying, and this week is the great death and we are told that God dies that man may live.
@@ -39,7 +41,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Belief in the Power of Imagination
 - The belief that individuals can realize their Dreams because God and man are one.
 - The difference between individuals lies in the intensity of their Imagination.

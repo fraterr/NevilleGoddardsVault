@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 5
+
 *"Let every man be fully persuaded in his own mind."* ([Romans 14:5](https://www.biblegateway.com/passage/?search=Romans+14:5&version=KJV))  
 
 PERSUASION IS an inner effort of intense attention.  
@@ -100,7 +102,6 @@ But I know from experience,
 *"The tongue... setteth on fire the course of nature."* ([James 3:6](https://www.biblegateway.com/passage/?search=James+3:6&version=KJV))
 
 ## Summary
-
 ### Inner Speech
 
 - Inner speech refers to the mental conversations we have with ourselves

@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 6
+
 *"The Nature of Visionary Fancy, or Imagination, is very little known, & the External nature & permanence of its ever Existent Images is consider'd as less permanent than the things of Vegetative & Generative Nature; yet the Oak dies as well as the Lettuce, but Its Eternal image & Individuality never dies, but renews by its seed; just so the Imaginative Image returns by the seed of Contemplative Thought."* (William Blake)
 
 The images of our imagination are the realities of which any physical manifestation is only the shadow.
@@ -86,7 +88,6 @@ Your imagination is most creative when you imagine things as you desire them to 
 
 
 ## Summary
-
 ### The Nature of Visionary Fancy, or Imagination
 
 The images of imagination are more permanent than physical things. The imaginative image endures like a seed through contemplative thought.

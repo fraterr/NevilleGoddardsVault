@@ -1,3 +1,5 @@
+# Awakened Imagination - Chapter 1
+
 CERTAIN WORDS in the course of long use gather so many strange connotations that they almost cease to mean anything at all. Such a word is imagination. This word is made to serve all manner of ideas, some of them directly opposed to one another. Fancy, thought, hallucination, suspicion: indeed, so wide is its use and so varied its meanings, the word imagination has no status nor fixed significance.  
 For example, we ask a man to *"use his imagination"*, meaning that his present outlook is too restricted and therefore not equal to the task. In the next breath, we tell him that his ideas are *"pure imagination"*, thereby implying that his ideas are unsound. We speak of a jealous or suspicious person as a *"victim of his own imagination"*, meaning that his thoughts are untrue. A minute later we pay a man the highest tribute by describing him as a *"man of imagination"*.  
 Thus the word imagination has no definite meaning. Even the dictionary gives us no help. It defines imagination as:
@@ -77,8 +79,6 @@ Although others have bodies, a life of their own, their reality is rooted in you
 
 
 ## Summary
-
-
 ### Imagination
 
   - The word *"imagination"* has many vague and contradictory meanings in common usage.

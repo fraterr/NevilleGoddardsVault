@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 8
+
 *"I am the first, and I am the last; and beside me is no God."* ([Isaiah 44:6](https://www.biblegateway.com/passage/?search=Isaiah+44:6&version=KJV))
 
 *"[I am the Lord](/lectures/i-am-the-lord) thy God, which brought thee out of the land of Egypt, from the house of bondage. Thou shalt have none other Gods before me."* ([Deut. 5:6, 7](https://www.biblegateway.com/passage/?search=Deuteronomy+5:6,+7&version=KJV))
@@ -17,7 +19,6 @@ Man feels so secure in his man-made laws, opinions and beliefs that he invests t
 
 
 ## Summary
-
 ### No Other Power
 
 There is no power outside yourself. Belief in external powers robs you of your own being. Let go of beliefs in things like drugs, diets, money.

@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 18
+
 *"And when he had called unto him his twelve disciples, he gave them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease."* ([Matt. 10:1](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 [The twelve disciples](/lectures/the-twelve-disciples) represent the twelve qualities of mind which can be controlled and disciplined by man. If disciplined they will at all times obey the command of the one who has disciplined them.
@@ -65,7 +67,6 @@ These are the twelve qualities which were given to man in the foundation of the 
 
 
 ## Summary
-
 ### Twelve Disciples are Mind Qualities
 
 The twelve disciples represent twelve qualities of the mind that can be disciplined.

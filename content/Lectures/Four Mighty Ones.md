@@ -1,3 +1,5 @@
+# Four Mighty Ones
+
 This morning's subject is *"The Four Mighty Ones"*.  
   
 The history of humanity is little else than a long struggle with this infinite riddle - the riddle of the Four Mighty Ones. When Origen, one of the early church fathers, was asked why are there four Gospels, why not one, he answered and said because there are four quarters of the Heavens, north, south, east and west and, therefore, four quarters of the human soul. The Bible speaks of this riddle which we will quote from the Book of Proverbs, and I will tell you the promises made to the individual and to the nation who can answer or un-riddle the riddle.  
@@ -74,7 +76,6 @@ And now my time is up.
 
 
 ## Summary
-
 ### The Riddle of the Four Mighty Ones
 
 - Origen explained that there are four Gospels to correspond with the four quarters of the Heavens and the four quarters of the human soul.

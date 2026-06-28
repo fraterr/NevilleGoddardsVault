@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 3
+
 Let us take one of the stories of the Bible and see how the prophets and writers of old revealed the story of creation by this strange Eastern symbolism.
 
 We all know the story of Noah and the Ark; that Noah was chosen to create a new world after the world was destroyed by the flood.
@@ -47,7 +49,6 @@ Assume the attitude of mind that would be yours if you were already in possessio
 Be as wise as Ham and make this discovery that you too may have the joy of serving your brothers Shem and Japheth; the joy of making the word or name flesh.
 
 ## Summary
-
 ### The story of Noah is symbolic
 
 - The Bible story of Noah reveals creation symbolically.

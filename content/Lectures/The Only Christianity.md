@@ -1,3 +1,5 @@
+# The Only Christianity
+
 Here we believe firmly that Imagining is God; that the Supreme Power of the Universe is one with human Imaging. So, when you read the Bible – a fabulous, inspired book – and you come to the word *"God"* you can also use the word *"Imagining"* and you will get a clearer understanding of it.
 
 [Romans 4:20](https://www.biblegateway.com/passage/?search=Romans+4:20&version=KJV) – *"No distrust made him (Abraham) waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised."* When you read it you might think of some being external to your own Imagination. Could you now dream of being the man or woman you want to be? That dream is a promise. We are told he was not swerved by anything in the world and gave all the glory to God, or Imagining; fully convinced that God could do what he had promised.
@@ -49,7 +51,6 @@ This lady can change the picture for her sister’s husband. She can imagine tha
 
 
 ## Summary
-
 ### Imagining as God
 
 - The belief that Imagining is God and the Supreme Power of the Universe is one with human Imaging.

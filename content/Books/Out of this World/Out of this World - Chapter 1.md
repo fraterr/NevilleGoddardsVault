@@ -1,3 +1,5 @@
+# Out of this World - Chapter 1
+
 *"And now I have told you before it come to pass, that, when it is come to pass, ye might believe."* – ([John 14:29](https://www.biblegateway.com/passage/?search=John+14:29&version=KJV))
 
 MANY persons, myself included, have observed events before they occurred; that is, before they occurred in this world of three dimensions. Since man can observe an event before it occurs in the three dimensions of space, life on earth must proceed according to plan, and this plan must exist else-where in another dimension and be slowly moving through our space.
@@ -164,7 +166,6 @@ To change the future, we need only concern ourselves with two worlds in the infi
 
 
 ## Summary
-
 ### Man Can Observe Events Before They Occur
 
 - The author and others have observed events before they occurred in the 3-dimensional world, implying life proceeds according to a plan existing in another dimension.

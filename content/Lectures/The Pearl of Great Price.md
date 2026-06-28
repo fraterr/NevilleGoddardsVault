@@ -1,3 +1,5 @@
+# The Pearl of Great Price
+
 Tonight’s subject is the “Pearl of Great Price.” This is taken from the 13th chapter of the gospel of Matthew, 45th and 46th verses. It’s all about the kingdom of heaven. First of all, let us say that the kingdom of heaven is simply that state into which man rises, where everything is completely subject to his imaginative power. He is destined to be an heir, one with his Father who is God, where everything is put under his power. Now, here is the quote from this 13th of Matthew: “The kingdom of heaven is like a merchant in search of fine pearls, who finding one pearl of great value, went and sold all that he had and bought it.” It is my hope that I can bring you to that pearl tonight. You may not value it to the point where you’re willing to sell all that you have to buy it, but I will tell you of this pearl. Very few are willing to sell all and buy the pearl.
 
 But let me now quote from another passage of the gospel, the 11th chapter of the Book of Luke, the 21st through the 23rd: “When a strong man, fully armed, guards his own palace, his goods are in peace; but when one stronger than he assails him and overcomes him, he takes from him the armor in which he trusted, and divides his spoil.” The very next line, as though it’s an afterthought, throws all the light in the world upon that statement, “He who is not with me is against me.” There is no benevolent neutrality, none whatsoever. He who is not with me is my enemy; he is against me.
@@ -90,7 +92,6 @@ Good night.
 
 
 ## Summary
-
 ### Introduction
 
 Tonight's subject is the "Pearl of Great Price", taken from [Matthew 13:45-46](https://www.biblegateway.com/passage/?search=Matthew+13:45-46&version=KJV) about the parable of the kingdom of heaven.

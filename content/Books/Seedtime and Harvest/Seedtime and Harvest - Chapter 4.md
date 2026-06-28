@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 4
+
 *"And he dreamed, and behold a ladder set up on the earth, and the top of it reached to heaven: and behold the angels of God ascending and descending on it. And, behold, the Lord stood above it. . ."* ([Genesis 28:12, 13](https://www.biblegateway.com/passage/?search=Genesis+28:12,+13&version=KJV))
 
 In a dream, in a vision of the night, when deep sleep fell upon Jacob, his inner eye was opened and he beheld the world as a series of ascending and descending levels of awareness. It was a revelation of the deepest insight into the mysteries of the world. Jacob saw a vertical scale of ascending and descending values, or states of consciousness. This gave meaning to everything in the outer world, for without such a scale of values there would be no meaning to life.
@@ -64,7 +66,6 @@ The true answer, viewed from the level of higher meaning, would be such a revers
 
 
 ## Summary
-
 ### Jacob's Ladder of States
 
 - Jacob saw a ladder of ascending and descending levels of awareness

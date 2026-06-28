@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 15
+
 *"Let not your heart be troubled; ye believe in God, believe also in me. In my Father’s house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also."* ([John 14](https://www.biblegateway.com/passage/?search=John+14&version=KJV): 1-3)
 
 *“Let not your heart be troubled; ye believe in God, believe also in me. In my Father’s house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. And if I go and prepare a place for you, I will come again, and receive you unto myself; that where I am, there ye may be also.”* The ME in whom you must believe is your consciousness, the I AM; it is God. It is also the Father’s house containing within itself all conceivable states of consciousness. Every conditioned state of consciousness is called a mansion.
@@ -27,7 +29,6 @@ Having gone before and prepared the place, you have returned to John and are now
 
 
 ## Summary
-
 ### Believe in I AM
 
 Believe in I AM, your unconditioned consciousness. It contains all states, the mansions.

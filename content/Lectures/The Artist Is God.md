@@ -1,3 +1,5 @@
+# The Artist Is God
+
 God is the great artist, and there is no artistry so lovely as that which perfects itself in the making of its image. God has but one consuming objective and that is to make you into his image, that you may reflect and radiate his glory. On this level however God exists as the human imagination, for the human imagination is the divine body called the Lord Jesus. 
 
 On the highest level God's great artistry is concentrated on the making of his image; on this level he - as you - can do the same. A friend may say he would like to be a doctor; another friend wants to be a successful businessman, or a dancer. Every desire is an image. As the artist, lowered to this level, you can form images of your friends. And if you persist in your Assumption, in time your friends will radiate and reflect your artistry. 
@@ -64,7 +66,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Image of God
 - God's objective is to make individuals into his image
 - God exists as the human imagination

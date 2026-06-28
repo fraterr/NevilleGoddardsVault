@@ -1,3 +1,5 @@
+# Enter The Dream
+
 [God only acts](/lectures/god-only-acts) and is in existing beings or men. Embracing the fires of experience, God was consumed by the flames, rose from their ashes, and continues to rise as [Jesus Christ](/lectures/jesus-christ), or Divine Imagination. Good and evil are not conditions imposed by some benevolent deity, but states the soul must experience in order to surpass them and awaken as God Himself.   
   
 Tonight I will share with you an experience of a friend, a lady who wrote, saying: *"In my dream I possessed the power to be anything I wanted to be. The moment I observed the being or thing I became it, felt its emotion, and shared its thoughts and environment. This I did throughout the night and awoke reluctantly because I was so enjoying the experience."*   
@@ -64,7 +66,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God as Existing Beings or Men
 - God acts and exists within living beings or men.
 - Good and evil are not imposed by a benevolent deity, but experiences the soul must go through to surpass them and awaken as God.

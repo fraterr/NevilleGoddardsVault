@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 5
+
 *"But whom say ye that I AM?"* ([Matt. 16:15](https://www.biblegateway.com/passage/?search=Matthew+None&version=KJV))
 
 *“[I AM the Lord](/lectures/i-am-the-lord); that is my name; and my glory will I not give to another.”* *“I AM the Lord, the God of all Flesh.”*
@@ -64,7 +66,6 @@ Go within secretly and appropriate the new consciousness. Feel yourself to be it
 
 
 ## Summary
-
 ### I AM is the Lord
 
 The I AM within you is the Lord, the God of all. Look not outside, to another power.

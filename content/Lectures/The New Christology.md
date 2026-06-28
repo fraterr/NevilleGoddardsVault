@@ -1,3 +1,5 @@
+# The New Christology
+
 You will find this a very practical night, for I feel that the truth of the working of God's law should be looked upon as intensely as anything in this world. So tonight I want to show you quite clearly how God's law operates.
 
 We are told in the 14th chapter of John: 'Let not your heart be troubled, you believe in God, believe also in me. In my Father's house are many mansions; if it were not so would I have told you that I go to prepare a place for you? When I go and prepare a place for you, I will come again and receive you to myself that where I am there you may be also.' You may think some man is speaking to a group of men as I am here; but these words were spoken by the human Imagination, who - having come out from the Father, came into the world. Now leaving the world, human imagination is going to the Father's house. He is returning to discover the source, the cause, of the phenomena of life. 
@@ -64,7 +66,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Truth of God's Law
 
 - The truth of the working of God's law is something that should be intensely looked upon.

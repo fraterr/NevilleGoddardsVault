@@ -1,3 +1,5 @@
+# Imagination
+
 Tonight's subject is Imagination. You read in the 17th chapter of the book of Acts, a story of Paul coming through to the Athenians, and he calls upon these men, for he saw the inscription over and over. He said: 'As I passed by'I saw [an altar with] this inscription, 'To an unknown god.' This therefore that you worship as unknown, [this] I proclaim unto you.'
 
 'He is not far from each of us, for in him we live and move and have our being.' ([Acts 17:23, 27, 28](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV))
@@ -246,7 +248,6 @@ Good night.
 
 
 ## Summary
-
 ### Imagination as the Creative Power
 - Imagination is a powerful force that is within every individual.
 - It is the creative power of the universe and the key to realizing one's desires.

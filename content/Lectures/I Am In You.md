@@ -1,3 +1,5 @@
+# I Am In You
+
 As Paul said to Timothy: *"Great indeed, we confess, is the mystery of our religion."* Scripture is not secular history, but a mystery which is most important that we understand! 
 
 Speaking to his disciples, Jesus said: *"In that day you will know that I am in the Father, and you in me and I in you."* ([John 14](https://www.biblegateway.com/passage/?search=John+14&version=KJV)) The phrase *"in that day"* is an eschatological term meaning, *"at the end of the journey."* In other words, when this age of Caesar comes to its end, you will experience the truth of scripture, and - understanding - you will say: *"I am in the Father and you are in me and I am in you."* 
@@ -90,8 +92,7 @@ When you read the words of Christ in the New Testament, think of the Risen Chris
 Now let us go into the silence.
 
 
-## Summary 
-
+## Summary
 ### The Mystery of Our Religion
 - Scripture is not secular history, but a mystery that must be understood.
 - Jesus spoke of being in the Father and in his disciples at the end of the journey.

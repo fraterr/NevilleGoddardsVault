@@ -1,3 +1,5 @@
+# A State Called Moses
+
 While reading scripture, always bear in mind that it is a story of salvation and not secular history, that the characters - from Adam to Jesus - are states of consciousness. In Blake's *"Visions of the Last Judgment,"* he said: *"It ought to be understood that the Persons Moses and Abraham are not here meant, but states signified by those names as they were revealed to mortal man in a series of divine revelations, as they are written in the Bible."* Having seen the entire play, Blake added: *"When you see them from afar they appear as one man, but as you approach they appear as multitudes of nations, as the One Man becomes the many."* 
 
 The first five books of the Bible are called the Torah, or the Law, with Abraham as the symbol of the beginning of civilization. But the outstanding character recorded there is the infinite, eternal state called Moses. The word Moses is the old perfected [form] of the Egyptian verb 'to be born'; so it is in the state of Moses that something is to be born. Now, at the end of the Torah we are told: *"Moses, the servant of the Lord died and the Lord buried him, but no man knows the place of his burial to this day."* ([Deuteronomy 34](https://www.biblegateway.com/passage/?search=Deuteronomy+34&version=KJV)) Why? Because Moses is buried in you. 
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Scripture is Salvation History
 
 - Scripture records the eternal story of spiritual awakening, not literal history

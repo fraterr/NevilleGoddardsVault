@@ -1,3 +1,5 @@
+# No Other God
+
 A god sent into the fires of experience is the only God upon whom to rely!
 
 Paul knew this truth and urged the Corinthians to 'Examine yourselves. [Test yourselves](/lectures/test-yourselves) whether you are holding to the faith. Do you not realize that [Jesus Christ](/lectures/jesus-christ) is in you? Unless, of course you fail to meet the test.' Speaking of the Lord Jesus Christ as being in you, Paul invites everyone to test him. How would you go about testing yourself? By determining your desire and believing you have received it! In the 12th chapter of Mark, Jesus is made to say: 'Whatever you desire, believe you have received it and you will.' Now, here is a condition placed upon you. You must believe! You must dare to assume you are what you want to be and believe in that Assumption! Then, if Jesus has not lied to you, your Assumption will harden into fact!
@@ -67,7 +69,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Testing Yourself
 
 - Paul urged the Corinthians to examine and test themselves, believing that Jesus Christ is in them.

@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 22
+
 *"They went forth, and entered into a ship, and that night they caught nothing."* ([John 21:3](https://www.biblegateway.com/passage/?search=John+21:3&version=KJV))
 
 *"And he said unto them, Cast the net on the right side of the ship, and ye shall find. They cast therefore, and now they were not able to draw it for the multitude of fishes."* ([John 21:6](https://www.biblegateway.com/passage/?search=John+21:6&version=KJV))
@@ -23,7 +25,6 @@ In a moment when you think not, while you faithfully walk in this consciousness,
 
 
 ## Summary
-
 ### Fruitless Human Struggle
 
 Man struggles fruitlessly to manifest desires through effort alone.

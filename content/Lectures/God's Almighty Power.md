@@ -1,3 +1,5 @@
+# God's Almighty Power
+
 God's almighty [power and wisdom](/lectures/power-and-wisdom) expresses itself most characteristically in the acceptance of what the world calls weakness or foolishness.   
   
 Matthew tells the story of one who - Knowing himself to be the personification of [God's creative power](/lectures/god-s-creative-power) and wisdom - questions himself, saying: *"If you are the Son of God, turn this stone into bread."* ([Matthew 4](https://www.biblegateway.com/passage/?search=Matthew+4&version=KJV)) Then he quoted the 8th chapter of Deuteronomy, saying: *"It is written, 'Man shall not live by bread alone, but by every word that proceeds out of the mouth of God.' “Here we discover that his hunger is no longer for bread made with flour, but for the hearing of the word of God, with understanding. The conflict recorded in this chapter is taking place in the mind of the individual, although it appears to be happening on the outside. Standing on the pinnacle, his adversary quoted the 91st Psalm, saying: "*If you are the Son of God cast yourself down from here, for it is written, 'He will give his angels power to lift you up lest you dash your foot against a stone.'*" Then, quoting the 6th chapter of Deuteronomy, he replied: "*It is written, 'You shall not tempt the Lord your God.' "   
@@ -48,7 +50,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### God's almighty power and wisdom
 - God's power and wisdom are expressed in accepting what the world sees as weakness or foolishness.
 - The story of the temptations faced by Jesus shows that true hunger is for the word of God, not physical bread.

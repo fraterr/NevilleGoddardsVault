@@ -1,3 +1,5 @@
+# The Revealer
+
 The Psalmist said: *"Those who know thy name put their trust in thee."* The name of God is synonymous with God himself, so when you know God's name, you will put your trust in him. The Book of Exodus tells the story of Moses, who questions God, saying: *"When I go to the people of Israel and say to them: 'The God of your fathers has sent me,' and they ask: 'What is his name?' what shall I say?"* And the Lord answered: *"Say this to the people of Israel: 'I AM has sent me to you; this is my name forever and by this name I shall be known throughout all generations."*' Now you be the judge. Do you trust your own wonderful I amness? I hope so, for God is the I AM that is your I am. Awareness is the Lord your God, who will bring you out of the land of Egypt, out of the house of bondage. Make no graven image of anything that is in the heavens, the earth, or the water, and bow before it; for there is only one God, and he is your own wonderful I amness. 
 
 Recently a lady wrote thanking me for teaching her who [Jesus Christ](/lectures/jesus-christ) really is. Then she said: "On my job I lift a typewriter every day. The other day, while moving it I strained a muscle in my lower back and experienced great pain. Remembering the story of the father who had his seven-year-old son revise the scene where he was hurt, in my imagination I picked up the typewriter without any pain. Having eliminated its cause, I felt no need to request help on the outside and within a few days my back was fine once more. 
@@ -44,7 +46,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Knowing God's Name
 
 - Psalmist states that knowing God's name leads to trust in Him.

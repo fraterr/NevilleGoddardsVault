@@ -1,3 +1,5 @@
+# Grace Vs. Law
+
 We are told in the first Chapter of John: *"The Law was given through Moses, but grace and truth came through [Jesus Christ](/lectures/jesus-christ)."* Unnumbered columns have been written about this grace vs. law. Tonight I am speaking not from theory, I am speaking from experience. We are called on to pass on to other generations, succeeding generations, our testimony. We are told in the First Epistle of [John 1:1-3](https://www.biblegateway.com/passage/?search=John+1:1-3&version=KJV): *"That which was from the beginning, which we have heard, which we have seen with our eyes . . . that which we have seen and heard we proclaim also to you, so that you may have fellowship with us."* These are the two births that take place in every individual in the world. No one brings about his own physical birth. He is born by the action of powers not his own. And so, no one brings about his own spiritual birth. He is born by the action of powers beyond his own. The first - we admit we are here, clothed in this garment of flesh. We find ourselves here but we know we had not a thing to do about it. We simply found ourselves. You will find yourself born spiritually in the same miraculous manner. You will be born from above, just as you were born here from below. Then there will be God's mightiest act, and you will be begotten and born from above, by the action of powers not your own.  
   
 We turn first to the law. In the very beginning God established the law of identical harvest: *"And let the earth put forth vegetation, trees yielding seed, and fruit trees bearing fruit, in which is their seed, each according to its own kind."* Here we find that the harvest is nothing more than the multiplication of the identical seed. *"Be not deceived, God is not mocked. Whatever a man sows so shall he reap."* That is this world, this law. Tonight I will show you what I have found about this sowing.  
@@ -54,7 +56,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Law and Grace
 - The Law was given through Moses, but grace and truth came through Jesus Christ.
 - We are called to pass on our testimony of grace to future generations.

@@ -1,3 +1,5 @@
+# The Roll Of The Book
+
 David, speaking to us in the 40th Psalm, says: *"Lo, I come to do thy will, O Lord, for in the roll of the book it is written of me."* And in 5th chapter of the Book of John these words are found on the lips of one called [Jesus Christ](/lectures/jesus-christ): *"You search the scriptures because you think that in them you have eternal life, and it is they that bear witness to me."* Claiming the entire book is all about him, he begins with Moses, the law, the prophets, and the psalms, and interprets the scriptures as things concerning himself. You will find this method of interpretation the key which will unlock the innermost of revelations. Take any story and, regardless of whether the central figure is male or female, claim you are that being, that you are reading you own autobiography.
 
 In the 25th chapter of the Book of Genesis, the Lord said to Rebecca: *"Two nations are in your womb and two peoples born of you shall be divided. One shall be stronger than the other; the elder shall serve the younger. And when her days were fulfilled the first came out red and covered with hair, so they called him Esau. Then his brother Jacob came forth with his hand holding Esau's heel."* Now we turn to the last book of the Old Testament, the Book of Malachi and read these words of the Lord: *"I have loved Jacob, but I have hated Esau."*
@@ -76,7 +78,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Interpretation of Scripture
 
 - David and Jesus Christ claimed that the entire Bible is about them, and they interpreted the scriptures as things concerning themselves.

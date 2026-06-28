@@ -1,3 +1,5 @@
+# Infinite Power
+
 Robert Browning tells us:  
   
 *"Truth is within ourselves.  
@@ -83,7 +85,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### The Truth Within
 
 - Truth is found within ourselves, not in external things.

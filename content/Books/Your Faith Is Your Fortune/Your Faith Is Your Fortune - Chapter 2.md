@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 2
+
 *"So shall my word be that goeth forth out of my mouth; it shall not return unto me void, but it shall accomplish that which I please, and it shall prosper in the thing whereto I sent it."* ([Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah+55:11&version=KJV))
 
 Man can decree a thing and it will come to pass.
@@ -32,7 +34,6 @@ Yes, I shall decree a thing and it shall come to pass.
 
 
 ## Summary
-
 ### Man's Power to Decree
 
 Man can decree a thing and it will come to pass. Man has always decreed what appears in his world by being conscious of it. Nothing has appeared that man did not decree through his consciousness.

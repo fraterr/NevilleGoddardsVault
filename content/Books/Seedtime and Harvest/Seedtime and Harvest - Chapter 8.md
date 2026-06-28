@@ -1,3 +1,5 @@
+# Seedtime and Harvest - Chapter 8
+
 *“…Except a man be born again he cannot see the kingdom of God.”*
 ([John 3:3](https://www.biblegateway.com/passage/?search=John+3:3&version=KJV))
 
@@ -144,7 +146,6 @@ Without the decision to change her mind in regard to the child, and the imaginat
 
 
 ## Summary
-
 ### Born Again of Water and Blood
 
 - Man must be born again of water and blood

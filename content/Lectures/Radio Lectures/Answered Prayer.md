@@ -1,3 +1,5 @@
+# Answered Prayer
+
 Have you ever had a Prayer answered? What wouldn’t men give just to feel certain that when they pray, something definite would happen. For this reason, I would like to take a little time to see why it is that some prayers are answered and some apparently fall on dry ground. *"When ye pray, believe that ye receive, and ye shall receive."* Believe that ye receive – is the condition imposed upon man. Unless we believe that we receive, our Prayer will not be answered. A Prayer – granted – implies that something is done in consequence of the Prayer which otherwise would not have been done. Therefore, the one who prays is the spring of action – the directing mind – and the one who grants the Prayer. Such responsibility man refuses to assume, for responsibility it seems, is mankind’s invisible nightmare.
 
 The whole natural world is built on law. Yet, between Prayer and its answer we see no such relation. We feel that God may answer or ignore our Prayer, that our Prayer may hit the mark or may miss it. The mind is still unwilling to admit that God subjects Himself to His own laws. How many people believe that there is, between Prayer and its answer, a relation of cause and effect?
@@ -23,7 +25,6 @@ Steadying attention makes no call upon any special faculty, but it does demand c
  
 
 ## Summary
-
 ### Answered Prayers
 
 Have you had a Prayer answered? Men would give anything to feel certain their prayers would have definite results.

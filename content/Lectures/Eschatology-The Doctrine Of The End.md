@@ -1,3 +1,5 @@
+# Eschatology-The Doctrine Of The End
+
 Eschatology is the doctrine of [the last days](/lectures/the-last-days). It is the dramatic end of human history and the beginning of eternal salvation. When you, an individual arrive at that point in time, human history and the appearance of the Son or man (who is God) come together. This will happen in you after the tribulation of human experience, and of that day and hour only the Father in you knows.   
   
 Although God the Father appears to be another, He is your very Self, as His spirit is in you. Were this not so, you could not commune with Him or He with you. He tells us to: *"Bring my sons from afar and my daughters from the end of the earth. Bring them all who are called by my name, whom I created for my glory, whom I formed and made."* You were created for God's glory, His glory will not be given to another, therefore you must be the one who created you. This you will know when you experience eschatology. It comes at the end of human tribulation, when all of the parts have been played, therefore envy no one, the part they are paying, for you have either played it already or you will play it, for you cannot come to this dramatic end until you have played all of the parts, and of that day only the Father within you knows.  
@@ -90,7 +92,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Eschatology: The Doctrine of the Last Days
 - Eschatology refers to the end of human history and the beginning of eternal salvation.
 - It is the dramatic culmination of human experience and the appearance of the Son of God.

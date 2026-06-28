@@ -1,3 +1,5 @@
+# Where Are You From
+
 Where are you from? This you will find in the 19th chapter of the Book of John. And the rabbi said to Pilate: We have a law, and according to that law he ought to die, for he claims he is the Son of God. And their law would not allow that, for we know where this man is from, know all about him; and when Messiah appears no one will know where he is from. So his claim is false. When Messiah appears it will be mysteriously done. And yet we know exactly where this man is from. Even his own brothers do not [believe in him](/lectures/believe-in-him). And he said to his brothers, My time has not yet come, but your time is always here. And then he repeated it, but qualified it: My time has not yet fully come. He knew his time. He is speaking of two entirely different times, two entirely different worlds, two different ages. So: My time has not yet fully come, but your time is always here. But my time had not yet fully come. 
 
 So Pilate said to him: Where are you from? And Jesus gave no answer. Pilate said to him: You will not speak to me? Do you not know that I have the power to set you free and power to crucify? And Jesus answered him: You would have no power over me unless it had been given to you from above; therefore he who delivered me to you has the greater sin. He does not answer Pilate's first question, but he corrects Pilate's misunderstanding of power. He does not answer: Where are you from? He doesn't answer him because Pilate would never understand; and he corrects Pilate's misunderstanding - which is the world's misunderstanding - of power. Pilate thought he had the power to set him free or to crucify him. He was simply telling him he had no power whatsoever unless it has been given from above. 
@@ -101,7 +103,6 @@ Goodnight.
 
 
 ## Summary
-
 ### Jesus' Time and the World's Time
 - The conversation between Jesus and Pilate highlights the difference between Jesus' understanding of time and the world's understanding of time
 - Jesus refers to his own time, which is not yet fully come, and the world's time, which is always present

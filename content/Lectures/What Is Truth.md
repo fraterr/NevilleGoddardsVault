@@ -1,3 +1,5 @@
+# What Is Truth
+
 Christianity is the fulfillment of Judaism, the fulfillment of all that was prophesied in the Old Testament. This week the Christian world celebrates Passover, the triumphal march into Jerusalem - the trial, the crucifixion, burial, and resurrection. Let me share these events with you as they are seen through the eyes of one who has experienced them. 
 
 In the 18th chapter of the Book of John, Pilate said: *"So you are a king?"* and Jesus replied: *"You say that I am, but my kingdom is not of this world. For this I was born. For this I came into the world, to bear witness to the truth."* Then Pilate asked: *"What is truth?"* and when there was no response, Pilate left, saying: *"I find nothing in this man worth condemnation."* Having already claimed: I am the truth, and my word is truth, here we find Jesus making the claim: I came to bear witness to the truth. 
@@ -81,7 +83,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Christianity as the Fulfillment of Judaism
 - Christianity fulfills the prophecies of the Old Testament.
 - Passover is celebrated as the triumphal march into Jerusalem, trial, crucifixion, burial, and resurrection.

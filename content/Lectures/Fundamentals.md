@@ -1,3 +1,5 @@
+# Fundamentals
+
 WITH so vast a subject, it is indeed a difficult task to summarize in a few hundred words what I consider the - most basic ideas on which those who seek a true understanding of metaphysics should now concentrate. I shall do what I can in the shape of three fundamentals. These fundamentals are: Self-Observation, Definition of Aim, and Detachment.
 
 The purpose of true metaphysics is to bring about a rebirth or radical psychological change in the individual. Such a change cannot take place until the individual first discovers the self that he would change. This discovery can be made only through an uncritical observation of his reactions to life. The sum total of these reactions defines the individual's state of consciousness, and it is the individual's state of consciousness that attracts the situations and circumstances of his life.
@@ -41,7 +43,6 @@ Neville
 
 
 ## Summary
-
 ### Fundamental 1: Self-Observation
 - True metaphysics aims to bring about a psychological change in individuals.
 - Change can only occur once individuals become aware of their true selves through observing their reactions to life.

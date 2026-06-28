@@ -1,3 +1,5 @@
+# Truth, The Word Of God
+
 If truth could ever be told so that it is understood, it will be believed. It is my hope that I can make the truth of scripture so understandable you will believe it. But whether you do or not, one day you will; for scripture will fulfill itself in you and then you will understand it perfectly.
 
 Scripture speaks of two baptisms, baptism with the water of repentance, and baptism with the Holy Spirit. Paul tells us: *"I baptize with the water of repentance, but there will come one after me who is mightier than I. He will baptize with the Holy Spirit."*
@@ -70,7 +72,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Two Baptisms: Water of Repentance and Holy Spirit
 - Scripture talks about two baptisms: with water of repentance and with Holy Spirit.
 - Water baptism represents radical change in attitude towards life; changing outer world by changing thinking.

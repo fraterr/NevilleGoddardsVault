@@ -1,3 +1,5 @@
+# Conception
+
 Tonight’s subject is on conception, both on this level and the highest level. The Bible is vision from beginning to end. Words such as Jesus, Moses, Abraham, and Isaac are used, but their stories are visions. Jesus is the fulfillment of scripture, so when I speak of Jesus, I am speaking of you raised to the level where you can make the same bold statement. Jesus’ declaration that he was the fulfillment of scripture required a spiritual maturity of which most who heard his claim were not capable of understanding, but the purpose of life is to fulfill scripture.  
   
 Tonight I will speak of conception which leads to scripture’s fulfillment, as well as the shadow it casts in this world, for the same technique can be used to realize your objectives here.  
@@ -62,7 +64,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Conception on the Highest Level
 - Bible stories are visions, Jesus is the fulfillment of scripture
 - Purpose of life is to fulfill scripture

@@ -1,3 +1,5 @@
+# God's Word
+
 We are here in this world for one purpose and that is to fulfill God's Word, which is scripture. Oh, you can accomplish miracles while you are here, but God sent you - his Word - into the world, saying: *"My Word shall not return unto me void. It must accomplish that which I purposed and prosper in the thing for which I sent it."* You are that Word, and you are destined to fulfill scripture.  
   
 This past week a lady wrote me, saying: "Recently I have been having difficulty remembering my Dreams, but this one was the most difficult I have ever encountered. I knew I had to surface to tell it to you, but it seemed like an endless depth of utter darkness from which I came. Holding onto the memory image of what I had experienced, I felt as though I were a diver who had plunged too deep and would never make the surface, but I did and this is my experience.  
@@ -56,7 +58,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Purpose in Life: Fulfilling God's Word
 - We are here to fulfill God's Word, which is scripture.
 - We are sent into the world as God's Word, destined to fulfill scripture.

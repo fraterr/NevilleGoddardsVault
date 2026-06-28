@@ -1,3 +1,5 @@
+# Freedom for All - Chapter 8
+
 *"And Jesus said unto them, Because of your unbelief; for verily I say unto you, if ye have faith as a grain of mustard seed, ye shall say unto this mountain, remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you."* ([Matthew 17:20](https://www.biblegateway.com/passage/?search=Matthew+17:20&version=KJV))
 
 This faith of a grain of mustard seed has proved a stumbling block to man ([1Corinthians 1:23](https://www.biblegateway.com/passage/?search=1+Corinthians+1:23&version=KJV)). He has been taught to believe that a grain of mustard seed signifies a small degree of faith. So he naturally wonders why he, a mature man, should lack this insignificant measure of faith when so small an amount assures success.
@@ -35,7 +37,6 @@ Impress upon your consciousness the fact that you actually heard him and that he
 Your consciousness is the Lord speaking through the familiar voice of a friend and impressing on yourself that which you desire to hear. This self-impregnation, the state impressed upon yourself, the Word, has ways and means of expressing itself of which no man knows. As you succeed in making the impression you will be unmoved by appearances for this self-impression is sealed as a grain of mustard seed and will in due season mature to its full expression.
 
 ## Summary
-
 ### Faith is absolute, like the mustard seed
 
 - Faith of a mustard seed is not small, but absolute.

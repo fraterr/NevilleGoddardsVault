@@ -1,3 +1,5 @@
+# Come O Blessed
+
 At times I discover that I take too much for granted. Just because I read scripture all day, I’m inclined to believe most people do - and they don’t. Yesterday a doctor who has been coming here for quite a while came to see me, and I realized that I had not made myself clear; so tonight I shall try to make this a very practical lecture, yet you will find it profoundly spiritual.  
   
 In the 25th chapter of the Book of Matthew, you will read the words: *"Come O blessed of my Father and inherit the kingdom prepared for you from the foundation of the world."* Now, this entire chapter is made up of one parable after the other. It begins with the ten wise and foolish virgins. Then the story is told of the talents and their use or misuse, followed by this statement: *"I was hungry and you gave me food, thirsty and you gave me drink. I was naked and you clothed me, a stranger and you received me. I was in prison and sick and you visited me."* Surprised that they are invited to inherit the kingdom prepared for them before the foundation of the world, they said to him: *"When did we find you hungry and give you food, thirsty and give you drink? When did we see you as a stranger and welcome you, or naked and clothed you? And when did we see you sick and imprisoned and visited you?"* And he replied: *"As you did it to the least of one of these, you did it unto me."*  
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Scripture and Parables
 - The 25th chapter of Matthew contains parables that emphasize the importance of helping others.
 - The parables highlight the concept of seeing Christ in others and treating them with kindness and compassion.

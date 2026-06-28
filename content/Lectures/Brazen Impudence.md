@@ -1,3 +1,5 @@
+# Brazen Impudence
+
 A new idea will not become part of your common currency of thought until it has been repeated over and over and you begin to live by it.   
   
 You have been taught to believe that God exists outside of you, but I say you are all Imagination. That God exists in us and we in him. That our eternal body is the Imagination, and that is God Himself. I mean every word I have just said, but it is a new thought. Until this new idea becomes a part of your thinking, every time you hear the word, *"God,"* your mind will go out to something you have conceived God to be.   
@@ -58,8 +60,7 @@ Michelangelo, with his tremendous know-how of the human form, created the dead f
 Now let us go into the silence.
 
 
-## Summary:
-
+## Summary
 ### The concept of God within oneself
 - God exists within each individual as their imagination.
 - It is a new thought that must become ingrained in one's thinking.

@@ -1,3 +1,5 @@
+# The Law and the Promise - Chapter 9
+
 *"If the Spectator would Enter into these Images in his Imagination, approaching them on the Fiery Chariot of his Contemplative Thought, if he could... make a Friend & Companion of one of these Images of wonder, which always entreats him to leave mortal things (as he must know) then would he arise from his Grave, then would he meet the Lord in the Air & then he would be happy."*
 (William Blake)
 
@@ -65,7 +67,6 @@ Unless the individual imagines himself, someone else, or somewhere else, the pre
 
 
 ## Summary
-
 ### Enter the images of imagination
 
 Approach on thought's fiery chariot and make them friends. Then you'll arise Imaginatively.

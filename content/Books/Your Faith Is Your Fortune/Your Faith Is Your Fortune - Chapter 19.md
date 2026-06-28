@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 19
+
 *"In him we live and move, and have our being."* ([Acts 17:28](https://www.biblegateway.com/passage/?search=Acts+None&version=KJV))
 
 Psychically, this world appears as an ocean of light containing within itself all things, including man, as pulsating bodies enveloped in liquid light. The Biblical story of the Flood is the state in which man lives. Man is actually inundated in an ocean of liquid light in which countless numbers of light-beings move.
@@ -12,7 +14,6 @@ The world is an ocean of liquid light in countless different states of crystalli
 
 
 ## Summary
-
 - The world appears as an ocean of liquid light containing all things.
 - The Biblical flood story represents man's state of being immersed in liquid light.
 - Man is the ark containing the male-female principles of all life.

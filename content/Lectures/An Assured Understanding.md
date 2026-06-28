@@ -1,3 +1,5 @@
+# An Assured Understanding
+
 In Paul’s letter to the Colossians, he said: *"I strive for you to have the riches of an assured understanding and [the knowledge of God](/lectures/the-knowledge-of-god)’s mystery of Christ."* Now, you may think there is no mystery to Christ and believe - as any Christian believes - that Christ is Jesus, the son of God; but Paul doesn’t state that. What Paul is trying to do is change your fixed ideas of the past, in order for you to have the same assured understanding and knowledge of God’s mystery of Christ that he has.
 
 Paul tells us that Christ is our human life. Now, if you took all of your experiences throughout all of the generations and condensed them into a single youth, it would be David. It is he in whom the Christ-seed flows. This is the same David who was anointed by the Lord and told that he would bring forth a son who would become the Lord’s son, being one with the Lord. In other words, David will bring forth a being who is his Father. That is the mystery.
@@ -71,8 +73,7 @@ Now let us go into the silence.
 
 
 
-## Summary:
-
+## Summary
 ### Understanding the Mystery of Christ
 
 - Paul wants the readers to have an assured understanding and knowledge of God’s mystery of Christ.

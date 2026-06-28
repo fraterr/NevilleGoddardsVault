@@ -1,3 +1,5 @@
+# Your Faith Is Your Fortune - Chapter 9
+
 *"Let every man take heed how he buildeth there-on. For other foundations can no man lay than that is laid, which is [Jesus Christ](/lectures/jesus-christ). Now if man build upon this foundation gold, silver, precious stones, wood, hay, stubble; every man’s work shall be made manifest; for the day shall declare it."* ([1 Cor. 3:10-13](https://www.biblegateway.com/passage/?search=1+Corinthians+3:10-13&version=KJV))
 
 The foundation of all expression is consciousness. Try as man will, he cannot find a Cause of manifestation other than his consciousness of being. Man thinks he has found the cause of disease in germs, the cause of war in conflicting political ideologies and greed. All such discoveries of man, catalogued as the essence of wisdom are foolishness in the eyes of God. There is only one power and this power is God(consciousness).It kills; it makes alive; it wounds; it heals; it does all things, good, bad or indifferent.
@@ -16,7 +18,6 @@ The stone (consciousness) which the builders rejected (would not wear) is the ch
 
 
 ## Summary
-
 ### Consciousness is the Foundation
 
 Consciousness is the sole foundation of all expression. Man erroneously seeks external causes like germs or politics.

@@ -1,3 +1,5 @@
+# The Value Of Dreams
+
 Here we use the words *"God"* or *"Christ"* or *"imagination"* interchangeably. They mean the same thing. If I use the word *"God"* because I am moved to use it, or the word *"Christ,"* it is the same thing. It is the fundamental power that created and sustains the universe, and which, also sustains our environment. We are told there is a secret to the whole creation 'In the beginning was the Word and the Word was with God and the Word was God, and by Him were all things made, and without Him was not anything made that was made.*" We could use the word "*imagination,*" but the secret here is "*Word." What is the Word? Something was made that was made.
 
 You have been taught to believe many things about the Word. Read the Bible and you will find what it means, for no one familiar with the Scripture could fail to see that the Word is the dream of man. You have been taught it is some being, born in a miraculous way, without the offices of a man. Well, it is, in a way. I have a dream and it comes out of nowhere; it depends on no outside help. 'If there be a prophet among you, I, the Lord, will make myself known to him in a dream.*" So the voice of God is the dream of man. "*Blessed is she, for she believed that this spoken to her would be fulfilled.*" It was told to her in a dream. From the beginning to the end of the Bible God is always speaking through a dream. In Job he speaks of two types. The first is a dream and then a vision of the night. "*And there He will open the ears of men and frighten them with warnings." I do not have to fall asleep here to dream. The nightmare is the rearrangement of the day Dreams. They are rearranged drama'tically and presented to me, and if my purpose is faulty it terrifies me with a warning.
@@ -50,7 +52,6 @@ This garment (the body) is to be used as I awaken. But as I become more and more
 
 
 ## Summary
-
 ### The Word as the Dream of Man
 - The words "God," "Christ," and "imagination" are interchangeable and refer to the fundamental power that created and sustains the universe.
 - The Word is the secret to creation, as stated in the Bible, and refers to man's dream.

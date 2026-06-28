@@ -1,3 +1,5 @@
+# Seek The Kingdom
+
 That which is most profoundly spiritual is in reality most directly practical. We are told: *"Do not be anxious, saying, 'What shall we eat?' or 'What shall we drink?' or 'What shall we wear?' for your heavenly Father knows that you need them all. But seek first his kingdom and his righteousness and all of these things shall be yours as well."* Here is a priority. Your heavenly Father knows you have to eat, drink, and clothe yourself, and they will all be yours if you will but put first things first; and the first thing is to seek the kingdom of God and his righteousness, for God is in his kingdom and when you find the kingdom you find God.
 
 While reading a book you may be aware of the phone ringing or someone entering the room. Although your attention is on the book, it does not exclude these events, which are marginal. So if, when you hear the story of the kingdom and how to enter it, your attention remains there, your heavenly Father will care for all of your marginal needs as you modify your concepts concerning God's plan of salvation.
@@ -50,7 +52,6 @@ Now let us go into the silence.
 
 
 ## Summary
-
 ### Priority: Seek the Kingdom
 - Seeking the kingdom of God and his righteousness should be the first priority.
 - God knows our physical needs, and if we put Him first, He will provide for us.
