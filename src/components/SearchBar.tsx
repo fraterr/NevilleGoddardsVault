@@ -14,7 +14,8 @@ interface SearchEntry {
 
 interface SearchResult {
   entry: SearchEntry;
-  count: number;
+  occurrences: number;
+  score: number;
 }
 
 function slugify(text: string): string {
@@ -53,29 +54,32 @@ export default function SearchBar() {
     const matches: SearchResult[] = [];
 
     for (const entry of allEntries) {
-      // Find all matches in title
+      // Find matches in title
       const inTitle = entry.title.toLowerCase().includes(q);
       
       // Count occurrences in content
-      let count = 0;
+      let occurrences = 0;
       if (entry.content) {
         let pos = entry.content.toLowerCase().indexOf(q);
         while (pos !== -1) {
-          count++;
+          occurrences++;
           pos = entry.content.toLowerCase().indexOf(q, pos + q.length);
         }
       }
 
-      if (inTitle || count > 0) {
+      if (inTitle || occurrences > 0) {
+        // Give heavy weight to title matches for sorting, but keep actual count separate
+        const score = occurrences + (inTitle ? 100 : 0);
         matches.push({
           entry,
-          count: count + (inTitle ? 5 : 0) // weight title matches
+          occurrences,
+          score
         });
       }
     }
 
-    // Sort by occurrence count descending
-    matches.sort((a, b) => b.count - a.count);
+    // Sort by score descending
+    matches.sort((a, b) => b.score - a.score);
 
     const limited = matches.slice(0, 15);
     setResults(limited);
@@ -151,9 +155,9 @@ export default function SearchBar() {
             >
               <div className={styles.resultTitleRow}>
                 <span className={styles.resultTitle}>{res.entry.title}</span>
-                {res.count > 0 && (
+                {res.occurrences > 0 && (
                   <span className={styles.occurrenceBadge}>
-                    {res.count} {res.count === 1 ? 'match' : 'matches'}
+                    {res.occurrences} {res.occurrences === 1 ? 'match' : 'matches'}
                   </span>
                 )}
               </div>
