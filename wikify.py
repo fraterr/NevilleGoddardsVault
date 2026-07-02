@@ -7,7 +7,7 @@ CONTENT_DIR = os.path.join(os.getcwd(), "content")
 SKIP_NAMES = {'.DS_Store', '.trash', 'Handles', 'Template', 'Context', '.obsidian'}
 SKIP_FILES = {'kitrc.md', '_kitrc.md', 'Books.md', 'Lectures.md', 'Search.md', 
               'Topics.md', 'Keywords.md', 'Bible References.md', 'Radio Lectures.md',
-              '.md'}
+              'Index.md', '.md'}
 
 # Common words that happen to be lecture titles but are too generic to auto-link
 # These would create noise if every occurrence got linked

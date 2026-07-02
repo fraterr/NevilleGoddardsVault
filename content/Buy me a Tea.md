@@ -11,7 +11,7 @@ This allows you to send a financial contribution as a token of appreciation for 
 
 
 <a href="https://www.buymeacoffee.com/practicalhumanism" target="_blank">
-<p style="text-align:center"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-blue.png" alt="Buy Me A Tea" style="height: 60px !important;width: 217px !important;" ></a>
+<p style="text-align:center"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-green.png" alt="Buy Me A Tea" style="height: 60px !important;width: 217px !important;" ></a>
 
 
 

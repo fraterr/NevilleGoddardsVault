@@ -26,8 +26,14 @@ def resolve_wikilink(match):
     
     # Try to find the link in our file map
     if link in file_map:
+        path_parts = file_map[link].split('/')
+        if len(path_parts) >= 2 and path_parts[-1].lower() == path_parts[-2].lower():
+            # Folder note (e.g., Books/Books -> Books)
+            resolved_path = '/'.join(path_parts[:-1])
+        else:
+            resolved_path = file_map[link]
         # Standard markdown link
-        return f"[{alias}](/{file_map[link]})"
+        return f"[{alias}](/{resolved_path})"
     else:
         # Fallback if file doesn't exist
         fallback_path = link.strip().replace(' ', '-')

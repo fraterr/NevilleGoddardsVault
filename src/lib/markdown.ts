@@ -333,7 +333,10 @@ export function resolveWikilink(linkName: string): string {
   
   if (found) {
     const relPath = path.relative(contentDirectory, found);
-    const parts = relPath.replace(/\.md$/, '').split(path.sep);
+    let parts = relPath.replace(/\.md$/, '').split(path.sep);
+    if (parts.length >= 2 && parts[parts.length - 1].toLowerCase() === parts[parts.length - 2].toLowerCase()) {
+      parts = parts.slice(0, -1);
+    }
     return `/${parts.map(slugify).join('/')}`;
   }
   
