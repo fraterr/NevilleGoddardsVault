@@ -13,7 +13,9 @@ export default function Sidebar() {
   return (
     <aside className={`${styles.sidebar} glass`}>
       <div className={styles.header}>
-        <h1 className={styles.title}>Neville Goddard's Vault</h1>
+        <Link href="/" className={styles.titleLink}>
+          <h1 className={styles.title}>Neville Goddard's Vault</h1>
+        </Link>
         <p className={styles.subtitle}>Awaken Your Imagination</p>
         <SearchBar />
         <a 
@@ -63,7 +65,8 @@ function TreeNode({ node, depth = 0 }: { node: VaultNode; depth?: number }) {
     );
   }
 
-  const href = `/${node.slug.join('/')}`;
+  const slugPath = node.slug.join('/').toLowerCase();
+  const href = slugPath === 'index' ? '/' : `/${node.slug.join('/')}`;
   
   return (
     <li className={styles.fileNode} style={{ paddingLeft }}>

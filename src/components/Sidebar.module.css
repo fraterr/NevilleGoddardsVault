@@ -18,6 +18,10 @@
   z-index: 10;
 }
 
+.titleLink {
+  text-decoration: none;
+}
+
 .title {
   font-size: 1.25rem;
   font-weight: 600;

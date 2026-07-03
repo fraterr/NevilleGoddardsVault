@@ -88,7 +88,8 @@ export default function SearchBar() {
   }, [query, allEntries]);
 
   const navigateTo = (result: SearchResult) => {
-    const href = '/' + result.entry.slug.map(slugify).join('/');
+    const slugPath = result.entry.slug.map(slugify).join('/').toLowerCase();
+    const href = slugPath === 'index' ? '/' : '/' + result.entry.slug.map(slugify).join('/');
     router.push(href);
     setQuery('');
     setIsOpen(false);

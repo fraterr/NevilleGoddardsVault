@@ -14,8 +14,22 @@ export default function Home() {
   }
 
   return (
-    <article className="glass" style={{ padding: '3rem', borderRadius: '16px', borderTop: '4px solid var(--accent-gold)' }}>
+    <article className="glass animate-fade-in" style={{ padding: '3rem', borderRadius: '16px', overflow: 'hidden' }}>
+      <div style={{ 
+        margin: '-3rem -3rem 2rem -3rem', 
+        position: 'relative', 
+        height: '200px',
+        overflow: 'hidden'
+      }}>
+        {/* eslint-disable-next-line @next/next/no-img-element */}
+        <img
+          src={`/NevilleGoddardsVault/images/banners/banner-index.png`}
+          alt="Page banner"
+          style={{ width: '100%', height: '100%', objectFit: 'cover', objectPosition: 'center' }}
+        />
+      </div>
       <MarkdownRenderer content={indexDoc.content} />
     </article>
   );
 }
+
