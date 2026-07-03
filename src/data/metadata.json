@@ -382,7 +382,7 @@
       "At your command"
     ],
     "book": "At your Command",
-    "chapter": "None",
+    "chapter": null,
     "type": "book",
     "bible_ref": [],
     "tags": [
@@ -419,7 +419,7 @@
       "The Search"
     ],
     "book": "The Search",
-    "chapter": "None",
+    "chapter": null,
     "type": "book",
     "bible_ref": [
       "Isaiah 61:3",
@@ -1162,12 +1162,34 @@
       "Freedom for All",
       "Freedom for All - Chapter 7"
     ],
-    "book": null,
-    "chapter": null,
+    "book": "Freedom for All",
+    "chapter": "Desire, the Word of God",
     "type": "book_chapter",
-    "bible_ref": [],
-    "tags": [],
-    "topics": [],
+    "bible_ref": [
+      "Isaiah 55:11",
+      "Isaiah 65:24",
+      "Isaiah 42:16",
+      "Revelation 1:8",
+      "Revelation 22:13",
+      "Romans 14:14",
+      "Romans 2:11",
+      "Romans 11:33",
+      "Acts 10:34",
+      "Matthew 7:21",
+      "Mark 14:13",
+      "Luke 22:10"
+    ],
+    "tags": [
+      "book"
+    ],
+    "topics": [
+      "God speaks through your basic desires",
+      "Do not add conditions to your desires",
+      "Desires reflect your self-conception",
+      "Give others only what you want back",
+      "Your world reflects you and unaccepted gifts",
+      "Passover turns from limitation to freedom"
+    ],
     "keywords": []
   },
   {
@@ -3812,7 +3834,7 @@
       "Lectures",
       "A Divine Event"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "A Divine Event",
     "type": "lecture",
     "bible_ref": [],
@@ -4438,7 +4460,7 @@
       "Lectures",
       "Esau - Jacob - Israel"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Esau - Jacob - Israel",
     "type": "lecture",
     "bible_ref": [],
@@ -4468,7 +4490,7 @@
       "Lectures",
       "Eschatology-The Doctrine Of The End"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Eschatology-The Doctrine Of The End",
     "type": "lecture",
     "bible_ref": [],
@@ -4500,7 +4522,7 @@
       "Lectures",
       "Eschatology-The Drama Of The End"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Eschatology-The Drama Of The End",
     "type": "lecture",
     "bible_ref": [],
@@ -4739,7 +4761,7 @@
       "Lectures",
       "Fundamentals"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Fundamentals",
     "type": "lecture",
     "bible_ref": [],
@@ -4901,7 +4923,7 @@
       "Lectures",
       "God's Word"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "God's Word",
     "type": "lecture",
     "bible_ref": [],
@@ -5055,7 +5077,7 @@
       "Lectures",
       "I Am In You"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "I Am In You",
     "type": "lecture",
     "bible_ref": [],
@@ -5166,7 +5188,7 @@
       "Lectures",
       "Imagining Creates"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Imagining Creates",
     "type": "lecture",
     "bible_ref": [],
@@ -5210,7 +5232,7 @@
       "Lectures",
       "Infinite States"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Infinite States",
     "type": "lecture",
     "bible_ref": [],
@@ -5416,7 +5438,7 @@
       "Lectures",
       "North Of The Strip"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "North Of The Strip",
     "type": "lecture",
     "bible_ref": [],
@@ -5554,7 +5576,7 @@
       "Lectures",
       "Prophetic Sketches"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Prophetic Sketches",
     "type": "lecture",
     "bible_ref": [],
@@ -5609,7 +5631,7 @@
       "Lectures",
       "Release Barabbas And Crucify Jesus"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Release Barabbas And Crucify Jesus",
     "type": "lecture",
     "bible_ref": [],
@@ -5694,7 +5716,7 @@
       "Lectures",
       "Seek The Kingdom"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Seek The Kingdom",
     "type": "lecture",
     "bible_ref": [],
@@ -5835,7 +5857,7 @@
       "Lectures",
       "That Which Already Has Been"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "That Which Already Has Been",
     "type": "lecture",
     "bible_ref": [],
@@ -6033,7 +6055,7 @@
       "Lectures",
       "The Crucifixion"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "The Crucifixion",
     "type": "lecture",
     "bible_ref": [],
@@ -6097,7 +6119,7 @@
       "Lectures",
       "The First Principle"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "The First Principle",
     "type": "lecture",
     "bible_ref": [],
@@ -6506,7 +6528,7 @@
       "Lectures",
       "The Pearl of Great Price"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "The Pearl of Great Price",
     "type": "lecture",
     "bible_ref": [],
@@ -6698,7 +6720,7 @@
       "Lectures",
       "The Seven Eyes Of God"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "The Seven Eyes Of God",
     "type": "lecture",
     "bible_ref": [],
@@ -6986,7 +7008,7 @@
       "Lectures",
       "Three Propositions"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Three Propositions",
     "type": "lecture",
     "bible_ref": [],
@@ -7050,7 +7072,7 @@
       "Lectures",
       "Truth, The Word Of God"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Truth, The Word Of God",
     "type": "lecture",
     "bible_ref": [],
@@ -7312,7 +7334,7 @@
       "Radio Lectures",
       "Affirm The Reality of our Own Greatness"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Affirm The Reality of our Own Greatness",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7343,7 +7365,7 @@
       "Radio Lectures",
       "Answered Prayer"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Answered Prayer",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7379,7 +7401,7 @@
       "Radio Lectures",
       "Be What You Wish; Be What You Believe"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Be What You Wish; Be What You Believe",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7404,7 +7426,7 @@
       "Radio Lectures",
       "By Imagination We Become"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "By Imagination We Become",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7432,7 +7454,7 @@
       "Radio Lectures",
       "Feeling Is The Secret"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Feeling Is The Secret",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7459,7 +7481,7 @@
       "Radio Lectures",
       "Meditation"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Meditation",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7500,7 +7522,7 @@
       "Radio Lectures",
       "Stone, Water or Wine"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Stone, Water or Wine?",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7526,7 +7548,7 @@
       "Radio Lectures",
       "The Law of Assumption"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "The Law of Assumption",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7555,7 +7577,7 @@
       "Radio Lectures",
       "Truth"
     ],
-    "book": "None",
+    "book": null,
     "chapter": "Truth",
     "type": "radio_lecture",
     "bible_ref": [],
@@ -7633,8 +7655,8 @@
       "Template",
       "Neville.template"
     ],
-    "book": "None",
-    "chapter": "None",
+    "book": null,
+    "chapter": null,
     "type": "other",
     "bible_ref": [],
     "tags": [],

@@ -80,8 +80,8 @@ def get_metadata():
                 docs.append({
                     "title": doc_title,
                     "slug": slug,
-                    "book": str(frontmatter.get("book", "")).strip() or None,
-                    "chapter": str(frontmatter.get("chapter", "")).strip() or None,
+                    "book": str(frontmatter.get("book") or "").strip() or None,
+                    "chapter": str(frontmatter.get("chapter") or "").strip() or None,
                     "type": doc_type,
                     "bible_ref": clean_val(frontmatter.get("bible_ref")),
                     "tags": clean_val(frontmatter.get("tags")),
