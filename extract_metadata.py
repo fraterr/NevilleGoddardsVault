@@ -9,8 +9,28 @@ OUTPUT_PATH = r"c:\Users\Io\Documents\Antigravity\Neville Goddard\neville-vault\
 def clean_val(val):
     if val is None:
         return []
+    if isinstance(val, dict):
+        res = []
+        for k, v in val.items():
+            if v:
+                res.append(f"{k}: {v}".strip())
+            else:
+                res.append(str(k).strip())
+        return res
     if isinstance(val, list):
-        return [str(v).strip() for v in val if v]
+        res = []
+        for v in val:
+            if v is None:
+                continue
+            if isinstance(v, dict):
+                for key, val_v in v.items():
+                    if val_v:
+                        res.append(f"{key}: {val_v}".strip())
+                    else:
+                        res.append(str(key).strip())
+            else:
+                res.append(str(v).strip())
+        return res
     # If it's a comma-separated string, or just a string
     val_str = str(val).strip()
     if val_str.startswith('[') and val_str.endswith(']'):
