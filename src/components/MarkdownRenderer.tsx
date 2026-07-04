@@ -30,7 +30,8 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
             
             // Check if it's a Bible Gateway link to inject an ID for scrolling
             let idAttr = undefined;
-            if (href && href.includes('biblegateway.com')) {
+            const isBibleLink = href?.includes('biblegateway.com');
+            if (href && isBibleLink) {
               try {
                 const urlObj = new URL(href);
                 const searchParam = urlObj.searchParams.get('search');
@@ -43,7 +44,14 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
             }
 
             return (
-              <a href={href} id={idAttr} target="_blank" rel="noopener noreferrer" {...props}>
+              <a 
+                href={href} 
+                id={idAttr} 
+                className={isBibleLink ? styles.bibleLink : undefined} 
+                target="_blank" 
+                rel="noopener noreferrer" 
+                {...props}
+              >
                 {children}
               </a>
             );

@@ -1,0 +1,161 @@
+.wrapper {
+  position: relative;
+  width: 100%;
+}
+
+/* Fixed Scroll Progress Bar */
+.progressBar {
+  position: fixed;
+  top: 0;
+  left: 0;
+  height: 3px;
+  background: linear-gradient(90deg, var(--accent-gold) 0%, var(--accent-amber) 100%);
+  z-index: 1000;
+  transition: width 0.1s ease-out;
+}
+
+/* Floating controls wrapper */
+.controlsWrapper {
+  position: absolute;
+  top: 1rem;
+  right: 1.5rem;
+  z-index: 20;
+}
+
+.triggerButton {
+  display: flex;
+  align-items: center;
+  justify-content: center;
+  width: 36px;
+  height: 36px;
+  border-radius: 8px;
+  background-color: var(--surface);
+  border: 1px solid var(--border);
+  color: var(--text-primary);
+  font-size: 0.9rem;
+  font-weight: 600;
+  cursor: pointer;
+  transition: all 0.2s ease;
+  box-shadow: 0 2px 8px rgba(0, 0, 0, 0.15);
+}
+
+.triggerButton:hover {
+  background-color: var(--surface-hover);
+  border-color: var(--accent-gold);
+  color: var(--accent-gold);
+}
+
+/* Popover Formatting Dialog */
+.popover {
+  position: absolute;
+  top: calc(100% + 8px);
+  right: 0;
+  width: 220px;
+  background-color: var(--surface);
+  backdrop-filter: blur(16px);
+  -webkit-backdrop-filter: blur(16px);
+  border: 1px solid var(--border);
+  border-radius: 10px;
+  padding: 1rem;
+  box-shadow: 0 8px 24px rgba(0, 0, 0, 0.4);
+  animation: fadeIn 0.15s ease-out forwards;
+}
+
+@keyframes fadeIn {
+  from { opacity: 0; transform: translateY(-5px); }
+  to { opacity: 1; transform: translateY(0); }
+}
+
+.popoverTitle {
+  font-size: 0.8rem;
+  font-weight: 700;
+  text-transform: uppercase;
+  letter-spacing: 0.08em;
+  color: var(--text-muted);
+  margin-bottom: 0.75rem;
+  border-bottom: 1px solid rgba(255, 255, 255, 0.05);
+  padding-bottom: 0.25rem;
+}
+
+.controlGroup {
+  margin-bottom: 0.75rem;
+}
+
+.controlGroup:last-child {
+  margin-bottom: 0;
+}
+
+.groupLabel {
+  display: block;
+  font-size: 0.75rem;
+  color: var(--text-secondary);
+  margin-bottom: 0.35rem;
+}
+
+.buttonRow {
+  display: flex;
+  gap: 0.25rem;
+  width: 100%;
+}
+
+.toggleBtn {
+  flex: 1;
+  background-color: rgba(255, 255, 255, 0.03);
+  border: 1px solid var(--border);
+  color: var(--text-secondary);
+  font-size: 0.8rem;
+  font-weight: 500;
+  padding: 0.35rem 0.5rem;
+  border-radius: 6px;
+  cursor: pointer;
+  transition: all 0.15s ease;
+  outline: none;
+}
+
+.toggleBtn:hover {
+  background-color: rgba(255, 255, 255, 0.08);
+  color: var(--text-primary);
+}
+
+.activeBtn {
+  background-color: var(--accent-gold);
+  border-color: var(--accent-gold);
+  color: #000000 !important;
+  font-weight: 600;
+}
+
+.activeBtn:hover {
+  background-color: #e5be3d;
+}
+
+/* Typography styles applied to nested children */
+.contentArea {
+  width: 100%;
+  transition: font-size 0.2s ease, font-family 0.2s ease;
+}
+
+/* Font Family mappings */
+.fontSerif {
+  font-family: var(--font-reading);
+}
+
+.fontSans {
+  font-family: var(--font-ui);
+}
+
+/* Font Size mappings */
+.sizeSmall {
+  font-size: 0.9rem;
+}
+
+.sizeMedium {
+  font-size: 1.05rem;
+}
+
+.sizeLarge {
+  font-size: 1.2rem;
+}
+
+.sizeXlarge {
+  font-size: 1.35rem;
+}

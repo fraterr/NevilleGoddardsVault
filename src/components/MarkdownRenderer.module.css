@@ -133,3 +133,21 @@
   color: var(--text-primary);
   background-color: rgba(255, 255, 255, 0.02);
 }
+
+.markdownBody a.bibleLink {
+  color: var(--accent-gold);
+  font-weight: 500;
+  text-decoration-color: var(--accent-gold-glow);
+  white-space: nowrap;
+}
+
+.markdownBody a.bibleLink::before {
+  content: "📖 ";
+  font-size: 0.85em;
+  margin-right: 0.2rem;
+}
+
+.markdownBody a.bibleLink:hover {
+  color: var(--accent-amber);
+  text-decoration-color: var(--accent-amber);
+}

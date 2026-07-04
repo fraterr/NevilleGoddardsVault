@@ -1,0 +1,330 @@
+.container {
+  max-width: 800px;
+  margin: 0 auto;
+  padding: 1rem 0;
+}
+
+.header {
+  margin-bottom: 2.5rem;
+  text-align: left;
+}
+
+.title {
+  font-family: var(--font-reading);
+  font-size: 2.25rem;
+  font-weight: 700;
+  color: var(--accent-gold);
+  margin-bottom: 0.5rem;
+  letter-spacing: -0.02em;
+}
+
+.subtitle {
+  font-size: 1rem;
+  color: var(--text-secondary);
+  line-height: 1.5;
+}
+
+/* Search Bar styling */
+.searchWrapper {
+  margin-bottom: 2.5rem;
+}
+
+.searchBar {
+  display: flex;
+  align-items: center;
+  background-color: var(--surface);
+  backdrop-filter: blur(8px);
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  padding: 0.75rem 1.25rem;
+  transition: all 0.3s ease;
+  box-shadow: 0 4px 15px rgba(0, 0, 0, 0.15);
+}
+
+.searchBar:focus-within {
+  border-color: var(--accent-gold);
+  box-shadow: 0 0 15px var(--accent-gold-glow), 0 4px 20px rgba(0, 0, 0, 0.25);
+}
+
+.searchIcon {
+  font-size: 1.1rem;
+  margin-right: 0.75rem;
+  opacity: 0.6;
+}
+
+.searchInput {
+  flex: 1;
+  background: none;
+  border: none;
+  outline: none;
+  color: var(--text-primary);
+  font-size: 1.05rem;
+  font-family: inherit;
+}
+
+.searchInput::placeholder {
+  color: var(--text-muted);
+  opacity: 0.8;
+}
+
+.clearButton {
+  background: none;
+  border: none;
+  color: var(--text-muted);
+  cursor: pointer;
+  font-size: 0.9rem;
+  padding: 0.25rem;
+  border-radius: 50%;
+  transition: all 0.2s ease;
+}
+
+.clearButton:hover {
+  color: var(--text-primary);
+  background-color: rgba(255, 255, 255, 0.08);
+}
+
+/* Alphabet Nav jump links */
+.alphaNav {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.35rem;
+  margin-bottom: 2.5rem;
+  padding-bottom: 1rem;
+  border-bottom: 1px solid var(--border);
+}
+
+.alphaLink {
+  display: flex;
+  align-items: center;
+  justify-content: center;
+  width: 32px;
+  height: 32px;
+  border-radius: 6px;
+  font-size: 0.85rem;
+  font-weight: 600;
+  background-color: var(--surface);
+  border: 1px solid var(--border);
+  color: var(--text-secondary);
+  transition: all 0.2s ease;
+  scroll-margin-top: 100px;
+}
+
+.alphaLink:hover {
+  background-color: var(--surface-hover);
+  color: var(--accent-gold);
+  border-color: var(--accent-gold);
+}
+
+/* Glossary list layout */
+.listContainer {
+  display: flex;
+  flex-direction: column;
+  gap: 2.5rem;
+}
+
+.letterSection {
+  scroll-margin-top: 80px;
+}
+
+.letterHeader {
+  font-size: 1.5rem;
+  font-weight: 700;
+  color: var(--accent-gold);
+  border-bottom: 1px solid var(--border);
+  padding-bottom: 0.5rem;
+  margin-bottom: 1.25rem;
+}
+
+.termsGrid {
+  display: grid;
+  grid-template-columns: 1fr;
+  gap: 1.5rem;
+}
+
+.termCard {
+  background-color: var(--surface);
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  overflow: hidden;
+  transition: all 0.25s ease;
+}
+
+.termCard:hover {
+  border-color: rgba(255, 255, 255, 0.12);
+}
+
+.termCardExpanded {
+  border-color: rgba(212, 175, 55, 0.25);
+  box-shadow: 0 4px 15px rgba(0, 0, 0, 0.2);
+}
+
+.termMain {
+  padding: 1.5rem;
+}
+
+.termName {
+  font-size: 1.35rem;
+  font-weight: 600;
+  color: var(--accent-gold);
+  margin-bottom: 0.75rem;
+  letter-spacing: -0.01em;
+}
+
+.termDefinition {
+  font-size: 0.975rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+}
+
+/* Document references dropdown */
+.referencesWrapper {
+  border-top: 1px solid var(--border);
+}
+
+.refTrigger {
+  display: flex;
+  align-items: center;
+  justify-content: space-between;
+  width: 100%;
+  padding: 0.75rem 1.5rem;
+  background-color: rgba(0, 0, 0, 0.12);
+  border: none;
+  cursor: pointer;
+  text-align: left;
+  outline: none;
+}
+
+.refTriggerText {
+  font-size: 0.85rem;
+  font-weight: 600;
+  color: var(--text-primary);
+  opacity: 0.9;
+}
+
+.refTrigger:hover .refTriggerText {
+  color: var(--accent-gold);
+}
+
+.chevron {
+  font-size: 0.7rem;
+  color: var(--text-muted);
+  transition: transform 0.25s ease;
+}
+
+.chevronOpen {
+  transform: rotate(180deg);
+  color: var(--accent-gold);
+}
+
+.referencesContent {
+  border-top: 1px solid var(--border);
+  background-color: rgba(0, 0, 0, 0.2);
+}
+
+.docList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+}
+
+.docItem {
+  border-bottom: 1px solid rgba(255, 255, 255, 0.03);
+}
+
+.docItem:last-child {
+  border-bottom: none;
+}
+
+.docLink {
+  display: flex;
+  align-items: center;
+  justify-content: space-between;
+  padding: 0.85rem 1.5rem;
+  color: var(--text-secondary);
+  transition: all 0.2s ease;
+}
+
+.docLink:hover {
+  background-color: var(--surface-hover);
+  color: var(--text-primary);
+}
+
+.docDetails {
+  display: flex;
+  flex-direction: column;
+  gap: 0.15rem;
+}
+
+.docTitle {
+  font-size: 0.925rem;
+  font-weight: 500;
+}
+
+.docContext {
+  font-size: 0.75rem;
+  color: var(--text-muted);
+}
+
+/* Badges styling */
+.badge {
+  font-size: 0.7rem;
+  font-weight: 600;
+  padding: 0.15rem 0.5rem;
+  border-radius: 12px;
+  white-space: nowrap;
+}
+
+.badgeBook {
+  background-color: rgba(212, 175, 55, 0.1);
+  color: var(--accent-gold);
+  border: 1px solid rgba(212, 175, 55, 0.25);
+}
+
+.badgeLecture {
+  background-color: rgba(16, 185, 129, 0.1);
+  color: #10b981;
+  border: 1px solid rgba(16, 185, 129, 0.25);
+}
+
+.badgeRadio {
+  background-color: rgba(59, 130, 246, 0.1);
+  color: #3b82f6;
+  border: 1px solid rgba(59, 130, 246, 0.25);
+}
+
+.badgeOther {
+  background-color: rgba(107, 107, 123, 0.1);
+  color: var(--text-muted);
+  border: 1px solid rgba(107, 107, 123, 0.25);
+}
+
+/* No Results */
+.noResults {
+  text-align: center;
+  padding: 3rem 1.5rem;
+  background-color: var(--surface);
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  color: var(--text-secondary);
+}
+
+.noResults p {
+  font-size: 1.05rem;
+  margin-bottom: 1.25rem;
+}
+
+.resetButton {
+  background-color: transparent;
+  border: 1px solid var(--accent-gold);
+  color: var(--accent-gold);
+  font-size: 0.9rem;
+  font-weight: 600;
+  padding: 0.5rem 1.25rem;
+  border-radius: 8px;
+  cursor: pointer;
+  transition: all 0.2s ease;
+}
+
+.resetButton:hover {
+  background-color: rgba(212, 175, 55, 0.08);
+}
