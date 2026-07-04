@@ -14,7 +14,7 @@ export default function Sidebar() {
     <aside className={`${styles.sidebar} glass`}>
       <div className={styles.header}>
         <Link href="/" className={styles.titleLink}>
-          <h1 className={styles.title}>Neville Goddard's Vault</h1>
+          <h1 className={styles.title}>Neville Goddard&apos;s Vault</h1>
         </Link>
         <SearchBar />
         <a 
