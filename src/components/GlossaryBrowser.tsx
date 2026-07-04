@@ -114,7 +114,7 @@ export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
         setTimeout(() => {
           const el = document.getElementById(`term-card-${hash}`);
           if (el) {
-            el.scrollIntoView({ behavior: 'smooth', block: 'center' });
+            el.scrollIntoView({ behavior: 'smooth', block: 'start' });
           }
         }, 150);
       }

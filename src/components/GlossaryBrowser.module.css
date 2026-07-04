@@ -147,6 +147,7 @@
   border-radius: 12px;
   overflow: hidden;
   transition: all 0.25s ease;
+  scroll-margin-top: 80px;
 }
 
 .termCard:hover {
