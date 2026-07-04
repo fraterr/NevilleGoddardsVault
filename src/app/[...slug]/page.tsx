@@ -13,6 +13,47 @@ interface PageProps {
   }>;
 }
 
+// Map slugs to banner image filenames
+const BANNER_MAP: Record<string, string> = {
+  'index': 'banner-index.png',
+  'books': 'banner-books.png',
+  'lectures': 'banner-lectures.png',
+  'feedback': 'banner-feedback.png',
+  'buy-me-a-tea': 'banner-buy-me-a-tea.png',
+  'search/bible-references': 'banner-bible-references.png',
+  'books/awakened-imagination': 'banner-awakened-imagination.png',
+  'books/feeling-is-the-secret': 'banner-feeling-is-the-secret.png',
+  'books/freedom-for-all': 'banner-freedom-for-all.png',
+  'books/out-of-this-world': 'banner-out-of-this-world.png',
+  'books/the-law-and-the-promise': 'banner-the-law-and-the-promise.png',
+  'books/the-power-of-awareness': 'banner-the-power-of-awareness.png',
+  'books/the-search': 'banner-the-search.png',
+  'books/your-faith-is-your-fortune': 'banner-your-faith-is-your-fortune.png',
+  'books/at-your-command': 'banner-at-your-command.png',
+  'books/prayer-the-art-of-believing': 'banner-prayer-art-of-believing.png',
+  'books/seedtime-and-harvest': 'banner-seedtime-and-harvest.png',
+  'lectures/radio-lectures': 'banner-radio-lectures.png',
+};
+
+function getBannerForSlug(slugParts: string[]): string | null {
+  const slugPath = slugParts.join('/').toLowerCase();
+
+  // Exact match first
+  if (BANNER_MAP[slugPath]) {
+    return BANNER_MAP[slugPath];
+  }
+
+  // For chapter pages, try the parent (book) banner
+  if (slugParts.length >= 2) {
+    const parentSlug = slugParts.slice(0, -1).join('/').toLowerCase();
+    if (BANNER_MAP[parentSlug]) {
+      return BANNER_MAP[parentSlug];
+    }
+  }
+
+  return null;
+}
+
 export async function generateStaticParams() {
   const tree = getVaultTree();
   const paths: { slug: string[] }[] = [];
@@ -90,8 +131,25 @@ export default async function DocumentPage({ params }: PageProps) {
     notFound();
   }
 
+  const bannerFile = getBannerForSlug(resolvedParams.slug);
+
   return (
     <article className="glass animate-fade-in" style={{ padding: '3rem', borderRadius: '16px', overflow: 'hidden' }}>
+      {bannerFile && (
+        <div style={{ 
+          margin: '-3rem -3rem 2rem -3rem', 
+          position: 'relative', 
+          height: '200px',
+          overflow: 'hidden'
+        }}>
+          {/* eslint-disable-next-line @next/next/no-img-element */}
+          <img
+            src={`/NevilleGoddardsVault/images/banners/${bannerFile}`}
+            alt="Page banner"
+            style={{ width: '100%', height: '100%', objectFit: 'cover', objectPosition: 'center' }}
+          />
+        </div>
+      )}
       <ReadingContainer>
         <MarkdownRenderer content={doc.content} />
       </ReadingContainer>
