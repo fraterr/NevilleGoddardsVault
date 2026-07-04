@@ -24,8 +24,14 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
               // Extract hash if present to preserve it
               const [pathPart, hashPart] = href.split('#');
               const slugifiedPath = pathPart.split('/').map(slugify).join('/');
-              const finalHref = hashPart ? `${slugifiedPath}#${hashPart}` : slugifiedPath;
-              return <Link href={finalHref}>{children}</Link>;
+              
+              if (hashPart) {
+                // Return a standard <a> tag with base path prepended to bypass Next.js Link basePath hash bug
+                const finalHref = `/NevilleGoddardsVault${slugifiedPath}#${hashPart}`;
+                return <a href={finalHref} {...props}>{children}</a>;
+              } else {
+                return <Link href={slugifiedPath}>{children}</Link>;
+              }
             }
             
             // Check if it's a Bible Gateway link to inject an ID for scrolling

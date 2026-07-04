@@ -91,8 +91,13 @@ export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
   // Handle scrolling to and highlighting a term when URL hash changes or on initial mount
   React.useEffect(() => {
     const handleHashChange = () => {
-      const hash = window.location.hash.slice(1).toLowerCase().trim();
+      let hash = window.location.hash.slice(1).toLowerCase().trim();
       if (!hash) return;
+
+      // Robust fallback if the URL still ends up with duplicate hashes like #state#state
+      if (hash.includes('#')) {
+        hash = hash.split('#')[0];
+      }
 
       const matchedTerm = glossaryTerms.find(t => slugify(t.name) === hash);
       if (matchedTerm) {
