@@ -32,6 +32,21 @@ export default function Sidebar() {
           {tree.map(node => (
             <TreeNode key={node.path} node={node} />
           ))}
+          <li className={styles.fileNode}>
+            <Link href="/search/bible-references" className={styles.fileLink}>
+              <span className={styles.fileIcon}>📖</span> Bible References
+            </Link>
+          </li>
+          <li className={styles.fileNode}>
+            <Link href="/search/topics" className={styles.fileLink}>
+              <span className={styles.fileIcon}>🗂️</span> Topics
+            </Link>
+          </li>
+          <li className={styles.fileNode}>
+            <Link href="/search/keywords" className={styles.fileLink}>
+              <span className={styles.fileIcon}>🏷️</span> Keywords
+            </Link>
+          </li>
         </ul>
       </nav>
     </aside>
