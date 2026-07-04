@@ -10,15 +10,16 @@
 }
 
 .header {
-  padding: 1.5rem 1.5rem 1rem 1.5rem;
+  padding: 2.25rem 1.75rem 1.75rem 1.75rem;
   border-bottom: 1px solid var(--border);
-  background: linear-gradient(180deg, rgba(212, 175, 55, 0.1) 0%, var(--bg-primary, #111) 100%);
+  background: linear-gradient(180deg, rgba(212, 175, 55, 0.04) 0%, var(--background) 100%);
   position: sticky;
   top: 0;
   z-index: 10;
 }
 
 .titleLink {
+  display: block;
   text-decoration: none;
 }
 
@@ -26,7 +27,7 @@
   display: block;
   width: 100%;
   height: auto;
-  margin-bottom: 1.25rem;
+  margin-bottom: 1.5rem;
   border-radius: 8px;
   border: 1px solid rgba(255, 255, 255, 0.06);
   box-shadow: 0 6px 20px rgba(0, 0, 0, 0.35);
@@ -44,7 +45,7 @@
   font-size: 1.35rem;
   font-weight: 600;
   color: var(--accent-gold);
-  margin-bottom: 0.35rem;
+  margin-bottom: 0.5rem;
   letter-spacing: -0.01em;
   line-height: 1.2;
 }
@@ -54,7 +55,7 @@
   color: var(--text-muted);
   text-transform: uppercase;
   letter-spacing: 0.15em;
-  margin-bottom: 1.25rem;
+  margin-bottom: 1.75rem;
 }
 
 
@@ -69,11 +70,11 @@
   text-decoration: none;
   font-size: 0.9rem;
   font-weight: 600;
-  padding: 0.5rem;
+  padding: 0.65rem;
   border-radius: 8px;
   border: 1px solid rgba(16, 185, 129, 0.3);
   transition: all 0.2s ease;
-  margin-top: 1rem;
+  margin-top: 1.25rem;
 }
 
 .teaButton:hover {
@@ -84,7 +85,7 @@
 }
 
 .nav {
-  padding: 1.5rem 1rem;
+  padding: 2rem 1.25rem;
   flex: 1;
 }
 
@@ -95,13 +96,13 @@
 }
 
 .detailsGroup {
-  margin-bottom: 0.5rem;
+  margin-bottom: 0.75rem;
 }
 
 .dirLabel {
   display: flex;
   align-items: center;
-  margin-bottom: 0.25rem;
+  margin-bottom: 0.4rem;
   width: 100%;
   cursor: pointer;
   list-style: none; /* Hide default triangle */
@@ -118,7 +119,7 @@
   color: var(--text-primary);
   text-decoration: none;
   font-size: 0.95rem;
-  padding: 0.25rem 0.5rem;
+  padding: 0.45rem 0.65rem;
   border-radius: 6px;
   transition: all 0.2s ease;
   width: 100%;
@@ -132,7 +133,7 @@
 }
 
 .fileNode {
-  margin-bottom: 0.2rem;
+  margin-bottom: 0.35rem;
 }
 
 .fileLink {
@@ -141,7 +142,7 @@
   color: var(--text-secondary);
   text-decoration: none;
   font-size: 0.9rem;
-  padding: 0.35rem 0.5rem;
+  padding: 0.45rem 0.65rem;
   border-radius: 6px;
   transition: all 0.2s ease;
 }
