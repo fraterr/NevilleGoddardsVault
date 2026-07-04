@@ -14,6 +14,12 @@ export default function Sidebar() {
     <aside className={`${styles.sidebar} glass`}>
       <div className={styles.header}>
         <Link href="/" className={styles.titleLink}>
+          {/* eslint-disable-next-line @next/next/no-img-element */}
+          <img 
+            src="/NevilleGoddardsVault/images/logoNV.jpg" 
+            alt={"Neville Goddard's Vault Logo"} 
+            className={styles.logo} 
+          />
           <h1 className={styles.title}>Neville Goddard's Vault</h1>
         </Link>
         <p className={styles.subtitle}>Awaken Your Imagination</p>
