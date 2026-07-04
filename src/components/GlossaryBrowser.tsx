@@ -37,6 +37,7 @@ interface GlossaryBrowserProps {
 export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
   const [searchQuery, setSearchQuery] = useState('');
   const [expandedTerms, setExpandedTerms] = useState<Record<string, boolean>>({});
+  const [highlightedTerm, setHighlightedTerm] = useState<string | null>(null);
 
   // 1. Parse Glossary markdown content and match references from metadata
   const { glossaryTerms, alphabet } = useMemo(() => {
@@ -86,6 +87,41 @@ export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
 
     return { glossaryTerms: terms, alphabet: alpha };
   }, [content]);
+
+  // Handle scrolling to and highlighting a term when URL hash changes or on initial mount
+  React.useEffect(() => {
+    const handleHashChange = () => {
+      const hash = window.location.hash.slice(1).toLowerCase().trim();
+      if (!hash) return;
+
+      const matchedTerm = glossaryTerms.find(t => slugify(t.name) === hash);
+      if (matchedTerm) {
+        // Expand its documents
+        setExpandedTerms(prev => ({
+          ...prev,
+          [matchedTerm.name]: true
+        }));
+        
+        // Highlight it
+        setHighlightedTerm(matchedTerm.name);
+
+        // Scroll to it
+        setTimeout(() => {
+          const el = document.getElementById(`term-card-${hash}`);
+          if (el) {
+            el.scrollIntoView({ behavior: 'smooth', block: 'center' });
+          }
+        }, 150);
+      }
+    };
+
+    if (glossaryTerms.length > 0) {
+      handleHashChange();
+    }
+
+    window.addEventListener('hashchange', handleHashChange);
+    return () => window.removeEventListener('hashchange', handleHashChange);
+  }, [glossaryTerms]);
 
   // 2. Filter terms by search query
   const filteredTerms = useMemo(() => {
@@ -190,13 +226,19 @@ export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
                 <div className={styles.termsGrid}>
                   {groupedTerms[letter].map(term => {
                     const isExpanded = !!expandedTerms[term.name];
-                    const termId = `term-anchor-${slugify(term.name)}`;
+                    const isHighlighted = highlightedTerm === term.name;
+                    const cardId = `term-card-${slugify(term.name)}`;
 
                     return (
                       <div 
                         key={term.name} 
-                        id={termId}
-                        className={`${styles.termCard} ${isExpanded ? styles.termCardExpanded : ''}`}
+                        id={cardId}
+                        className={`${styles.termCard} ${isExpanded ? styles.termCardExpanded : ''} ${isHighlighted ? styles.termCardHighlighted : ''}`}
+                        onClick={() => {
+                          if (isHighlighted) {
+                            setHighlightedTerm(null);
+                          }
+                        }}
                       >
                         <div className={styles.termMain}>
                           <h3 className={styles.termName}>{term.name}</h3>
