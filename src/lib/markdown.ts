@@ -196,6 +196,38 @@ export function getAdjacentDocs(slug: string[]): AdjacentDocs {
   };
 }
 
+export interface RelatedDoc {
+  title: string;
+  slug: string[];
+  book?: string | null;
+  type?: string | null;
+}
+
+// Related-documents map, precomputed by scripts/generate-static-data.mjs via
+// TF-IDF cosine similarity over the full text of every document.
+let cachedRelatedMap: Record<string, RelatedDoc[]> | null = null;
+
+function getRelatedMap(): Record<string, RelatedDoc[]> {
+  if (!cachedRelatedMap) {
+    const relatedPath = path.join(process.cwd(), 'src', 'data', 'related.json');
+    try {
+      cachedRelatedMap = fs.existsSync(relatedPath)
+        ? JSON.parse(fs.readFileSync(relatedPath, 'utf8'))
+        : {};
+    } catch (e) {
+      console.error('Error reading related.json:', e);
+      cachedRelatedMap = {};
+    }
+  }
+  return cachedRelatedMap!;
+}
+
+/** Documents most similar to the given one (used for "Related in the vault"). */
+export function getRelatedDocs(slug: string[]): RelatedDoc[] {
+  const key = slug.map(slugify).join('/');
+  return getRelatedMap()[key] ?? [];
+}
+
 function evaluateDataviewQuery(queryText: string): string {
   // Parse Dataview query
   const tableMatch = queryText.match(/TABLE\s+([\s\S]+?)(?:FROM|WHERE|SORT|$)/i);

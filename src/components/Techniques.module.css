@@ -1,0 +1,248 @@
+/* Techniques section + Start Here shared styles */
+
+.pageTitle {
+  font-family: var(--font-reading);
+  font-size: 2.1rem;
+  color: var(--text-primary);
+  margin-bottom: 0.5rem;
+  line-height: 1.2;
+}
+
+.tagline {
+  font-size: 1.05rem;
+  color: var(--text-secondary);
+  font-style: italic;
+  margin-bottom: 2rem;
+  line-height: 1.5;
+}
+
+.intro {
+  font-family: var(--font-reading);
+  font-size: 1.05rem;
+  color: var(--text-primary);
+  line-height: 1.8;
+  margin-bottom: 1rem;
+}
+
+.sectionTitle {
+  font-family: var(--font-reading);
+  font-size: 1.4rem;
+  color: var(--accent-gold);
+  margin: 2.5rem 0 1rem;
+  padding-bottom: 0.4rem;
+  border-bottom: 1px solid var(--border);
+}
+
+.sectionIntro {
+  color: var(--text-secondary);
+  line-height: 1.7;
+  margin-bottom: 1.25rem;
+}
+
+/* Cards grid (index page) */
+.cardsGrid {
+  display: grid;
+  grid-template-columns: repeat(auto-fill, minmax(270px, 1fr));
+  gap: 1rem;
+  margin-top: 1.5rem;
+}
+
+.card {
+  display: flex;
+  flex-direction: column;
+  gap: 0.5rem;
+  padding: 1.4rem;
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  background: var(--surface);
+  text-decoration: none;
+  transition: all 0.2s ease;
+}
+
+.card:hover {
+  border-color: var(--accent-gold-glow);
+  background: var(--surface-hover);
+  transform: translateY(-2px);
+}
+
+.cardTitle {
+  font-family: var(--font-reading);
+  font-size: 1.15rem;
+  color: var(--text-primary);
+  font-weight: 600;
+}
+
+.card:hover .cardTitle {
+  color: var(--accent-gold);
+}
+
+.cardTagline {
+  font-size: 0.9rem;
+  color: var(--text-secondary);
+  line-height: 1.55;
+}
+
+/* Steps */
+.stepsList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  counter-reset: step;
+}
+
+.step {
+  position: relative;
+  padding: 0 0 1.4rem 3.1rem;
+  counter-increment: step;
+}
+
+.step::before {
+  content: counter(step);
+  position: absolute;
+  left: 0;
+  top: 0;
+  width: 2.1rem;
+  height: 2.1rem;
+  display: flex;
+  align-items: center;
+  justify-content: center;
+  border-radius: 50%;
+  border: 1px solid var(--accent-gold-glow);
+  color: var(--accent-gold);
+  font-family: var(--font-reading);
+  font-weight: 600;
+}
+
+.step:not(:last-child)::after {
+  content: '';
+  position: absolute;
+  left: 1.05rem;
+  top: 2.35rem;
+  bottom: 0.2rem;
+  width: 1px;
+  background: var(--border);
+}
+
+.stepTitle {
+  font-weight: 600;
+  color: var(--text-primary);
+  margin-bottom: 0.35rem;
+  font-size: 1.02rem;
+}
+
+.stepDetail {
+  color: var(--text-secondary);
+  line-height: 1.7;
+  font-size: 0.95rem;
+}
+
+/* Quotes */
+.quote {
+  margin: 0 0 1.25rem;
+  padding: 1.1rem 1.3rem;
+  border-left: 3px solid var(--accent-gold);
+  background: var(--surface);
+  border-radius: 0 10px 10px 0;
+}
+
+.quoteText {
+  font-family: var(--font-reading);
+  font-style: italic;
+  color: var(--text-primary);
+  line-height: 1.75;
+  margin-bottom: 0.6rem;
+}
+
+.quoteSource {
+  font-size: 0.85rem;
+}
+
+.quoteSource a {
+  color: var(--accent-gold);
+  text-decoration: none;
+}
+
+.quoteSource a:hover {
+  text-decoration: underline;
+}
+
+/* Mistakes + FAQ */
+.itemBlock {
+  margin-bottom: 1.1rem;
+}
+
+.itemTitle {
+  font-weight: 600;
+  color: var(--text-primary);
+  margin-bottom: 0.3rem;
+}
+
+.itemDetail {
+  color: var(--text-secondary);
+  line-height: 1.7;
+  font-size: 0.95rem;
+}
+
+.faqItem {
+  border: 1px solid var(--border);
+  border-radius: 10px;
+  margin-bottom: 0.75rem;
+  overflow: hidden;
+}
+
+.faqQuestion {
+  padding: 0.9rem 1.1rem;
+  cursor: pointer;
+  font-weight: 600;
+  color: var(--text-primary);
+  list-style: none;
+  transition: background 0.15s ease;
+}
+
+.faqQuestion:hover {
+  background: var(--surface-hover);
+}
+
+.faqAnswer {
+  padding: 0 1.1rem 1rem;
+  color: var(--text-secondary);
+  line-height: 1.7;
+  font-size: 0.95rem;
+}
+
+/* Related links */
+.relatedList {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.6rem;
+  list-style: none;
+  padding: 0;
+  margin: 0;
+}
+
+.relatedLink {
+  display: inline-block;
+  padding: 0.45rem 0.9rem;
+  border: 1px solid var(--border);
+  border-radius: 999px;
+  color: var(--text-secondary);
+  text-decoration: none;
+  font-size: 0.88rem;
+  transition: all 0.2s ease;
+}
+
+.relatedLink:hover {
+  border-color: var(--accent-gold-glow);
+  color: var(--accent-gold);
+}
+
+/* Note / disclaimer */
+.note {
+  margin-top: 2.5rem;
+  padding: 1rem 1.2rem;
+  border: 1px dashed var(--border);
+  border-radius: 10px;
+  color: var(--text-muted);
+  font-size: 0.85rem;
+  line-height: 1.6;
+}

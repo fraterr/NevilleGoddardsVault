@@ -1,0 +1,125 @@
+.title {
+  font-family: var(--font-reading);
+  font-size: 2rem;
+  color: var(--text-primary);
+  margin-bottom: 0.4rem;
+}
+
+.subtitle {
+  color: var(--text-secondary);
+  margin-bottom: 1.5rem;
+}
+
+.form {
+  display: flex;
+  gap: 0.6rem;
+  margin-bottom: 1.25rem;
+}
+
+.input {
+  flex: 1;
+  padding: 0.75rem 1rem;
+  border-radius: 10px;
+  border: 1px solid var(--border);
+  background: var(--surface);
+  color: var(--text-primary);
+  font-size: 1rem;
+  outline: none;
+}
+
+.input:focus {
+  border-color: var(--accent-gold-glow);
+}
+
+.submit {
+  padding: 0.75rem 1.4rem;
+  border-radius: 10px;
+  border: 1px solid var(--accent-gold-glow);
+  background: transparent;
+  color: var(--accent-gold);
+  font-weight: 600;
+  cursor: pointer;
+  transition: all 0.2s ease;
+}
+
+.submit:hover {
+  background: var(--surface-hover);
+}
+
+.summary {
+  color: var(--text-secondary);
+  margin-bottom: 1.5rem;
+  font-size: 0.95rem;
+}
+
+.resultList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  display: flex;
+  flex-direction: column;
+  gap: 1.1rem;
+}
+
+.result {
+  padding: 1.1rem 1.25rem;
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  background: var(--surface);
+}
+
+.resultHeader {
+  display: flex;
+  flex-wrap: wrap;
+  align-items: baseline;
+  gap: 0.35rem 0.9rem;
+  margin-bottom: 0.5rem;
+}
+
+.resultTitle {
+  font-family: var(--font-reading);
+  font-size: 1.12rem;
+  font-weight: 600;
+  color: var(--text-primary);
+  text-decoration: none;
+}
+
+.resultTitle:hover {
+  color: var(--accent-gold);
+}
+
+.resultMeta {
+  font-size: 0.8rem;
+  color: var(--text-muted);
+}
+
+.snippet {
+  font-size: 0.92rem;
+  color: var(--text-secondary);
+  line-height: 1.65;
+  margin: 0.35rem 0 0;
+}
+
+.mark {
+  background: var(--accent-gold-glow);
+  color: var(--text-primary);
+  border-radius: 3px;
+  padding: 0 0.15em;
+}
+
+.loadMore {
+  margin-top: 1.5rem;
+  width: 100%;
+  padding: 0.8rem;
+  border-radius: 10px;
+  border: 1px solid var(--border);
+  background: var(--surface);
+  color: var(--text-secondary);
+  cursor: pointer;
+  transition: all 0.2s ease;
+}
+
+.loadMore:hover {
+  border-color: var(--accent-gold-glow);
+  color: var(--accent-gold);
+}

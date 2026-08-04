@@ -82,6 +82,23 @@ const GlossaryIcon = (
   </svg>
 );
 
+const CompassIcon = (
+  <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
+    <circle cx="12" cy="12" r="10" />
+    <polygon points="16.24 7.76 14.12 14.12 7.76 16.24 9.88 9.88 16.24 7.76" />
+  </svg>
+);
+
+const SparkIcon = (
+  <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
+    <path d="M12 3v3" />
+    <path d="M12 18v3" />
+    <path d="M3 12h3" />
+    <path d="M18 12h3" />
+    <path d="M12 8a4 4 0 1 0 4 4 4 4 0 0 0-4-4Z" />
+  </svg>
+);
+
 const DiceIcon = (
   <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
     <rect x="3" y="3" width="18" height="18" rx="2" />
@@ -144,6 +161,16 @@ export default function Sidebar() {
             <li className={styles.fileNode}>
               <Link href="/" className={linkClass('/')}>
                 <span className={styles.fileIcon}>{HomeIcon}</span> Home
+              </Link>
+            </li>
+            <li className={styles.fileNode}>
+              <Link href="/start-here" className={linkClass('/start-here')}>
+                <span className={styles.fileIcon}>{CompassIcon}</span> Start Here
+              </Link>
+            </li>
+            <li className={styles.fileNode}>
+              <Link href="/techniques" className={linkClass('/techniques')}>
+                <span className={styles.fileIcon}>{SparkIcon}</span> Techniques
               </Link>
             </li>
           </ul>

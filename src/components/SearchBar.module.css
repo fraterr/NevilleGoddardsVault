@@ -70,6 +70,19 @@
   box-shadow: 0 8px 24px rgba(0, 0, 0, 0.4);
 }
 
+.allResultsRow {
+  padding: 0.7rem 1rem;
+  font-size: 0.85rem;
+  color: var(--accent-gold);
+  cursor: pointer;
+  border-top: 1px solid var(--border);
+  text-align: center;
+}
+
+.allResultsRow:hover {
+  background-color: var(--surface-hover);
+}
+
 .resultItem {
   padding: 0.6rem 0.75rem;
   cursor: pointer;

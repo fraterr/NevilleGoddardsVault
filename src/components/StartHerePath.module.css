@@ -1,0 +1,167 @@
+/* Start Here 21-day path */
+
+.progressHeader {
+  margin: 1.5rem 0 2rem;
+}
+
+.progressTrack {
+  height: 8px;
+  border-radius: 999px;
+  background: var(--surface);
+  border: 1px solid var(--border);
+  overflow: hidden;
+}
+
+.progressFill {
+  height: 100%;
+  border-radius: 999px;
+  background: linear-gradient(90deg, var(--accent-gold), var(--accent-amber));
+  transition: width 0.4s ease;
+}
+
+.progressMeta {
+  display: flex;
+  justify-content: space-between;
+  align-items: center;
+  margin-top: 0.5rem;
+  font-size: 0.85rem;
+  color: var(--text-muted);
+}
+
+.resetButton {
+  background: none;
+  border: none;
+  color: var(--text-muted);
+  font-size: 0.8rem;
+  cursor: pointer;
+  text-decoration: underline;
+  padding: 0;
+}
+
+.resetButton:hover {
+  color: var(--accent-gold);
+}
+
+.week {
+  margin-bottom: 2.25rem;
+}
+
+.weekTitle {
+  font-family: var(--font-reading);
+  font-size: 1.35rem;
+  color: var(--accent-gold);
+  margin-bottom: 0.25rem;
+}
+
+.weekSubtitle {
+  color: var(--text-muted);
+  font-size: 0.92rem;
+  margin-bottom: 1.25rem;
+  font-style: italic;
+}
+
+.dayList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  display: flex;
+  flex-direction: column;
+  gap: 0.75rem;
+}
+
+.day {
+  display: flex;
+  gap: 1rem;
+  padding: 1rem 1.1rem;
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  background: var(--surface);
+  transition: border-color 0.2s ease, opacity 0.2s ease;
+}
+
+.dayDone {
+  opacity: 0.62;
+}
+
+.dayNext {
+  border-color: var(--accent-gold-glow);
+  box-shadow: 0 0 0 1px var(--accent-gold-glow);
+}
+
+.dayCheck {
+  flex-shrink: 0;
+  width: 2.2rem;
+  height: 2.2rem;
+  border-radius: 50%;
+  border: 1px solid var(--border);
+  background: transparent;
+  color: var(--text-secondary);
+  font-family: var(--font-reading);
+  font-weight: 600;
+  font-size: 0.95rem;
+  cursor: pointer;
+  transition: all 0.2s ease;
+  align-self: flex-start;
+}
+
+.dayCheck:hover {
+  border-color: var(--accent-gold);
+  color: var(--accent-gold);
+}
+
+.dayDone .dayCheck {
+  background: var(--accent-gold);
+  border-color: var(--accent-gold);
+  color: var(--background);
+}
+
+.dayBody {
+  display: flex;
+  flex-direction: column;
+  gap: 0.35rem;
+  min-width: 0;
+}
+
+.dayTitle {
+  font-weight: 600;
+  color: var(--text-primary);
+  display: flex;
+  align-items: center;
+  gap: 0.6rem;
+  flex-wrap: wrap;
+}
+
+.nextBadge {
+  font-size: 0.68rem;
+  font-weight: 600;
+  text-transform: uppercase;
+  letter-spacing: 0.06em;
+  color: var(--accent-gold);
+  border: 1px solid var(--accent-gold-glow);
+  border-radius: 999px;
+  padding: 0.12rem 0.55rem;
+}
+
+.dayReading,
+.dayPractice {
+  font-size: 0.92rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+}
+
+.dayLabel {
+  color: var(--text-muted);
+  font-size: 0.78rem;
+  text-transform: uppercase;
+  letter-spacing: 0.05em;
+  font-weight: 600;
+}
+
+.dayReading a {
+  color: var(--accent-gold);
+  text-decoration: none;
+}
+
+.dayReading a:hover {
+  text-decoration: underline;
+}

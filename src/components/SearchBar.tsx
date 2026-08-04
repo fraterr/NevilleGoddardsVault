@@ -2,47 +2,11 @@
 
 import { useState, useEffect, useMemo, useRef } from 'react';
 import { useRouter } from 'next/navigation';
-import { BASE_PATH } from '@/lib/config';
 import { hrefForSlug } from '@/lib/slug';
+import { loadSearchIndex, searchEntries, SearchEntry, SearchMatch } from '@/lib/searchClient';
 import styles from './SearchBar.module.css';
 
-interface SearchEntry {
-  title: string;
-  slug: string[];
-  book?: string;
-  type?: string;
-  /** Plain, lowercased document text (see scripts/generate-static-data.mjs) */
-  text: string;
-}
-
-interface SearchResult {
-  entry: SearchEntry;
-  occurrences: number;
-  score: number;
-}
-
-// The index weighs a few MB, so it is fetched lazily on first focus and
-// cached at module level for the lifetime of the page.
-let indexPromise: Promise<SearchEntry[]> | null = null;
-
-function loadSearchIndex(): Promise<SearchEntry[]> {
-  if (!indexPromise) {
-    indexPromise = fetch(`${BASE_PATH}/search-index.json`)
-      .then(res => (res.ok ? res.json() : []))
-      .catch(() => []);
-  }
-  return indexPromise;
-}
-
-function countOccurrences(haystack: string, needle: string): number {
-  let count = 0;
-  let pos = haystack.indexOf(needle);
-  while (pos !== -1) {
-    count++;
-    pos = haystack.indexOf(needle, pos + needle.length);
-  }
-  return count;
-}
+const MAX_DROPDOWN_RESULTS = 12;
 
 export default function SearchBar() {
   const [query, setQuery] = useState('');
@@ -70,27 +34,10 @@ export default function SearchBar() {
     return () => clearTimeout(handle);
   }, [query]);
 
-  const results = useMemo<SearchResult[]>(() => {
-    const q = debouncedQuery.trim().toLowerCase();
-    if (q.length < 2 || !allEntries) return [];
-
-    const matches: SearchResult[] = [];
-    for (const entry of allEntries) {
-      const inTitle = entry.title.toLowerCase().includes(q);
-      const occurrences = entry.text ? countOccurrences(entry.text, q) : 0;
-
-      if (inTitle || occurrences > 0) {
-        matches.push({
-          entry,
-          occurrences,
-          // Heavy weight for title matches, keep raw count for display
-          score: occurrences + (inTitle ? 100 : 0),
-        });
-      }
-    }
-
-    matches.sort((a, b) => b.score - a.score);
-    return matches.slice(0, 15);
+  const { results, totalMatches } = useMemo(() => {
+    if (!allEntries) return { results: [] as SearchMatch[], totalMatches: 0 };
+    const all = searchEntries(allEntries, debouncedQuery);
+    return { results: all.slice(0, MAX_DROPDOWN_RESULTS), totalMatches: all.length };
   }, [debouncedQuery, allEntries]);
 
   // Derived UI state: the dropdown is open whenever there are results and the
@@ -98,7 +45,14 @@ export default function SearchBar() {
   const isOpen = !dismissed && results.length > 0;
   const selectedIndex = Math.min(rawSelectedIndex, results.length - 1);
 
-  const navigateTo = (result: SearchResult) => {
+  const goToAllResults = () => {
+    if (query.trim().length < 2) return;
+    router.push(`/search/results?q=${encodeURIComponent(query.trim())}`);
+    setDismissed(true);
+    inputRef.current?.blur();
+  };
+
+  const navigateTo = (result: SearchMatch) => {
     router.push(hrefForSlug(result.entry.slug));
     setQuery('');
     setDismissed(true);
@@ -112,9 +66,13 @@ export default function SearchBar() {
     } else if (e.key === 'ArrowUp') {
       e.preventDefault();
       setRawSelectedIndex(Math.max(selectedIndex - 1, -1));
-    } else if (e.key === 'Enter' && selectedIndex >= 0) {
+    } else if (e.key === 'Enter') {
       e.preventDefault();
-      navigateTo(results[selectedIndex]);
+      if (selectedIndex >= 0) {
+        navigateTo(results[selectedIndex]);
+      } else {
+        goToAllResults();
+      }
     } else if (e.key === 'Escape') {
       setDismissed(true);
       inputRef.current?.blur();
@@ -199,6 +157,14 @@ export default function SearchBar() {
               )}
             </div>
           ))}
+          <div
+            className={styles.allResultsRow}
+            role="option"
+            aria-selected={false}
+            onMouseDown={goToAllResults}
+          >
+            See all {totalMatches} {totalMatches === 1 ? 'result' : 'results'} with excerpts ↵
+          </div>
         </div>
       )}
     </div>

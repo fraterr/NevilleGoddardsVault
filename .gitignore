@@ -47,3 +47,4 @@ next-env.d.ts
 # generated at build
 /public/search-index.json
 /public/tree.json
+/src/data/related.json

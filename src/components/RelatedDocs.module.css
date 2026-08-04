@@ -1,0 +1,56 @@
+.wrapper {
+  margin-top: 2.5rem;
+  padding-top: 1.5rem;
+  border-top: 1px solid var(--border);
+}
+
+.heading {
+  font-family: var(--font-reading);
+  font-size: 1.15rem;
+  color: var(--accent-gold);
+  margin-bottom: 1rem;
+}
+
+.list {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  display: grid;
+  grid-template-columns: repeat(auto-fill, minmax(230px, 1fr));
+  gap: 0.75rem;
+}
+
+.card {
+  display: flex;
+  flex-direction: column;
+  gap: 0.3rem;
+  padding: 0.85rem 1rem;
+  border: 1px solid var(--border);
+  border-radius: 10px;
+  background: var(--surface);
+  text-decoration: none;
+  transition: all 0.2s ease;
+  height: 100%;
+}
+
+.card:hover {
+  border-color: var(--accent-gold-glow);
+  background: var(--surface-hover);
+}
+
+.cardTitle {
+  font-size: 0.92rem;
+  font-weight: 500;
+  color: var(--text-primary);
+  line-height: 1.4;
+}
+
+.card:hover .cardTitle {
+  color: var(--accent-gold);
+}
+
+.cardMeta {
+  font-size: 0.76rem;
+  color: var(--text-muted);
+  line-height: 1.4;
+}

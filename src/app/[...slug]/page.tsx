@@ -7,6 +7,7 @@ import {
   getBreadcrumbNames,
   getExcerpt,
   getReadingTimeMinutes,
+  getRelatedDocs,
   VaultNode,
 } from '@/lib/markdown';
 import { getBannerForSlug } from '@/lib/banners';
@@ -19,6 +20,7 @@ import KeywordsBrowser from '@/components/KeywordsBrowser';
 import ReadingContainer from '@/components/ReadingContainer';
 import Breadcrumb, { Crumb } from '@/components/Breadcrumb';
 import PrevNextNav from '@/components/PrevNextNav';
+import RelatedDocs from '@/components/RelatedDocs';
 import { notFound } from 'next/navigation';
 
 interface PageProps {
@@ -192,6 +194,7 @@ export default async function DocumentPage({ params }: PageProps) {
   const isDocument = !doc.isDirectory;
   const readingTime = isDocument ? getReadingTimeMinutes(doc.content) : undefined;
   const adjacent = isDocument ? getAdjacentDocs(resolvedParams.slug) : { prev: null, next: null };
+  const related = isDocument ? getRelatedDocs(resolvedParams.slug) : [];
 
   const jsonLd = {
     '@context': 'https://schema.org',
@@ -230,6 +233,7 @@ export default async function DocumentPage({ params }: PageProps) {
         <MarkdownRenderer content={doc.content} />
       </ReadingContainer>
       <PrevNextNav prev={adjacent.prev} next={adjacent.next} />
+      <RelatedDocs docs={related} />
     </article>
   );
 }
