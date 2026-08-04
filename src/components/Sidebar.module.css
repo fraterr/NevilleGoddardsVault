@@ -156,6 +156,17 @@
   color: var(--text-primary);
 }
 
+.activeLink {
+  background-color: var(--surface-hover);
+  color: var(--accent-gold);
+  font-weight: 600;
+}
+
+.activeLink .fileIcon {
+  color: var(--accent-gold);
+  opacity: 1;
+}
+
 .fileLink:hover .fileIcon,
 .dirLink:hover .folderIcon {
   color: var(--accent-gold);

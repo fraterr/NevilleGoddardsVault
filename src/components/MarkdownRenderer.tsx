@@ -19,7 +19,9 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
         rehypePlugins={[rehypeRaw, rehypeSlug]}
         components={{
           // Overwrite link component to use Next.js Link for internal links
-          a: ({ node, href, children, ...props }) => {
+          // Destructure `node` so it doesn't get spread onto the DOM element
+          a: ({ node: _node, href, children, ...props }) => {
+            void _node;
             if (href?.startsWith('/')) {
               // Extract hash if present to preserve it
               const [pathPart, hashPart] = href.split('#');
@@ -44,7 +46,7 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
                 if (searchParam) {
                   idAttr = slugify(searchParam);
                 }
-              } catch (e) {
+              } catch {
                 // Ignore invalid URLs
               }
             }

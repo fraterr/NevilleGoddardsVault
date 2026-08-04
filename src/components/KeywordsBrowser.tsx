@@ -3,6 +3,7 @@
 import React, { useState, useMemo } from 'react';
 import Link from 'next/link';
 import metadata from '@/data/metadata.json';
+import { slugify } from '@/lib/slug';
 import styles from './KeywordsBrowser.module.css';
 
 interface DocEntry {
@@ -15,13 +16,6 @@ interface DocEntry {
   tags: string[];
   topics: string[];
   keywords: string[];
-}
-
-function slugify(text: string): string {
-  return text
-    .toLowerCase()
-    .replace(/[^a-z0-9]+/g, '-')
-    .replace(/(^-|-$)+/g, '');
 }
 
 export default function KeywordsBrowser() {

@@ -3,6 +3,7 @@
 import React, { useState, useMemo } from 'react';
 import Link from 'next/link';
 import metadata from '@/data/metadata.json';
+import { slugify } from '@/lib/slug';
 import styles from './BibleReferencesBrowser.module.css';
 
 interface DocEntry {
@@ -25,13 +26,6 @@ interface BibleRefOccurrence {
 interface BookGroup {
   name: string;
   chapters: Record<number, BibleRefOccurrence[]>;
-}
-
-function slugify(text: string): string {
-  return text
-    .toLowerCase()
-    .replace(/[^a-z0-9]+/g, '-')
-    .replace(/(^-|-$)+/g, '');
 }
 
 // Regex to parse Bible references: e.g. "1 Corinthians 15:47", "John 3:16", "Genesis 1:1-3"

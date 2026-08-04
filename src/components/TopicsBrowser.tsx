@@ -3,14 +3,8 @@
 import React, { useState, useMemo } from 'react';
 import Link from 'next/link';
 import metadata from '@/data/metadata.json';
+import { slugify } from '@/lib/slug';
 import styles from './TopicsBrowser.module.css';
-
-function slugify(text: string): string {
-  return text
-    .toLowerCase()
-    .replace(/[^a-z0-9]+/g, '-')
-    .replace(/(^-|-$)+/g, '');
-}
 
 interface DocEntry {
   title: string;

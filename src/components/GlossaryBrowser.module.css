@@ -190,6 +190,19 @@
   line-height: 1.6;
 }
 
+.termDefinition p {
+  margin: 0 0 0.5rem;
+}
+
+.termDefinition p:last-child {
+  margin-bottom: 0;
+}
+
+.termDefinition a {
+  color: var(--accent-gold);
+  text-decoration: underline;
+}
+
 /* Document references dropdown */
 .referencesWrapper {
   border-top: 1px solid var(--border);

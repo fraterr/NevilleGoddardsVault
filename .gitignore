@@ -39,3 +39,11 @@ yarn-error.log*
 # typescript
 *.tsbuildinfo
 next-env.d.ts
+
+# macOS / Obsidian junk
+._*
+**/.trash/
+
+# generated at build
+/public/search-index.json
+/public/tree.json

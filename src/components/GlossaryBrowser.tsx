@@ -2,7 +2,10 @@
 
 import React, { useState, useMemo } from 'react';
 import Link from 'next/link';
+import ReactMarkdown from 'react-markdown';
+import remarkGfm from 'remark-gfm';
 import metadata from '@/data/metadata.json';
+import { slugify } from '@/lib/slug';
 import styles from './GlossaryBrowser.module.css';
 
 interface DocEntry {
@@ -21,13 +24,6 @@ interface GlossaryTerm {
   name: string;
   definition: string;
   references: DocEntry[];
-}
-
-function slugify(text: string): string {
-  return text
-    .toLowerCase()
-    .replace(/[^a-z0-9]+/g, '-')
-    .replace(/(^-|-$)+/g, '');
 }
 
 interface GlossaryBrowserProps {
@@ -247,7 +243,9 @@ export default function GlossaryBrowser({ content }: GlossaryBrowserProps) {
                       >
                         <div className={styles.termMain}>
                           <h3 className={styles.termName}>{term.name}</h3>
-                          <p className={styles.termDefinition}>{term.definition}</p>
+                          <div className={styles.termDefinition}>
+                            <ReactMarkdown remarkPlugins={[remarkGfm]}>{term.definition}</ReactMarkdown>
+                          </div>
                         </div>
 
                         {term.references.length > 0 && (

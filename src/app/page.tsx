@@ -1,9 +1,10 @@
-import { getDocumentBySlug } from '@/lib/markdown';
+﻿import { getDocumentBySlug } from '@/lib/markdown';
+import { withBasePath } from '@/lib/config';
 import MarkdownRenderer from '@/components/MarkdownRenderer';
 
 export default function Home() {
   const indexDoc = getDocumentBySlug(['index']);
-  
+
   if (!indexDoc) {
     return (
       <div className="glass" style={{ padding: '2rem', borderRadius: '12px' }}>
@@ -15,16 +16,16 @@ export default function Home() {
 
   return (
     <article className="glass animate-fade-in" style={{ padding: '3rem', borderRadius: '16px', overflow: 'hidden' }}>
-      <div style={{ 
-        margin: '-3rem -3rem 2rem -3rem', 
-        position: 'relative', 
+      <div style={{
+        margin: '-3rem -3rem 2rem -3rem',
+        position: 'relative',
         height: '200px',
         overflow: 'hidden'
       }}>
         {/* eslint-disable-next-line @next/next/no-img-element */}
         <img
-          src={`/NevilleGoddardsVault/images/banners/banner-index.png`}
-          alt="Page banner"
+          src={withBasePath('/images/banners/banner-index.webp')}
+          alt="Neville Goddard's Vault banner"
           style={{ width: '100%', height: '100%', objectFit: 'cover', objectPosition: 'center' }}
         />
       </div>
@@ -32,4 +33,3 @@ export default function Home() {
     </article>
   );
 }
-

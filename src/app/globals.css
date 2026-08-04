@@ -19,6 +19,22 @@
   --font-mono: monospace;
 }
 
+/* Sepia reading theme (toggled from the reading preferences panel) */
+:root[data-theme='sepia'] {
+  --background: #f4ecd8;
+  --surface: rgba(255, 250, 235, 0.75);
+  --surface-hover: rgba(232, 220, 195, 0.9);
+  --border: rgba(90, 70, 40, 0.15);
+
+  --text-primary: #3b2f1e;
+  --text-secondary: #6b5a3e;
+  --text-muted: #93815f;
+
+  --accent-gold: #8a6d1d;
+  --accent-gold-glow: rgba(138, 109, 29, 0.25);
+  --accent-amber: #a3611c;
+}
+
 * {
   box-sizing: border-box;
   padding: 0;
