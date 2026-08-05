@@ -2,7 +2,7 @@
 
 A static website collecting the books, lectures, and radio broadcasts of [Neville Goddard](https://en.wikipedia.org/wiki/Neville_Goddard) (1905–1972), with per-document summaries, a full-text search, a glossary, and topic/keyword/Bible-reference browsers.
 
-**Live site:** https://fraterr.github.io/NevilleGoddardsVault/
+**Live site:** https://nevillegoddardvault.com/
 
 ## Tech stack
 
@@ -44,7 +44,7 @@ npm run typecheck  # tsc --noEmit
 npm run build      # generates data files, then static export to out/
 ```
 
-The site is served under the `/NevilleGoddardsVault` base path (GitHub Pages project site). The base path and site URL live in [src/lib/config.ts](src/lib/config.ts) — change them there if the site moves to its own domain.
+The site is served at the root of the custom domain `nevillegoddardvault.com` (GitHub Pages, `public/CNAME`). The base path and site URL live in [src/lib/config.ts](src/lib/config.ts); the old `fraterr.github.io/NevilleGoddardsVault` URLs redirect automatically.
 
 ## Adding content
 
@@ -56,7 +56,7 @@ The top-level entries `kitrc.md`, `Context/`, `Template/`, and `Handles/` are pu
 
 ## SEO notes
 
-Every document page gets its own title, meta description, canonical URL, Open Graph tags, and JSON-LD `Article` markup. A sitemap is generated at `/NevilleGoddardsVault/sitemap.xml` — since a project site cannot serve `robots.txt` at the domain root, submit the sitemap manually in Google Search Console.
+Every document page gets its own title, meta description, canonical URL, Open Graph tags, and JSON-LD `Article` markup. `sitemap.xml` and `robots.txt` are generated at the domain root.
 
 ## Copyright
 

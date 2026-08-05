@@ -5,6 +5,7 @@ import rehypeRaw from 'rehype-raw';
 import rehypeSlug from 'rehype-slug';
 import Link from 'next/link';
 import { slugify } from '@/lib/markdown';
+import { BASE_PATH } from '@/lib/config';
 import styles from './MarkdownRenderer.module.css';
 
 interface MarkdownRendererProps {
@@ -29,7 +30,7 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
               
               if (hashPart) {
                 // Return a standard <a> tag with base path prepended to bypass Next.js Link basePath hash bug
-                const finalHref = `/NevilleGoddardsVault${slugifiedPath}#${hashPart}`;
+                const finalHref = `${BASE_PATH}${slugifiedPath}#${hashPart}`;
                 return <a href={finalHref} {...props}>{children}</a>;
               } else {
                 return <Link href={slugifiedPath}>{children}</Link>;
