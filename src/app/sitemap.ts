@@ -11,6 +11,7 @@ export default function sitemap(): MetadataRoute.Sitemap {
     { url: `${SITE_URL}/start-here/`, priority: 0.9 },
     { url: `${SITE_URL}/techniques/`, priority: 0.9 },
     ...TECHNIQUES.map(t => ({ url: `${SITE_URL}/techniques/${t.slug}/`, priority: 0.9 })),
+    { url: `${SITE_URL}/success-stories/`, priority: 0.8 },
     { url: `${SITE_URL}/search/topics/`, priority: 0.6 },
     { url: `${SITE_URL}/search/bible-references/`, priority: 0.6 },
     { url: `${SITE_URL}/search/keywords/`, priority: 0.6 },
