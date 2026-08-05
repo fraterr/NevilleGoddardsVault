@@ -121,6 +121,13 @@
   opacity: 0.6;
 }
 
+.excerpt {
+  margin: 0.5rem 0 0;
+  font-size: 0.88rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+}
+
 .meta {
   display: flex;
   flex-wrap: wrap;
@@ -144,6 +151,17 @@
 
 .techBadge {
   color: var(--text-muted);
+}
+
+.techLink {
+  text-decoration: none;
+  color: var(--text-secondary);
+  transition: all 0.2s ease;
+}
+
+.techLink:hover {
+  color: var(--accent-gold);
+  border-color: var(--accent-gold-glow);
 }
 
 .stats {

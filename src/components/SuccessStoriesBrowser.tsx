@@ -1,6 +1,7 @@
 'use client';
 
 import { useMemo, useState } from 'react';
+import Link from 'next/link';
 import stories from '@/data/successStories.json';
 import styles from './SuccessStoriesBrowser.module.css';
 
@@ -15,7 +16,17 @@ interface Story {
   techniques: string[];
   timeframe: string | null;
   timeBucket: string | null;
+  excerpt?: string;
 }
+
+// Techniques that have a guide on this site link straight to it
+const TECH_GUIDES: Record<string, string> = {
+  'SATS': '/techniques/sats',
+  'Revision': '/techniques/revision',
+  'Living in the End': '/techniques/living-in-the-end',
+  'Mental Diet': '/techniques/mental-diet',
+  'Self-Concept': '/techniques/i-am',
+};
 
 const ALL_STORIES = stories as Story[];
 
@@ -164,12 +175,24 @@ export default function SuccessStoriesBrowser() {
                 {story.title} <span className={styles.ext} aria-hidden="true">↗</span>
               </span>
             </a>
+            {story.excerpt && <p className={styles.excerpt}>{story.excerpt}</p>}
             <div className={styles.meta}>
               <span className={styles.badge}>{CATEGORY_LABELS[story.category]}</span>
               {story.timeframe && <span className={`${styles.badge} ${styles.timeBadge}`}>⏱ {story.timeframe}</span>}
-              {story.techniques.map(t => (
-                <span key={t} className={`${styles.badge} ${styles.techBadge}`}>{t}</span>
-              ))}
+              {story.techniques.map(t =>
+                TECH_GUIDES[t] ? (
+                  <Link
+                    key={t}
+                    href={TECH_GUIDES[t]}
+                    className={`${styles.badge} ${styles.techBadge} ${styles.techLink}`}
+                    title={`Read the ${t} guide`}
+                  >
+                    {t} →
+                  </Link>
+                ) : (
+                  <span key={t} className={`${styles.badge} ${styles.techBadge}`}>{t}</span>
+                )
+              )}
               <span className={styles.stats}>
                 ▲ {story.score.toLocaleString()} · {story.comments.toLocaleString()} comments · {story.year}
               </span>
