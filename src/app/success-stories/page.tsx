@@ -2,6 +2,7 @@ import type { Metadata } from 'next';
 import Link from 'next/link';
 import { SITE_URL, SITE_NAME } from '@/lib/config';
 import SuccessStoriesBrowser from '@/components/SuccessStoriesBrowser';
+import SuccessStoriesStats from '@/components/SuccessStoriesStats';
 import styles from '@/components/Techniques.module.css';
 
 export const metadata: Metadata = {
@@ -35,6 +36,8 @@ export default function SuccessStoriesPage() {
         then open the <Link href="/techniques" style={{ color: 'var(--accent-gold)' }}>technique guides</Link> and
         write your own.
       </p>
+
+      <SuccessStoriesStats />
 
       <SuccessStoriesBrowser />
 
