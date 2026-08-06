@@ -47,7 +47,10 @@ export default function TechniquesIndexPage() {
 
       <p className={styles.note}>
         New to Neville? The <Link href="/start-here" style={{ color: 'var(--accent-gold)' }}>Start Here path</Link> walks
-        you through the essential readings and practices in order, over 21 days.
+        you through the essential readings and practices in order, over 21 days. And if what you
+        lack is confidence rather than technique, run the{' '}
+        <Link href="/test-the-law" style={{ color: 'var(--accent-gold)' }}>Test the Law experiments</Link> —
+        seven low-stakes proofs, starting with Neville&apos;s famous ladder.
       </p>
     </article>
   );

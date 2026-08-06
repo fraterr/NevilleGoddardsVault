@@ -12,7 +12,7 @@ const root = path.resolve(path.dirname(fileURLToPath(import.meta.url)), '..');
 const tree = JSON.parse(fs.readFileSync(path.join(root, 'public', 'tree.json'), 'utf8'));
 
 // Collect all valid vault routes
-const validRoutes = new Set(['/', '/start-here', '/techniques', '/random', '/summaries', '/success-stories']);
+const validRoutes = new Set(['/', '/start-here', '/techniques', '/random', '/summaries', '/success-stories', '/test-the-law']);
 
 function walk(nodes) {
   for (const node of nodes) {
@@ -42,6 +42,7 @@ const sources = [
   ['techniques.ts', techniquesSource],
   ['startHere.ts', startHereSource],
   ['bookSummaries.ts', summariesSource],
+  ['testTheLaw.ts', readData('testTheLaw.ts')],
 ];
 
 let errors = 0;

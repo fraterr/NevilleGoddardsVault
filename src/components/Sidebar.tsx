@@ -99,6 +99,16 @@ const SparkIcon = (
   </svg>
 );
 
+const FlaskIcon = (
+  <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
+    <path d="M10 2v7.31" />
+    <path d="M14 9.3V2" />
+    <path d="M8.5 2h7" />
+    <path d="M14 9.3a6.5 6.5 0 1 1-4 0" />
+    <path d="M5.52 16h12.96" />
+  </svg>
+);
+
 const BookOpenIcon = (
   <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
     <path d="M2 3h6a4 4 0 0 1 4 4v14a3 3 0 0 0-3-3H2z" />
@@ -184,6 +194,11 @@ export default function Sidebar() {
             <li className={styles.fileNode}>
               <Link href="/start-here" className={linkClass('/start-here')}>
                 <span className={styles.fileIcon}>{CompassIcon}</span> Start Here
+              </Link>
+            </li>
+            <li className={styles.fileNode}>
+              <Link href="/test-the-law" className={linkClass('/test-the-law')}>
+                <span className={styles.fileIcon}>{FlaskIcon}</span> Test the Law
               </Link>
             </li>
             <li className={styles.fileNode}>

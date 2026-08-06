@@ -1,4 +1,5 @@
 import type { Metadata } from 'next';
+import Link from 'next/link';
 import { SITE_URL, SITE_NAME } from '@/lib/config';
 import StartHerePath from '@/components/StartHerePath';
 import styles from '@/components/Techniques.module.css';
@@ -37,7 +38,9 @@ export default function StartHerePage() {
 
       <p className={styles.sectionIntro}>
         Your progress is saved privately in this browser — nothing is uploaded anywhere. Check off
-        each day as you complete it.
+        each day as you complete it. Struggling to believe any of this can work? Run the{' '}
+        <Link href="/test-the-law" style={{ color: 'var(--accent-gold)' }}>Test the Law experiments</Link>{' '}
+        first — they build the faith this path then puts to work.
       </p>
 
       <StartHerePath />
