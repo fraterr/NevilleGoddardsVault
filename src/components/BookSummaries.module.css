@@ -1,0 +1,282 @@
+/* Book Summaries: index cards + summary page */
+
+/* ---- Index page ---- */
+
+.grid {
+  display: grid;
+  grid-template-columns: repeat(auto-fill, minmax(300px, 1fr));
+  gap: 1.25rem;
+  margin-top: 1.75rem;
+}
+
+.card {
+  display: flex;
+  flex-direction: column;
+  border: 1px solid var(--border);
+  border-radius: 14px;
+  background: var(--surface);
+  overflow: hidden;
+  text-decoration: none;
+  transition: all 0.25s ease;
+}
+
+.card:hover {
+  border-color: var(--accent-gold-glow);
+  transform: translateY(-3px);
+  box-shadow: 0 12px 30px rgba(0, 0, 0, 0.25);
+}
+
+.cardBanner {
+  position: relative;
+  height: 120px;
+  overflow: hidden;
+}
+
+.cardBanner img {
+  width: 100%;
+  height: 100%;
+  object-fit: cover;
+  object-position: center;
+  transition: transform 0.4s ease;
+}
+
+.card:hover .cardBanner img {
+  transform: scale(1.05);
+}
+
+.cardBody {
+  display: flex;
+  flex-direction: column;
+  gap: 0.45rem;
+  padding: 1.1rem 1.25rem 1.3rem;
+  flex: 1;
+}
+
+.cardTitle {
+  font-family: var(--font-reading);
+  font-size: 1.2rem;
+  font-weight: 600;
+  color: var(--text-primary);
+  line-height: 1.3;
+}
+
+.card:hover .cardTitle {
+  color: var(--accent-gold);
+}
+
+.cardYear {
+  font-size: 0.76rem;
+  color: var(--accent-gold);
+  letter-spacing: 0.08em;
+}
+
+.cardOneLiner {
+  font-size: 0.9rem;
+  color: var(--text-secondary);
+  line-height: 1.55;
+}
+
+.cardCta {
+  margin-top: auto;
+  padding-top: 0.6rem;
+  font-size: 0.8rem;
+  color: var(--text-muted);
+}
+
+.card:hover .cardCta {
+  color: var(--accent-gold);
+}
+
+/* ---- Summary page ---- */
+
+.hero {
+  margin: -3rem -3rem 2rem -3rem;
+  position: relative;
+  height: 220px;
+  overflow: hidden;
+}
+
+.hero img {
+  width: 100%;
+  height: 100%;
+  object-fit: cover;
+  object-position: center;
+}
+
+.heroOverlay {
+  position: absolute;
+  inset: 0;
+  background: linear-gradient(to top, var(--background) 0%, transparent 65%);
+}
+
+.year {
+  font-size: 0.8rem;
+  color: var(--accent-gold);
+  letter-spacing: 0.1em;
+  text-transform: uppercase;
+  margin-bottom: 0.4rem;
+}
+
+.readFullTop {
+  display: inline-flex;
+  align-items: center;
+  gap: 0.45rem;
+  margin: 0.75rem 0 0;
+  padding: 0.6rem 1.2rem;
+  border: 1px solid var(--accent-gold-glow);
+  border-radius: 999px;
+  color: var(--accent-gold);
+  font-weight: 600;
+  font-size: 0.9rem;
+  text-decoration: none;
+  transition: all 0.2s ease;
+}
+
+.readFullTop:hover {
+  background: var(--surface-hover);
+}
+
+.ideasGrid {
+  display: grid;
+  grid-template-columns: repeat(auto-fill, minmax(280px, 1fr));
+  gap: 0.9rem;
+}
+
+.idea {
+  padding: 1rem 1.1rem;
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  background: var(--surface);
+}
+
+.ideaTitle {
+  font-weight: 600;
+  color: var(--accent-gold);
+  margin-bottom: 0.4rem;
+  font-size: 0.98rem;
+}
+
+.ideaDetail {
+  font-size: 0.9rem;
+  color: var(--text-secondary);
+  line-height: 1.65;
+}
+
+.chapterList {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  display: flex;
+  flex-direction: column;
+}
+
+.chapterRow {
+  display: flex;
+  gap: 1rem;
+  padding: 0.8rem 0.25rem;
+  border-bottom: 1px solid var(--border);
+}
+
+.chapterRow:last-child {
+  border-bottom: none;
+}
+
+.chapterLabel {
+  flex: 0 0 8.5rem;
+  font-size: 0.85rem;
+  font-weight: 600;
+}
+
+.chapterLabel a {
+  color: var(--accent-gold);
+  text-decoration: none;
+}
+
+.chapterLabel a:hover {
+  text-decoration: underline;
+}
+
+.chapterGist {
+  font-size: 0.9rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+}
+
+.bottomCta {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 1rem;
+  margin-top: 2.5rem;
+}
+
+.ctaPrimary,
+.ctaSecondary {
+  flex: 1 1 240px;
+  display: flex;
+  flex-direction: column;
+  gap: 0.3rem;
+  padding: 1.1rem 1.25rem;
+  border-radius: 12px;
+  text-decoration: none;
+  border: 1px solid var(--border);
+  transition: all 0.2s ease;
+}
+
+.ctaPrimary {
+  border-color: var(--accent-gold-glow);
+  background: var(--surface-hover);
+}
+
+.ctaPrimary:hover,
+.ctaSecondary:hover {
+  border-color: var(--accent-gold);
+}
+
+.ctaLabel {
+  font-size: 0.72rem;
+  text-transform: uppercase;
+  letter-spacing: 0.07em;
+  color: var(--text-muted);
+}
+
+.ctaTitle {
+  font-family: var(--font-reading);
+  font-weight: 600;
+  color: var(--text-primary);
+  font-size: 1.05rem;
+}
+
+.ctaPrimary .ctaTitle {
+  color: var(--accent-gold);
+}
+
+.ctaWhy {
+  font-size: 0.82rem;
+  color: var(--text-secondary);
+  line-height: 1.5;
+}
+
+.whoFor {
+  margin-top: 2rem;
+  padding: 1.1rem 1.3rem;
+  border-left: 3px solid var(--accent-gold);
+  background: var(--surface);
+  border-radius: 0 10px 10px 0;
+  color: var(--text-secondary);
+  line-height: 1.7;
+  font-size: 0.95rem;
+}
+
+.whoFor strong {
+  color: var(--text-primary);
+}
+
+@media (max-width: 560px) {
+  .chapterRow {
+    flex-direction: column;
+    gap: 0.25rem;
+  }
+  .chapterLabel {
+    flex-basis: auto;
+  }
+}
