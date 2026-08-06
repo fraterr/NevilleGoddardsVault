@@ -59,9 +59,9 @@ export default function SummariesIndexPage() {
       </div>
 
       <p className={tStyles.note}>
-        Six more summaries are on the way (Your Faith is Your Fortune, Freedom for All, Prayer,
-        Seedtime and Harvest, The Search, and the Radio Lectures). Summaries are original to this
-        site; the books themselves are in the public domain and hosted in full in the vault.
+        Summaries are original to this site; the books themselves are in the public domain and
+        hosted in full in the vault. Suggested order for newcomers: Feeling is the Secret →
+        Out of this World → The Power of Awareness — or simply follow the Start Here path.
       </p>
     </article>
   );
