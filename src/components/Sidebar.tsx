@@ -197,7 +197,7 @@ export default function Sidebar() {
               </Link>
             </li>
             <li className={styles.fileNode}>
-              <Link href="/test-the-law" className={linkClass('/test-the-law')}>
+              <Link href="/test-the-law" className={`${linkClass('/test-the-law')} ${styles.featuredLink}`}>
                 <span className={styles.fileIcon}>{FlaskIcon}</span> Test the Law
               </Link>
             </li>

@@ -65,10 +65,11 @@ export default function TestTheLawPage() {
 
       <p className={styles.note}>
         The ladder experiment&apos;s two-part design (imagine climbing, while consciously writing
-        &ldquo;I will not climb a ladder&rdquo;) comes from the closing assignment of
-        Neville&apos;s 1948 lesson series; the imaginal act itself is described in Out of this
-        World, Chapter 1. These experiments build conviction through experience — they are
-        exercises, not scientific proof, and the honest log is what keeps them meaningful.
+        &ldquo;I will not climb a ladder&rdquo;) comes from the assignment Neville gave his 1948
+        class — the full <Link href="/books/five-lessons" style={{ color: 'var(--accent-gold)' }}>Five Lessons</Link> are
+        in the vault, and the imaginal act is also described in Out of this World, Chapter 1.
+        These experiments build conviction through experience — they are exercises, not scientific
+        proof, and the honest log is what keeps them meaningful.
       </p>
     </article>
   );

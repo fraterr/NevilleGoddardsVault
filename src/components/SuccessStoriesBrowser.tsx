@@ -26,6 +26,10 @@ const TECH_GUIDES: Record<string, string> = {
   'Living in the End': '/techniques/living-in-the-end',
   'Mental Diet': '/techniques/mental-diet',
   'Self-Concept': '/techniques/i-am',
+  'Affirmations': '/techniques/affirmations',
+  'Visualization': '/techniques/visualization',
+  'Scripting': '/techniques/scripting',
+  'Letting Go': '/techniques/letting-go',
 };
 
 const ALL_STORIES = stories as Story[];

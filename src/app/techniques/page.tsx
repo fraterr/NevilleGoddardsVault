@@ -7,7 +7,7 @@ import styles from '@/components/Techniques.module.css';
 export const metadata: Metadata = {
   title: "Neville Goddard's Techniques — Practical Guides",
   description:
-    "Step-by-step guides to Neville Goddard's techniques — SATS, Revision, Living in the End, Mental Diet, I AM, and EIYPO — with every claim linked to the original texts.",
+    "Step-by-step guides to Neville Goddard's techniques — SATS, Revision, Living in the End, Mental Diet, I AM, EIYPO, Affirmations, Visualization, Scripting, and Letting Go — with every claim linked to the original texts.",
   alternates: { canonical: `${SITE_URL}/techniques/` },
   openGraph: {
     title: "Neville Goddard's Techniques — Practical Guides",
@@ -30,10 +30,11 @@ export default function TechniquesIndexPage() {
 
       <p className={styles.intro}>
         Neville&apos;s teaching is not theory to admire but a discipline to practice: assume the
-        feeling of the wish fulfilled, and persist until the assumption hardens into fact. These six
+        feeling of the wish fulfilled, and persist until the assumption hardens into fact. These ten
         guides cover the complete toolkit — the nightly scene, the evening revision, the all-day
-        state, the inner-speech diet, and the foundation of them all, I AM. Each guide ends with the
-        source texts, so you can always go deeper than any summary.
+        state, the inner-speech diet, the release that follows the work, and the foundation of them
+        all, I AM. Each guide ends with the source texts, so you can always go deeper than any
+        summary.
       </p>
 
       <div className={styles.cardsGrid}>

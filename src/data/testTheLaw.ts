@@ -40,12 +40,12 @@ export const EXPERIMENTS: Experiment[] = [
     counts:
       'You find yourself on a ladder — invited, required, or somehow cornered into it — without having planned it. Log the date and the circumstances that maneuvered you there.',
     quote: {
-      text: 'The difference will be appreciated if you will now visualize yourself climbing a ladder. Then with eyelids closed imagine that a ladder is right in front of you and feel you are actually climbing it.',
-      source: 'Out of this World — Chapter 1',
-      href: '/books/out-of-this-world/out-of-this-world-chapter-1',
+      text: 'The difference will be appreciated if you will now visualize yourself climbing a ladder. Then, with eyelids closed imagine that a ladder is right in front of you and FEEL YOURSELF ACTUALLY CLIMBING IT.',
+      source: 'Five Lessons — Lesson 1 (1948)',
+      href: '/books/five-lessons/five-lessons-lesson-1',
     },
     note:
-      'This is the famous experiment Neville assigned to his 1948 class. Its design is the point: because you consciously will AGAINST the outcome while imagining FOR it, a result cannot be dismissed as you simply making it happen. The stakes are zero; the evidence is maximal.',
+      'This is the famous experiment Neville assigned to his 1948 class — the full Five Lessons are in the vault. Its design is the point: because you consciously will AGAINST the outcome while imagining FOR it, a result cannot be dismissed as you simply making it happen. The stakes are zero; the evidence is maximal.',
   },
   {
     id: 'see-it-everywhere',

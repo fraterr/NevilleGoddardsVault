@@ -725,6 +725,451 @@ export const TECHNIQUES: Technique[] = [
       { title: 'Glossary: Everyone is you pushed out', href: '/glossary#everyone-is-you-pushed-out' },
     ],
   },
+
+  // -------------------------------------------------------------------------
+  {
+    slug: 'affirmations',
+    title: 'Affirmations — Claiming It Inwardly',
+    shortTitle: 'Affirmations',
+    tagline: 'Not words repeated at the mirror — a self-conception affirmed until the old one is crowded out.',
+    description:
+      "How Neville Goddard actually taught affirmations: felt I AM claims that crowd out the old self-conception — with steps, sources, and common mistakes.",
+    intro: [
+      'Affirmations are the most used — and most misused — tool in the modern manifestation world. Neville\'s version is sharper than the mantra-at-the-mirror cliché: what you *affirm within yourself* — the concept of self you inwardly consent to — is what develops in your world. The sentence is only a handle; the affirmation is the state it lets you grip.',
+      'His mechanism for why repetition works is also more honest than "the universe hears you": an old idea is not willed away — it is *crowded out* by a new and absorbing one. Affirming, done properly, is deliberate crowding: occupying consciousness with the new claim until the old tenant leaves.',
+    ],
+    stepsIntro: 'How to affirm the way Neville taught it:',
+    steps: [
+      {
+        title: 'Find the I AM form',
+        detail:
+          'Convert the desire into a present-tense statement of being: not "I want confidence" but "I am confident"; not "money is coming" but "I am financially secure". If it can\'t be said as I AM, it isn\'t yet a self-conception — and self-conception is what out-pictures.',
+      },
+      {
+        title: 'Say it to feel it, not to fill air',
+        detail:
+          'The words are a ladder into a feeling. Say the sentence slowly, inwardly, until a trace of its truth registers in the body — the loosened shoulders of "I am secure", the lifted chest of "I am appreciated". One felt repetition outweighs a hundred mechanical ones.',
+      },
+      {
+        title: 'Use the still moment',
+        detail:
+          'Neville\'s formula from the radio talks: "Be still and know \'I am that which I desire.\'" The drowsy state, the quiet minute before sleep and after waking — these are when the claim sinks below argument. Anchor your affirming there rather than shouting over a busy day.',
+      },
+      {
+        title: 'Crowd, don\'t fight',
+        detail:
+          'When the old idea speaks ("who are you kidding?"), don\'t debate it — return to the claim. The old conception is pushed off like dead leaves by the new one\'s occupancy, never by argument.',
+      },
+      {
+        title: 'Let the day confirm you',
+        detail:
+          'An affirmation held inwardly changes how you interpret and respond, and the world answers the new responses. Watch for the small confirmations and receive them as evidence — that reception is itself an act of affirming.',
+      },
+    ],
+    quotes: [
+      {
+        text: 'Everything depends on our attitude towards ourself – that which we will not affirm within ourself can never develop in our world.',
+        source: 'Radio Lecture: Affirm The Reality of our Own Greatness',
+        href: '/lectures/radio-lectures/affirm-the-reality-of-our-own-greatness',
+      },
+      {
+        text: 'If we wish to see the world a finer, greater place, we must affirm the reality of a finer, greater being within ourselves.',
+        source: 'Radio Lecture: Affirm The Reality of our Own Greatness',
+        href: '/lectures/radio-lectures/affirm-the-reality-of-our-own-greatness',
+      },
+      {
+        text: 'Be still and know "I am that which I desire." Strive always after being.',
+        source: 'Radio Lecture: Affirm The Reality of our Own Greatness',
+        href: '/lectures/radio-lectures/affirm-the-reality-of-our-own-greatness',
+      },
+      {
+        text: 'An old idea is not fickly forgotten, it is crowded out by new ideas. It disappears when a wholly new and absorbing idea occupies our attention.',
+        source: 'Radio Lecture: Affirm The Reality of our Own Greatness',
+        href: '/lectures/radio-lectures/affirm-the-reality-of-our-own-greatness',
+      },
+      {
+        text: 'Man can decree a thing and it will come to pass.',
+        source: 'Your Faith Is Your Fortune — Chapter 2',
+        href: '/books/your-faith-is-your-fortune/your-faith-is-your-fortune-chapter-2',
+      },
+    ],
+    mistakes: [
+      {
+        title: 'Reciting against the feeling',
+        detail:
+          'Saying "I am wealthy" while feeling the ache of lack affirms the ache — feeling is the language that lands. If a claim is too far to feel, step it down to one you can feel ("I am learning to receive") and climb from there.',
+      },
+      {
+        title: 'Volume over stillness',
+        detail:
+          'A hundred rushed repetitions in traffic do less than three slow ones on the edge of sleep. The state of the mind receiving the words matters more than the count.',
+      },
+      {
+        title: 'Affirming the future',
+        detail:
+          '"I will be" keeps the good permanently ahead of you — Neville notes the I AM can only speak in the present tense. Affirm from the end, as fact, now.',
+      },
+      {
+        title: 'Arguing with the backtalk',
+        detail:
+          'Treating the old idea\'s objections as a debate to win gives them your attention — the one food they need. Notice, return to the claim, repeat. Crowding is quiet work.',
+      },
+    ],
+    faq: [
+      {
+        q: 'What about "robotic affirming"?',
+        a: 'The community technique of repeating a phrase mechanically all day is a modern coinage, not Neville\'s vocabulary — but it can work for the reason he gives: sustained occupancy crowds out the old idea, and repetition often softens into feeling. If it stays dead recitation and the feeling never comes, switch to fewer, stiller, felt repetitions.',
+      },
+      {
+        q: 'How is this different from the I AM technique?',
+        a: 'The I AM guide covers the foundation — unconditioned awareness and self-conception. Affirmations are its daily handles: short felt claims that keep the chosen conception occupied during ordinary hours. Same root, different grip.',
+      },
+      {
+        q: 'How many affirmations should I run at once?',
+        a: 'One core claim — or a small set that describes one coherent self. Ten unrelated affirmations describe nobody; the subconscious out-pictures a self-conception, not a shopping list.',
+      },
+      {
+        q: 'Aloud or silent?',
+        a: 'Neville\'s emphasis was always inner: the affirmation that counts is the one your inner conversations agree with. Speak aloud if it helps you feel it — but the test is what you keep saying inwardly when nobody is listening.',
+      },
+    ],
+    related: [
+      { title: 'Radio Lecture: Affirm The Reality of our Own Greatness', href: '/lectures/radio-lectures/affirm-the-reality-of-our-own-greatness' },
+      { title: 'I AM — The Foundation', href: '/techniques/i-am' },
+      { title: 'The Mental Diet', href: '/techniques/mental-diet' },
+      { title: 'Your Faith Is Your Fortune — Chapter 2', href: '/books/your-faith-is-your-fortune/your-faith-is-your-fortune-chapter-2' },
+    ],
+  },
+
+  // -------------------------------------------------------------------------
+  {
+    slug: 'visualization',
+    title: 'Visualization — From Seeing to Being',
+    shortTitle: 'Visualization',
+    tagline: 'The picture is not the power. Entering the scene with all five imaginal senses is.',
+    description:
+      "Visualization as Neville Goddard taught it: not watching mental pictures but entering the scene with imaginal sight, sound, touch — spiritual sensation. Steps and sources.",
+    intro: [
+      'Visualization is where most people start — and where most practice quietly fails, because they stop at *seeing*. A mental picture observed from outside is what Neville called thinking OF the state: pleasant, powerless. The operative act is entering the picture and experiencing it from within, with every imaginal sense — what he named **spiritual sensation**.',
+      'His own test for the difference is disarmingly simple: visualize yourself climbing a ladder, then close your eyes and feel yourself actually climbing one. The first is a movie; the second recruits your body\'s knowledge of rungs and effort and height. That felt difference is the entire technique.',
+    ],
+    stepsIntro: 'How to turn a mental picture into an imaginal act:',
+    steps: [
+      {
+        title: 'Build a small scene, not a montage',
+        detail:
+          'One moment that implies the wish fulfilled — a handshake, a doorway, a view. Short enough to loop; specific enough to touch.',
+      },
+      {
+        title: 'Step through the screen',
+        detail:
+          'If you can see yourself in the scene, you are still the audience. Move your point of view behind your own eyes: what would you see FROM there? What is on your left? The switch from third to first person is the moment visualization becomes imagining.',
+      },
+      {
+        title: 'Recruit all five imaginal senses',
+        detail:
+          'Sight is one sense of five. Add the handshake\'s pressure, the room\'s sound, the coffee\'s smell — "imaginal sight, sound, scent, taste and touch", as Neville lists them. Each added sense makes the scene more real than the last.',
+      },
+      {
+        title: 'Let feeling crown the scene',
+        detail:
+          'Sensory vividness is scaffolding for one thing: the feeling of the wish fulfilled — relief, gratitude, naturalness. When the feeling arrives, stop building and rest in it.',
+      },
+      {
+        title: 'View the world from the state',
+        detail:
+          'The finished act is not "I saw a nice scene" but a changed vantage: for those seconds you WERE the fulfilled self, and the world was arranged around that self. That vantage, revisited until habitual, is what out-pictures.',
+      },
+    ],
+    quotes: [
+      {
+        text: 'The difference will be appreciated if you will now visualize yourself climbing a ladder. Then with eyelids closed imagine that a ladder is right in front of you and feel you are actually climbing it.',
+        source: 'Out of this World — Chapter 1',
+        href: '/books/out-of-this-world/out-of-this-world-chapter-1',
+      },
+      {
+        text: 'Imagining is spiritual sensation.',
+        source: 'The Law and the Promise — Chapter 6',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-6',
+      },
+      {
+        text: 'Enter into the feeling of your wish fulfilled. Through spiritual sensation — through your use of imaginal sight, sound, scent, taste and touch — you will give to your image the sensory vividness necessary to produce that image in your outer or shadow world.',
+        source: 'The Law and the Promise — Chapter 6',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-6',
+      },
+      {
+        text: 'We must translate vision into Being, thinking of into thinking from. Imagination must center itself in some state and view the world from that state.',
+        source: 'Awakened Imagination — Chapter 2',
+        href: '/books/awakened-imagination/awakened-imagination-chapter-2',
+      },
+    ],
+    mistakes: [
+      {
+        title: 'Watching the movie',
+        detail:
+          'The third-person highlight reel of "future you" is the single most common failure mode. If you appear in your own scene, step into the actor. First person is not a refinement — it is the technique.',
+      },
+      {
+        title: 'Chasing 4K imagery',
+        detail:
+          'Vividness serves feeling; it is not the goal. A dim scene that carries real relief impresses more than a photorealistic one observed coldly.',
+      },
+      {
+        title: 'Marathon sessions',
+        detail:
+          'Twenty minutes of drifting montage scatters; ninety seconds of one entered scene, looped with feeling, concentrates. Short and inhabited beats long and observed.',
+      },
+      {
+        title: 'Skipping the other senses',
+        detail:
+          'All-visual practice leaves the scene thin. Touch is the most grounding imaginal sense — Neville\'s exercises return to it constantly (the ladder\'s rungs, the hand in yours).',
+      },
+    ],
+    faq: [
+      {
+        q: 'I have aphantasia — no mental images at all. Am I excluded?',
+        a: 'No. Neville\'s target was never the picture but the state — and his own instrument list has five senses plus feeling. Build scenes from inner conversation, touch, and emotional certainty; many practitioners with no visual imagery succeed exactly this way.',
+      },
+      {
+        q: 'Is visualization the same as SATS?',
+        a: 'SATS is when-and-how (the drowsy state, the loop, falling asleep in the scene); visualization-done-right is the craft of the scene itself. This guide is the scene-craft; the SATS guide is the session.',
+      },
+      {
+        q: 'Open or closed eyes? Day or night?',
+        a: 'Closed eyes and a relaxed body make entering easiest, which is why the nightly session is the classic setting. But a practiced imaginer can enter a scene waiting in a queue — the skill, once built, is portable.',
+      },
+      {
+        q: 'How do I know the scene "took"?',
+        a: 'Neville\'s markers: the scene ends with the feeling of accomplishment rather than wanting; and afterward, thinking of the desire feels like remembering. If it still feels like hoping, enter again.',
+      },
+    ],
+    related: [
+      { title: 'Out of this World — Chapter 1', href: '/books/out-of-this-world/out-of-this-world-chapter-1' },
+      { title: 'The Law and the Promise — Chapter 6', href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-6' },
+      { title: 'SATS', href: '/techniques/sats' },
+      { title: 'Living in the End', href: '/techniques/living-in-the-end' },
+    ],
+  },
+
+  // -------------------------------------------------------------------------
+  {
+    slug: 'scripting',
+    title: 'Scripting — Authoring the Fulfilled Scene',
+    shortTitle: 'Scripting',
+    tagline: 'Write from the end — the modern name for a practice straight out of Neville\'s casebook.',
+    description:
+      "Scripting explained through Neville Goddard's own casebook: writing the fulfilled scene as its author — with the original examples, steps, and common mistakes.",
+    intro: [
+      'A word of honesty first: "scripting" as a term is modern community vocabulary — you will not find it in Neville\'s books. The practice, though, is right there in his casebook. In The Law and the Promise he approvingly reports a student who, stuck with an unsellable property, took the agent\'s discouraging letter and *rewrote it in imagination* — then authored a short scene of the sale completed, cast himself in it, and played it until it felt real. The lot sold. Neville\'s comment: imagining creates reality, and mentally rewriting a letter is imagining.',
+      'Scripting is that move with a pen in hand: you sit down as the **Author** (one of the Four Mighty Ones of imagination, from Seedtime and Harvest) and write the scene of the wish fulfilled — not a wish list, but the report of a thing accomplished. The writing is not the magic; it is a harness that holds attention and feeling on the end far better than drifting thought.',
+    ],
+    stepsIntro: 'How to script so the writing becomes an imaginal act:',
+    steps: [
+      {
+        title: 'Write from the end, as fact',
+        detail:
+          'Present or past tense, first person, done: "I\'m standing in the office shaking his hand — \'thank you, sir\'" / "It sold this morning, and the relief is enormous." Never "I want", never "I will" — the author of a finished scene does not plead.',
+      },
+      {
+        title: 'Keep it a scene, not an essay',
+        detail:
+          'The student\'s script in Neville\'s account was one handshake and two lines of dialogue. Half a page that you can re-enter beats five pages you can only re-read. Detail belongs to the senses, not to logistics.',
+      },
+      {
+        title: 'Feel while the pen moves',
+        detail:
+          'Write slowly enough to experience what you describe — the relief, the smile, the words in the other\'s voice. If your hand writes while your head plans dinner, it is stenography, not scripting.',
+      },
+      {
+        title: 'Use it as a doorway, not an archive',
+        detail:
+          'Re-read the script to re-enter the state — ideally before the nightly SATS session, where the written scene becomes the imaginal one. The paper is a key you cut once and turn often.',
+      },
+      {
+        title: 'Script the revision too',
+        detail:
+          'The original casebook use was revision in writing: rewriting a received letter, an exchange, a day, as it should have been. When a scene stings, draft its corrected version — the pen makes the new version concrete enough to relive.',
+      },
+    ],
+    quotes: [
+      {
+        text: 'The question may arise as to how, by representing others to ourselves as better than they really were, or mentally rewriting a letter to make it conform to our wish... but remember my claims for imagining: Imagining Creates Reality.',
+        source: 'The Law and the Promise — Chapter 3',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-3',
+      },
+      {
+        text: 'I received his letter on a Tuesday, and — in my imagination — I rewrote it with words indicating that the agent was eager to take my listing.',
+        source: 'A student\'s account — The Law and the Promise, Chapter 3',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-3',
+      },
+      {
+        text: 'As the Author, I wrote this simple scene which, to me, implied fulfillment: Standing in the real estate office, I extended my hand to the agent and said, "Thank you, sir".',
+        source: 'A student\'s account — The Law and the Promise, Chapter 3',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-3',
+      },
+      {
+        text: 'Life on earth is a kindergarten for image making. The bigness or littleness of the object to be created is not in itself important.',
+        source: 'The Law and the Promise — Chapter 13',
+        href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-13',
+      },
+    ],
+    mistakes: [
+      {
+        title: 'The wish-list script',
+        detail:
+          '"I want X, I\'d love Y, please let Z happen" is a letter to Santa — written from lack, it impresses lack. A script is a report from the fulfilled end, or it is nothing.',
+      },
+      {
+        title: 'Novel-length manuscripts',
+        detail:
+          'Pages of world-building feel productive and enter nothing. The measure of a script is whether you can close your eyes and be inside it in five seconds.',
+      },
+      {
+        title: 'Writing as the work',
+        detail:
+          'The notebook does not manifest; the state does. Scripting that never becomes felt re-entry — just daily pages of the same wishes — is journaling about desire, which keeps it a desire.',
+      },
+      {
+        title: 'Scripting the how',
+        detail:
+          'Plotting the mechanism ("then he calls, then the bank approves...") drags the means into your job description. Script the end scene; leave the bridge of incidents to build itself.',
+      },
+    ],
+    faq: [
+      {
+        q: 'Is scripting "valid" if Neville never used the word?',
+        a: 'The word is new; the act is his. Written revision and authored scenes are documented in his own casebook, and the Author is one of his Four Mighty Ones. Use the modern name freely — just practice the original mechanics: from the end, with feeling.',
+      },
+      {
+        q: 'Past tense or present tense?',
+        a: 'Whichever puts YOU in the scene most naturally. Present tense ("I\'m shaking his hand") suits live scenes; past tense ("it sold this morning") suits the gratitude-report style. The tense that kills scripts is future.',
+      },
+      {
+        q: 'Should I script daily?',
+        a: 'One good script re-entered nightly beats a new script every day — rewriting the same desire daily from scratch quietly confesses it hasn\'t happened yet. Write once, refine if the scene sharpens, revisit often.',
+      },
+      {
+        q: 'Keep or destroy the scripts?',
+        a: 'Practically: keep them somewhere private — re-reading an old script after its fulfillment is one of the best faith-builders there is (your own casebook). Ritually burning them is community folklore; harmless if it helps you release, unnecessary otherwise.',
+      },
+    ],
+    related: [
+      { title: 'The Law and the Promise — Chapter 3', href: '/books/the-law-and-the-promise/the-law-and-the-promise-chapter-3' },
+      { title: 'Seedtime and Harvest — Chapter 2 (the Four Mighty Ones)', href: '/books/seedtime-and-harvest/seedtime-and-harvest-chapter-2' },
+      { title: 'Revision', href: '/techniques/revision' },
+      { title: 'SATS', href: '/techniques/sats' },
+    ],
+  },
+
+  // -------------------------------------------------------------------------
+  {
+    slug: 'letting-go',
+    title: 'Letting Go — The Sabbath of the Practice',
+    shortTitle: 'Letting Go',
+    tagline: 'After the assumption, do nothing: the rest that lets the seed grow is part of the technique.',
+    description:
+      "What Neville Goddard taught about letting go: do nothing between assumption and realization — the Sabbath, detachment from results, and how to stop digging up the seed.",
+    intro: [
+      'Every practitioner meets the paradox sooner or later: care enough to imagine, then release your grip so the thing can arrive. Neville answered it without mysticism. Asked what to do between the assumption and its realization, his reply was one word: **nothing**. Not because effort is forbidden, but because the belief that anxious doing helps is precisely doubt in the assumption.',
+      'His name for the release was the **Sabbath** — not a day of the week but the mental rest that follows the completed inner work: "the period of mental pregnancy... made for the purpose of incubating the manifestation". You cannot force the Sabbath; it arrives by itself when the six days of work — the assuming — are genuinely done. Which turns letting go from a willpower feat into a diagnostic: if you can\'t let go, the state isn\'t yet natural, and the answer is more feeling, not more grip.',
+    ],
+    stepsIntro: 'How to release without dropping the state:',
+    steps: [
+      {
+        title: 'Finish the work first',
+        detail:
+          'Letting go presupposes something to let go OF: an assumption established until it feels like fact. If the scene still feels like wishing, you are in the six days — keep working it in SATS. Premature "detachment" is just giving up with better branding.',
+      },
+      {
+        title: 'Close the session with a full stop',
+        detail:
+          'End the imaginal act on the feeling of accomplishment — "it is done" — and get up, or fall asleep. No encore, no "one more time to be safe": the extra repetition asked from anxiety impresses anxiety.',
+      },
+      {
+        title: 'Drop the checking, keep the state',
+        detail:
+          'Letting go is not forgetting your desire; it is retiring from the evidence-audit. The farmer doesn\'t dig up the seed to see if it sprouted — but he also doesn\'t forget he planted a field. Live as the one who planted, without inspecting.',
+      },
+      {
+        title: 'Meet the interval with thanksgiving',
+        detail:
+          'The gap between assumption and appearance is where practices die. Fill it the way Neville filled prayer — with the mood of the already-received: "thank you" is the inner posture that holds the Sabbath without gripping.',
+      },
+      {
+        title: 'Hand the how entirely over',
+        detail:
+          '"Everything happens automatically": the bridge of incidents is not your department. When the mind drafts logistics, treat it like any mental-diet slip — notice, drop, return to the end.',
+      },
+    ],
+    quotes: [
+      {
+        text: 'It is a delusion that, other than assuming the feeling of the wish fulfilled, you can do anything to aid the realization of your desire... Everything happens automatically.',
+        source: 'The Power of Awareness — Chapter 21',
+        href: '/books/the-power-of-awareness/the-power-of-awareness-chapter-21',
+      },
+      {
+        text: 'The Sabbath is the mental rest which follows the fixed psychological state; it is the result of your six days of work.',
+        source: 'Freedom for All — Chapter 5',
+        href: '/books/freedom-for-all/freedom-for-all-chapter-5',
+      },
+      {
+        text: 'This mental rest which follows a successful conscious impregnation is the period of mental pregnancy; a period which is made for the purpose of incubating the manifestation.',
+        source: 'Freedom for All — Chapter 5',
+        href: '/books/freedom-for-all/freedom-for-all-chapter-5',
+      },
+      {
+        text: 'I can of mine own self do nothing... because I seek not mine own will, but the will of the Father which hath sent me.',
+        source: 'The Power of Awareness — Chapter 21',
+        href: '/books/the-power-of-awareness/the-power-of-awareness-chapter-21',
+      },
+    ],
+    mistakes: [
+      {
+        title: 'Confusing letting go with giving up',
+        detail:
+          'Giving up abandons the state ("it\'s not working"); letting go abandons the surveillance. The first kills the seed, the second waters it. The state stays; the grasping goes.',
+      },
+      {
+        title: 'White-knuckled detachment',
+        detail:
+          'Forcing yourself not to think about the desire is thinking about the desire, with cortisol. Real release is a by-product of naturalness — if it won\'t come, go back to the imaginal work instead of wrestling your own attention.',
+      },
+      {
+        title: 'The morning evidence audit',
+        detail:
+          'Waking and scanning inbox, phone and world for signs is the delusion of doing in its most popular costume. Every audit re-affirms "not yet".',
+      },
+      {
+        title: 'Doing nothing outwardly too',
+        detail:
+          'Neville\'s "do nothing" is about aiding the manifestation anxiously — not about boycotting life. Answer the phone, attend the interview, accept the invitation: the bridge of incidents arrives dressed as ordinary events, and you must walk across it.',
+      },
+    ],
+    faq: [
+      {
+        q: 'How do I "let go" of something I desperately want?',
+        a: 'You don\'t — desperation IS the grip. Work the state until the wanting relaxes into having (SATS, nightly), and release follows on its own. If the desire is too hot to feel fulfilled, build faith first on smaller targets — that is exactly what the Test the Law path is for.',
+      },
+      {
+        q: 'Is it wrong to think about my desire during the day?',
+        a: 'Thinking FROM it — enjoying it as yours — is the practice. Thinking ABOUT it — measuring its absence — is the leak. Same object, opposite postures.',
+      },
+      {
+        q: 'What if letting go feels like losing momentum?',
+        a: 'The six days metaphor answers this: momentum belongs to the working phase, rest belongs to the finished impression. A field doesn\'t need daily replanting — but if the state itself fades and wanting returns, that\'s your signal the impression wasn\'t complete: return to the scene.',
+      },
+      {
+        q: 'How long does the Sabbath last?',
+        a: 'Until the birth — Neville gives no calendar, only the promise that the interval is part of the design. The practical answer: it lasts exactly as long as it lasts when you\'re not counting.',
+      },
+    ],
+    related: [
+      { title: 'The Power of Awareness — Chapter 21', href: '/books/the-power-of-awareness/the-power-of-awareness-chapter-21' },
+      { title: 'Freedom for All — Chapter 5', href: '/books/freedom-for-all/freedom-for-all-chapter-5' },
+      { title: 'Living in the End', href: '/techniques/living-in-the-end' },
+      { title: 'Test the Law', href: '/test-the-law' },
+    ],
+  },
 ];
 
 export function getTechniqueBySlug(slug: string): Technique | undefined {
