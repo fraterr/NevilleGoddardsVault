@@ -41,21 +41,18 @@ interface PendingSelection {
 export default function Annotator({ slug, docTitle, children }: AnnotatorProps) {
   const wrapperRef = useRef<HTMLDivElement>(null);
   const pendingRef = useRef<PendingSelection | null>(null);
-  const [docAnnotations, setDocAnnotations] = useState<Annotation[]>([]);
+  // Lazy-initialized from localStorage; never rendered during SSR (the list is
+  // only consumed by the DOM effect below), so no hydration mismatch.
+  const [docAnnotations, setDocAnnotations] = useState<Annotation[]>(() =>
+    typeof window === 'undefined' ? [] : loadAnnotations().filter(a => a.slug === slug)
+  );
   const [toolbar, setToolbar] = useState<ToolbarState | null>(null);
   const [popover, setPopover] = useState<PopoverState | null>(null);
-  const loadedRef = useRef(false);
-
-  // Load this document's annotations once on mount
-  useEffect(() => {
-    setDocAnnotations(loadAnnotations().filter(a => a.slug === slug));
-    loadedRef.current = true;
-  }, [slug]);
 
   // (Re)apply highlights whenever the set changes
   useEffect(() => {
     const root = wrapperRef.current;
-    if (!root || !loadedRef.current) return;
+    if (!root) return;
 
     unwrapMarks(root);
     const text = fullText(root);

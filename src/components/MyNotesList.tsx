@@ -23,7 +23,7 @@ export default function MyNotesList() {
   );
   const [message, setMessage] = useState<string | null>(null);
   const fileRef = useRef<HTMLInputElement>(null);
-  const annotations = hydrated ? stored : [];
+  const annotations = useMemo(() => (hydrated ? stored : []), [hydrated, stored]);
 
   const groups = useMemo(() => {
     const bySlug = new Map<string, { docTitle: string; items: Annotation[] }>();
