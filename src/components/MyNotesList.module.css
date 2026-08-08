@@ -1,0 +1,157 @@
+.actions {
+  display: flex;
+  flex-wrap: wrap;
+  align-items: center;
+  gap: 0.6rem;
+  margin: 1.25rem 0;
+}
+
+.actionBtn {
+  padding: 0.55rem 1.1rem;
+  border-radius: 9px;
+  border: 1px solid var(--accent-gold-glow);
+  background: transparent;
+  color: var(--accent-gold);
+  font-weight: 600;
+  font-size: 0.88rem;
+  cursor: pointer;
+  transition: all 0.2s ease;
+}
+
+.actionBtn:hover:not(:disabled) {
+  background: var(--surface-hover);
+}
+
+.actionBtn:disabled {
+  opacity: 0.45;
+  cursor: default;
+}
+
+.count {
+  margin-left: auto;
+  font-size: 0.85rem;
+  color: var(--text-muted);
+}
+
+.message {
+  font-size: 0.85rem;
+  color: var(--accent-gold);
+  margin-bottom: 1rem;
+}
+
+.empty {
+  padding: 2rem 1.5rem;
+  border: 1px dashed var(--border);
+  border-radius: 12px;
+  color: var(--text-secondary);
+  line-height: 1.7;
+  text-align: center;
+}
+
+.empty a {
+  color: var(--accent-gold);
+}
+
+.group {
+  margin-bottom: 2rem;
+}
+
+.groupTitle {
+  font-family: var(--font-reading);
+  font-size: 1.2rem;
+  margin-bottom: 0.75rem;
+  display: flex;
+  align-items: baseline;
+  gap: 0.6rem;
+}
+
+.groupTitle a {
+  color: var(--text-primary);
+  text-decoration: none;
+}
+
+.groupTitle a:hover {
+  color: var(--accent-gold);
+}
+
+.groupCount {
+  font-size: 0.78rem;
+  color: var(--text-muted);
+}
+
+.list {
+  list-style: none;
+  padding: 0;
+  margin: 0;
+  display: flex;
+  flex-direction: column;
+  gap: 0.75rem;
+}
+
+.item {
+  padding: 0.9rem 1.1rem;
+  border: 1px solid var(--border);
+  border-radius: 10px;
+  background: var(--surface);
+}
+
+.quote {
+  margin: 0 0 0.4rem;
+  padding-left: 0.8rem;
+  border-left: 3px solid rgba(212, 175, 55, 0.5);
+  font-family: var(--font-reading);
+  font-style: italic;
+  color: var(--text-primary);
+  line-height: 1.6;
+  font-size: 0.93rem;
+}
+
+.noteText {
+  font-size: 0.9rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+  margin: 0.35rem 0 0.2rem;
+  white-space: pre-wrap;
+}
+
+.itemMeta {
+  display: flex;
+  justify-content: space-between;
+  align-items: center;
+  gap: 0.75rem;
+  margin-top: 0.5rem;
+}
+
+.date {
+  font-size: 0.76rem;
+  color: var(--text-muted);
+}
+
+.itemActions {
+  display: flex;
+  align-items: center;
+  gap: 0.75rem;
+}
+
+.openLink {
+  font-size: 0.8rem;
+  color: var(--accent-gold);
+  text-decoration: none;
+}
+
+.openLink:hover {
+  text-decoration: underline;
+}
+
+.removeBtn {
+  font-size: 0.78rem;
+  background: none;
+  border: none;
+  color: var(--text-muted);
+  cursor: pointer;
+  text-decoration: underline;
+}
+
+.removeBtn:hover {
+  color: #e0655a;
+}

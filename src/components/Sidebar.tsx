@@ -99,6 +99,13 @@ const SparkIcon = (
   </svg>
 );
 
+const PenIcon = (
+  <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
+    <path d="M12 20h9" />
+    <path d="M16.5 3.5a2.12 2.12 0 0 1 3 3L7 19l-4 1 1-4Z" />
+  </svg>
+);
+
 const FlaskIcon = (
   <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
     <path d="M10 2v7.31" />
@@ -209,6 +216,11 @@ export default function Sidebar() {
             <li className={styles.fileNode}>
               <Link href="/summaries" className={linkClass('/summaries')}>
                 <span className={styles.fileIcon}>{BookOpenIcon}</span> Book Summaries
+              </Link>
+            </li>
+            <li className={styles.fileNode}>
+              <Link href="/my-notes" className={linkClass('/my-notes')}>
+                <span className={styles.fileIcon}>{PenIcon}</span> My Notes
               </Link>
             </li>
           </ul>

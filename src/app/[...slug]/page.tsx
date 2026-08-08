@@ -18,6 +18,7 @@ import BibleReferencesBrowser from '@/components/BibleReferencesBrowser';
 import GlossaryBrowser from '@/components/GlossaryBrowser';
 import KeywordsBrowser from '@/components/KeywordsBrowser';
 import ReadingContainer from '@/components/ReadingContainer';
+import Annotator from '@/components/Annotator';
 import Breadcrumb, { Crumb } from '@/components/Breadcrumb';
 import PrevNextNav from '@/components/PrevNextNav';
 import RelatedDocs from '@/components/RelatedDocs';
@@ -230,7 +231,9 @@ export default async function DocumentPage({ params }: PageProps) {
       )}
       <Breadcrumb crumbs={crumbs} readingTime={readingTime} />
       <ReadingContainer>
-        <MarkdownRenderer content={doc.content} />
+        <Annotator slug={`/${resolvedParams.slug.join('/').toLowerCase()}`} docTitle={title}>
+          <MarkdownRenderer content={doc.content} />
+        </Annotator>
       </ReadingContainer>
       <PrevNextNav prev={adjacent.prev} next={adjacent.next} />
       <RelatedDocs docs={related} />
