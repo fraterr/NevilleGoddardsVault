@@ -38,6 +38,16 @@ interface PendingSelection {
   end: number;
 }
 
+/** Popover width must match .popover in the CSS module. */
+function popoverWidth(): number {
+  return Math.min(340, window.innerWidth * 0.85);
+}
+
+/** Clamp an x position so a box of `width` stays inside the wrapper. */
+function clampX(x: number, width: number, root: HTMLElement): number {
+  return Math.max(8, Math.min(x, root.clientWidth - width - 8));
+}
+
 export default function Annotator({ slug, docTitle, children }: AnnotatorProps) {
   const wrapperRef = useRef<HTMLDivElement>(null);
   const pendingRef = useRef<PendingSelection | null>(null);
@@ -106,8 +116,11 @@ export default function Annotator({ slug, docTitle, children }: AnnotatorProps) 
       const rect = range.getBoundingClientRect();
       const wrapRect = root.getBoundingClientRect();
       setPopover(null);
+      // The toolbar is centered on x (translateX -50%), so clamp its center
+      // half a toolbar-width away from either edge
+      const toolbarHalf = 110;
       setToolbar({
-        x: Math.max(8, rect.left - wrapRect.left + rect.width / 2),
+        x: Math.max(toolbarHalf, Math.min(rect.left - wrapRect.left + rect.width / 2, root.clientWidth - toolbarHalf)),
         y: rect.top - wrapRect.top,
       });
     }, 10);
@@ -142,7 +155,7 @@ export default function Annotator({ slug, docTitle, children }: AnnotatorProps) 
         const rect = mark ? mark.getBoundingClientRect() : wrapRect;
         setPopover({
           annId: ann.id,
-          x: Math.max(8, rect.left - wrapRect.left),
+          x: clampX(rect.left - wrapRect.left, popoverWidth(), root),
           y: rect.bottom - wrapRect.top + 6,
           draft: '',
         });
@@ -167,7 +180,7 @@ export default function Annotator({ slug, docTitle, children }: AnnotatorProps) 
     setToolbar(null);
     setPopover({
       annId: id,
-      x: Math.max(8, rect.left - wrapRect.left),
+      x: clampX(rect.left - wrapRect.left, popoverWidth(), root),
       y: rect.bottom - wrapRect.top + 6,
       draft: ann.note,
     });
