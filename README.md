@@ -34,6 +34,8 @@ scripts/
 
 `src/data/metadata.json` is a committed artifact: it holds per-document metadata (topics, keywords, Bible references) originally extracted from the Obsidian vault's frontmatter, which the exported files in `content/` no longer carry. Edit it directly when adding new documents.
 
+Blog posts live as markdown files in `/blog` and are authored via the admin panel at `/admin` (Sveltia CMS, GitHub backend: publishing commits to `main`, which triggers the deploy). An RSS feed is generated at `/feed.xml`.
+
 ## Development
 
 ```bash

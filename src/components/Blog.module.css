@@ -1,0 +1,81 @@
+.postList {
+  list-style: none;
+  padding: 0;
+  margin: 1.5rem 0 0;
+  display: flex;
+  flex-direction: column;
+  gap: 1rem;
+}
+
+.postCard {
+  border: 1px solid var(--border);
+  border-radius: 12px;
+  background: var(--surface);
+  transition: all 0.2s ease;
+}
+
+.postCard:hover {
+  border-color: var(--accent-gold-glow);
+  transform: translateY(-2px);
+}
+
+.postLink {
+  display: flex;
+  flex-direction: column;
+  gap: 0.4rem;
+  padding: 1.25rem 1.4rem;
+  text-decoration: none;
+}
+
+.postMeta {
+  font-size: 0.78rem;
+  color: var(--text-muted);
+}
+
+.postTitle {
+  font-family: var(--font-reading);
+  font-size: 1.3rem;
+  font-weight: 600;
+  color: var(--text-primary);
+  line-height: 1.35;
+}
+
+.postCard:hover .postTitle {
+  color: var(--accent-gold);
+}
+
+.postDescription {
+  font-size: 0.92rem;
+  color: var(--text-secondary);
+  line-height: 1.6;
+}
+
+.postTags {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 0.4rem;
+  margin-top: 0.25rem;
+}
+
+.tag {
+  font-size: 0.72rem;
+  padding: 0.15rem 0.6rem;
+  border: 1px solid var(--border);
+  border-radius: 999px;
+  color: var(--text-muted);
+  margin-left: 0.35rem;
+}
+
+.postTags .tag {
+  margin-left: 0;
+}
+
+.articleMeta {
+  font-size: 0.85rem;
+  color: var(--text-muted);
+  margin-bottom: 2rem;
+  display: flex;
+  align-items: center;
+  flex-wrap: wrap;
+  gap: 0.2rem;
+}

@@ -99,6 +99,15 @@ const SparkIcon = (
   </svg>
 );
 
+const NewsIcon = (
+  <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
+    <path d="M4 22h16a2 2 0 0 0 2-2V4a2 2 0 0 0-2-2H8a2 2 0 0 0-2 2v16a2 2 0 0 1-4 0V9" />
+    <path d="M18 14h-8" />
+    <path d="M15 18h-5" />
+    <path d="M10 6h8v4h-8V6Z" />
+  </svg>
+);
+
 const PenIcon = (
   <svg xmlns="http://www.w3.org/2000/svg" width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" strokeWidth="2.5" strokeLinecap="round" strokeLinejoin="round" aria-hidden="true">
     <path d="M12 20h9" />
@@ -216,6 +225,11 @@ export default function Sidebar() {
             <li className={styles.fileNode}>
               <Link href="/summaries" className={linkClass('/summaries')}>
                 <span className={styles.fileIcon}>{BookOpenIcon}</span> Book Summaries
+              </Link>
+            </li>
+            <li className={styles.fileNode}>
+              <Link href="/blog" className={linkClass('/blog')}>
+                <span className={styles.fileIcon}>{NewsIcon}</span> Blog
               </Link>
             </li>
             <li className={styles.fileNode}>
