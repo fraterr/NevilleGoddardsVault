@@ -240,6 +240,17 @@ export default function Sidebar() {
           </ul>
         </div>
 
+        <div className={styles.section}>
+          <h3 className={styles.sectionHeader}>Practice Together</h3>
+          <ul className={styles.sectionList}>
+            <li className={styles.fileNode}>
+              <Link href="/the-circle" className={linkClass('/the-circle')} aria-current={pathname === '/the-circle' ? 'page' : undefined}>
+                <span className={styles.fileIcon} aria-hidden="true">○</span> The Circle
+              </Link>
+            </li>
+          </ul>
+        </div>
+
         {/* Section 2: Vault Contents */}
         <div className={styles.section}>
           <h3 className={styles.sectionHeader}>Library</h3>

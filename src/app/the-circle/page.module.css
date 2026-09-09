@@ -1,0 +1,20 @@
+.page { padding: clamp(1.25rem, 4vw, 3rem); border-radius: 16px; font-size: 1.1rem; line-height: 1.8; }
+.header { display: flex; align-items: center; gap: 1.3rem; margin-bottom: 2rem; }
+.icon { border-radius: 50%; flex-shrink: 0; }
+.eyebrow { color: var(--accent-gold); font-size: 0.95rem; margin-bottom: 0.2rem !important; }
+.page h1 { font-family: var(--font-reading); font-size: clamp(2.1rem, 5vw, 3rem); line-height: 1.15; margin: 0 0 0.5rem; }
+.subtitle { color: var(--text-secondary); line-height: 1.5; margin: 0 !important; }
+.lead { font-family: var(--font-reading); font-size: 1.2rem; }
+.page p { margin-bottom: 1rem; }
+.page h2 { font-family: var(--font-reading); font-size: 1.5rem; line-height: 1.35; color: var(--accent-gold); margin: 2.4rem 0 1rem; }
+.steps, .boundaries { padding-left: 1.5rem; }
+.steps li, .boundaries li { padding-left: 0.3rem; margin-bottom: 1rem; }
+.steps li::marker { color: var(--accent-gold); font-weight: 600; }
+.commitment { border-left: 3px solid var(--accent-gold); padding-left: 1.4rem; margin-top: 2.5rem; }
+.commitment h2 { margin-top: 0; }
+.join { border-top: 1px solid var(--border); margin-top: 2.5rem; }
+.button { display: inline-flex; align-items: center; gap: 0.75rem; background: var(--accent-gold); color: var(--background); font-weight: 700; line-height: 1.5; padding: 0.8rem 1.2rem; border-radius: 8px; margin: 0.4rem 0 1rem; }
+.button:hover { color: var(--background); filter: brightness(1.12); }
+.button:focus-visible { outline: 3px solid var(--text-primary); outline-offset: 4px; }
+.note { color: var(--text-secondary); font-size: 0.95rem; line-height: 1.6; }
+@media (max-width: 480px) { .header { align-items: flex-start; flex-direction: column; } .icon { width: 64px; height: 64px; } .button { width: 100%; justify-content: center; } }
