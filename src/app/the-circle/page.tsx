@@ -4,7 +4,7 @@ import { SITE_NAME, SITE_URL, withBasePath } from '@/lib/config';
 import styles from './page.module.css';
 
 const discordInvite = 'https://discord.gg/kDQ26WJHBS';
-const description = 'A small Neville Goddard practice group on Discord. One shared intention per cycle, with members committed to imagining for others.';
+const description = 'A growing circle of Neville Goddard practitioners with a shared vision: changing reality for the better through collective imaginal practice.';
 
 export const metadata: Metadata = {
   title: 'The Circle — Imagine Together',
@@ -27,20 +27,29 @@ export default function TheCirclePage() {
         <div>
           <p className={styles.eyebrow}>A shared imaginal practice</p>
           <h1>The Circle</h1>
-          <p className={styles.subtitle}>One intention at a time. Everyone taking part.</p>
+          <p className={styles.subtitle}>Imagine together. For the good of humanity.</p>
         </div>
       </header>
 
       <p className={styles.lead}>
-        The Circle brings together people who already believe in Neville Goddard&apos;s
-        teachings and want to apply them together. We meet on Discord to commit to a
-        shared practice: imagining the fulfillment of one chosen desire, including
-        when it benefits someone other than ourselves.
+        Our vision is a vast circle of people united in purpose, applying Neville
+        Goddard&apos;s teachings to change reality for the better. We aspire to a
+        worldwide conclave of committed practitioners who direct their imagination
+        toward the well-being and progress of humanity.
+      </p>
+      <p>
+        At the heart of this vision is our belief that imagination shapes reality,
+        and that the occult laws of the universe can be consciously applied in
+        service of others. We seek tangible change: lives improved, communities
+        flourishing, and a more peaceful and generous world. This is the future
+        we want to help bring into being through a sustained, shared practice.
       </p>
       <p>
         The purpose is practice. Members arrive with a working understanding of SATS,
         an imaginal scene that implies fulfillment, and the feeling of the wish fulfilled.
-        The group stays small and focused, with no general discussion feed or introductory course.
+        We welcome growth while keeping that commitment focused: one shared intention
+        at a time, with everyone taking part. Discord is where we organize the work,
+        with no general discussion feed or introductory course.
       </p>
 
       <section aria-labelledby="how-it-works">
@@ -90,13 +99,13 @@ export default function TheCirclePage() {
       <section className={styles.join} aria-labelledby="join-the-circle">
         <h2 id="join-the-circle">Take your place in the Circle</h2>
         <p>
-          Open the Discord server, read <strong>#start-here</strong>, then answer the
-          three questions in <strong>#join</strong> about your practice, motivation and
-          availability. A moderator will review your introduction before admitting you
-          to the practice channels.
+          Follow the Discord link and complete the application about your practice,
+          motivation and availability. Moderators review each application before
+          granting access to the server. Once approved, read <strong>#start-here</strong>
+          and join the shared practice in <strong>#current-cycle</strong>.
         </p>
         <a className={styles.button} href={discordInvite}>Apply to join on Discord <span aria-hidden="true">↗</span></a>
-        <p className={styles.note}>A Discord account is required. Opening the server begins your application; it does not automatically admit you to the practice group.</p>
+        <p className={styles.note}>A Discord account is required. Server content remains unavailable while your application is pending.</p>
       </section>
     </article>
   );
