@@ -69,11 +69,23 @@ export default function TheCirclePage() {
       </section>
 
       <section className={styles.commitment} aria-labelledby="commitment">
-        <h2 id="commitment">Join to contribute</h2>
+        <h2 id="commitment">A sacred commitment</h2>
         <p>
-          The essential commitment is simple: take part even when the chosen intention
-          has nothing to do with you. A personal need can be proposed, but membership
-          never guarantees that your desire will be selected.
+          Joining The Circle means making a <strong>sacred commitment to carry out
+          the shared visualizations every day of every cycle</strong> while you are
+          a member. You undertake this practice wholeheartedly, whether or not the
+          chosen intention benefits you personally.
+        </p>
+        <p>
+          This disposition of spirit is a condition of admission. If you are not
+          prepared to honor this commitment consistently, please do not apply.
+          Occasional participation or observing from the sidelines does not fulfill
+          the commitment of membership.
+        </p>
+        <p>
+          A personal need can be proposed, but membership never guarantees that your
+          desire will be selected. The commitment is to the shared work and the good
+          of others.
         </p>
         <p>
           New members participate in one full cycle before submitting a proposal for
@@ -91,8 +103,8 @@ export default function TheCirclePage() {
           <li>Specific-person romantic requests, attempts to separate couples, revenge
             and harmful intentions are outside the group&apos;s scope.</li>
           <li>Participation is free. There are no coaching offers, sales or promises of results.</li>
-          <li>Respect privacy, describe observed outcomes honestly, and never blame a
-            member for an absence, a doubt or an outcome.</li>
+          <li>Respect privacy and describe observed outcomes honestly. Members are
+            accountable for their participation; no one is blamed for external outcomes.</li>
         </ul>
       </section>
 
@@ -100,7 +112,7 @@ export default function TheCirclePage() {
         <h2 id="join-the-circle">Take your place in the Circle</h2>
         <p>
           Follow the Discord link and complete the application about your practice,
-          motivation and availability. Moderators review each application before
+          motivation and acceptance of this sacred commitment. Moderators review each application before
           granting access to the server. Once approved, read <strong>#start-here</strong>
           and join the shared practice in <strong>#current-cycle</strong>.
         </p>
