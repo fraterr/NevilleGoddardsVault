@@ -64,7 +64,7 @@ function buildTree(dir, currentSlug = []) {
 
   return nodes.sort((a, b) => {
     if (a.type !== b.type) return a.type === 'directory' ? -1 : 1;
-    return a.name.localeCompare(b.name);
+    return a.name.localeCompare(b.name, 'en', { numeric: true });
   });
 }
 

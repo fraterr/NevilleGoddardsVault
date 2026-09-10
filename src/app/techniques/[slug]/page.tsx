@@ -134,6 +134,11 @@ export default async function TechniquePage({ params }: PageProps) {
       ))}
 
       <h2 className={styles.sectionTitle}>Go to the sources</h2>
+      {['sats', 'revision'].includes(technique.slug) && (
+        <p className={styles.intro}>
+          Read <Link href={`/success-stories/${technique.slug}/`}>{technique.slug === 'sats' ? 'SATS' : 'revision'} success stories from Reddit</Link> alongside the source texts. These are personal accounts, not verified outcomes.
+        </p>
+      )}
       <ul className={styles.relatedList}>
         {technique.related.map((link, i) => (
           <li key={i}>

@@ -98,13 +98,17 @@ export async function generateMetadata({ params }: PageProps): Promise<Metadata>
   const meta = getDocMetaBySlug(slug);
   const breadcrumbNames = getBreadcrumbNames(slug);
   const title = meta?.title || breadcrumbNames[breadcrumbNames.length - 1] || slug[slug.length - 1];
-  const description = doc.isDirectory
+  const description = doc.isDirectory && slug[0] === 'books'
+    ? getExcerpt(doc.content.replace(/^#.*$/gm, '').trim())
+    : doc.isDirectory
     ? `Explore ${title} in Neville Goddard's Vault. Browse the available texts and follow links to read each entry online.`
     : `${title}${meta?.book ? `, from ${meta.book}` : ''}. ${getExcerpt(doc.content, 120)}`;
   const banner = getBannerForSlug(slug);
 
   return {
-    title: slug[0] === 'lectures' && !doc.isDirectory
+    title: slug[0] === 'books' && doc.isDirectory
+      ? (slug.length === 1 ? 'Neville Goddard Books: Read Online' : `${title}: Read Online`)
+      : slug[0] === 'lectures' && !doc.isDirectory
       ? `${title} (Lecture)`
       :
       meta?.book && !title.toLowerCase().includes(meta.book.toLowerCase())

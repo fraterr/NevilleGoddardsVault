@@ -56,7 +56,10 @@ const TIME_LABELS: Record<string, string> = {
 
 const PAGE_SIZE = 30;
 
-export default function SuccessStoriesBrowser() {
+export default function SuccessStoriesBrowser({ techniqueScope }: { techniqueScope?: string }) {
+  const scopedStories = useMemo(() => techniqueScope
+    ? ALL_STORIES.filter(story => story.techniques.includes(techniqueScope))
+    : ALL_STORIES, [techniqueScope]);
   const [category, setCategory] = useState<string>('all');
   const [technique, setTechnique] = useState<string>('all');
   const [timeBucket, setTimeBucket] = useState<string>('all');
@@ -66,19 +69,19 @@ export default function SuccessStoriesBrowser() {
 
   const allTechniques = useMemo(() => {
     const set = new Set<string>();
-    for (const s of ALL_STORIES) s.techniques.forEach(t => set.add(t));
+    for (const s of scopedStories) s.techniques.forEach(t => set.add(t));
     return [...set].sort();
-  }, []);
+  }, [scopedStories]);
 
   const categoryCounts = useMemo(() => {
     const counts: Record<string, number> = {};
-    for (const s of ALL_STORIES) counts[s.category] = (counts[s.category] ?? 0) + 1;
+    for (const s of scopedStories) counts[s.category] = (counts[s.category] ?? 0) + 1;
     return counts;
-  }, []);
+  }, [scopedStories]);
 
   const filtered = useMemo(() => {
     const q = query.trim().toLowerCase();
-    const result = ALL_STORIES.filter(s => {
+    const result = scopedStories.filter(s => {
       if (category !== 'all' && s.category !== category) return false;
       if (technique !== 'all' && !s.techniques.includes(technique)) return false;
       if (timeBucket !== 'all' && s.timeBucket !== timeBucket) return false;
@@ -87,7 +90,7 @@ export default function SuccessStoriesBrowser() {
     });
     result.sort((a, b) => (sort === 'top' ? b.score - a.score : b.year - a.year || b.score - a.score));
     return result;
-  }, [category, technique, timeBucket, sort, query]);
+  }, [category, technique, timeBucket, sort, query, scopedStories]);
 
   const applyFilter = (setter: (v: string) => void) => (value: string) => {
     setter(value);
@@ -107,7 +110,7 @@ export default function SuccessStoriesBrowser() {
           className={`${styles.tab} ${category === 'all' ? styles.tabActive : ''}`}
           onClick={() => setCat('all')}
         >
-          All <span className={styles.count}>{ALL_STORIES.length}</span>
+          All <span className={styles.count}>{scopedStories.length}</span>
         </button>
         {CATEGORY_ORDER.map(cat => (
           <button
@@ -138,7 +141,7 @@ export default function SuccessStoriesBrowser() {
           className={styles.select}
           aria-label="Filter by technique"
         >
-          <option value="all">Any technique</option>
+          <option value="all">{techniqueScope ? 'Any accompanying technique' : 'Any technique'}</option>
           {allTechniques.map(t => (
             <option key={t} value={t}>{t}</option>
           ))}

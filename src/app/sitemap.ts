@@ -17,6 +17,8 @@ export default function sitemap(): MetadataRoute.Sitemap {
     { url: `${SITE_URL}/techniques/`, priority: 0.9 },
     ...TECHNIQUES.map(t => ({ url: `${SITE_URL}/techniques/${t.slug}/`, priority: 0.9 })),
     { url: `${SITE_URL}/success-stories/`, priority: 0.8 },
+    { url: `${SITE_URL}/success-stories/sats/`, priority: 0.8 },
+    { url: `${SITE_URL}/success-stories/revision/`, priority: 0.8 },
     { url: `${SITE_URL}/blog/`, priority: 0.8 },
     ...getBlogPosts().map(p => ({ url: `${SITE_URL}/blog/${p.slug}/`, priority: 0.7, lastModified: new Date(p.date) })),
     { url: `${SITE_URL}/summaries/`, priority: 0.9 },

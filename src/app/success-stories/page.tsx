@@ -22,21 +22,48 @@ export const metadata: Metadata = {
 export default function SuccessStoriesPage() {
   return (
     <article className="glass animate-fade-in" style={{ padding: '3rem', borderRadius: '16px', overflow: 'hidden' }}>
-      <h1 className={styles.pageTitle}>Success Stories</h1>
+      <h1 className={styles.pageTitle}>Neville Goddard Success Stories</h1>
       <p className={styles.tagline}>
         Hundreds of first-hand reports from the r/NevilleGoddard community — organized by goal,
         technique, and how long it took, so you can find the stories that speak to your situation.
       </p>
 
       <p className={styles.intro}>
-        Nothing builds faith in the practice like the testimony of people who did it. Every entry
-        below links to the original post on Reddit (with its comments and follow-ups), labeled with
-        the community&apos;s own &ldquo;Success Story&rdquo; flair. Read a few from your category —
-        then open the <Link href="/techniques" style={{ color: 'var(--accent-gold)' }}>technique guides</Link> and
-        write your own.
+        Browse personal accounts of applying Neville&apos;s teachings to relationships, work,
+        money and everyday life. Open the original Reddit post to read the author&apos;s full
+        account, comments and any follow-ups. The collection is a starting point for study;
+        the reports have not been independently verified.
       </p>
 
+      <nav className={styles.cardsGrid} aria-label="Stories by practice">
+        <Link className={styles.card} href="/success-stories/sats/">
+          <span className={styles.cardTitle}>SATS success stories</span>
+          <span className={styles.cardTagline}>Accounts mentioning imaginal scenes and the state akin to sleep, with a reading guide.</span>
+        </Link>
+        <Link className={styles.card} href="/success-stories/revision/">
+          <span className={styles.cardTitle}>Revision success stories</span>
+          <span className={styles.cardTagline}>Accounts of revisiting events in imagination, with questions to help compare the reports.</span>
+        </Link>
+      </nav>
+
+      <h2 className={styles.sectionTitle}>Browse all stories</h2>
+
       <SuccessStoriesBrowser />
+
+      <h2 className={styles.sectionTitle}>What can you learn from a success story?</h2>
+      <p className={styles.intro}>
+        Look for what the author actually practised: the scene, inner conversation or revised event.
+        Separate the time spent practising from the time until the reported outcome.
+        If details are missing, leave them unknown. Votes and vivid descriptions do not establish
+        what caused an outcome, and this collection cannot tell you how often a technique works.
+      </p>
+      <p className={styles.intro}>
+        To explore a practice yourself, read the <Link href="/techniques/sats/">SATS guide</Link>,{' '}
+        <Link href="/techniques/revision/">revision guide</Link> or{' '}
+        <Link href="/techniques/living-in-the-end/">living in the end guide</Link>.
+        The <Link href="/test-the-law/">Test the Law journal</Link> gives you somewhere to record
+        your own observations, including misses and uncertain results.
+      </p>
 
       <p className={styles.note}>
         These are self-reported experiences by anonymous Reddit users, indexed here as-is for

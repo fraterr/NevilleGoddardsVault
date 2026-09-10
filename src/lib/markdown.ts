@@ -147,7 +147,7 @@ function buildVaultTree(dir: string, currentSlug: string[] = []): VaultNode[] {
   // Sort: directories first, then alphabetically
   return nodes.sort((a, b) => {
     if (a.type !== b.type) return a.type === 'directory' ? -1 : 1;
-    return a.name.localeCompare(b.name);
+    return a.name.localeCompare(b.name, 'en', { numeric: true });
   });
 }
 
@@ -377,7 +377,7 @@ export function getDocumentBySlug(slug: string[]): MarkdownDocument | null {
       const aIsDir = a.includes('📁');
       const bIsDir = b.includes('📁');
       if (aIsDir !== bIsDir) return aIsDir ? -1 : 1;
-      return a.localeCompare(b);
+        return a.localeCompare(b, 'en', { numeric: true });
     });
 
     if (links.length > 0) {
