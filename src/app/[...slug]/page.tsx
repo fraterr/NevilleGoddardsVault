@@ -23,6 +23,9 @@ import Breadcrumb, { Crumb } from '@/components/Breadcrumb';
 import PrevNextNav from '@/components/PrevNextNav';
 import RelatedDocs from '@/components/RelatedDocs';
 import { notFound } from 'next/navigation';
+import Home, { metadata as homeMetadata } from '@/app/page';
+import Link from 'next/link';
+import { BOOK_SUMMARIES } from '@/data/bookSummaries';
 
 interface PageProps {
   params: Promise<{
@@ -70,6 +73,7 @@ export async function generateStaticParams() {
 export async function generateMetadata({ params }: PageProps): Promise<Metadata> {
   const { slug } = await params;
   const slugPath = slug.join('/').toLowerCase();
+  if (slugPath === 'index') return homeMetadata;
   const canonical = `${SITE_URL}/${slugPath}/`;
 
   const special = SPECIAL_PAGES[slugPath];
@@ -94,11 +98,15 @@ export async function generateMetadata({ params }: PageProps): Promise<Metadata>
   const meta = getDocMetaBySlug(slug);
   const breadcrumbNames = getBreadcrumbNames(slug);
   const title = meta?.title || breadcrumbNames[breadcrumbNames.length - 1] || slug[slug.length - 1];
-  const description = getExcerpt(doc.content) || `${title} — ${SITE_NAME}`;
+  const description = doc.isDirectory
+    ? `Explore ${title} in Neville Goddard's Vault. Browse the available texts and follow links to read each entry online.`
+    : `${title}${meta?.book ? `, from ${meta.book}` : ''}. ${getExcerpt(doc.content, 120)}`;
   const banner = getBannerForSlug(slug);
 
   return {
-    title:
+    title: slug[0] === 'lectures' && !doc.isDirectory
+      ? `${title} (Lecture)`
+      :
       meta?.book && !title.toLowerCase().includes(meta.book.toLowerCase())
         ? `${title} – ${meta.book}`
         : title,
@@ -122,6 +130,7 @@ export async function generateMetadata({ params }: PageProps): Promise<Metadata>
 
 export default async function DocumentPage({ params }: PageProps) {
   const resolvedParams = await params;
+  if (resolvedParams.slug.join('/').toLowerCase() === 'index') return <Home />;
 
   const isSearchTopics = resolvedParams.slug.length === 2 &&
                          resolvedParams.slug[0].toLowerCase() === 'search' &&
@@ -193,15 +202,21 @@ export default async function DocumentPage({ params }: PageProps) {
   }));
 
   const isDocument = !doc.isDirectory;
+  const isNevilleText = ['books', 'lectures'].includes(resolvedParams.slug[0].toLowerCase());
+  const summary = BOOK_SUMMARIES.find(book => {
+    const bookPath = book.bookHref.toLowerCase().replace(/\/$/, '');
+    const currentPath = `/${resolvedParams.slug.join('/').toLowerCase()}`;
+    return currentPath === bookPath || currentPath.startsWith(`${bookPath}/`);
+  });
   const readingTime = isDocument ? getReadingTimeMinutes(doc.content) : undefined;
   const adjacent = isDocument ? getAdjacentDocs(resolvedParams.slug) : { prev: null, next: null };
   const related = isDocument ? getRelatedDocs(resolvedParams.slug) : [];
 
   const jsonLd = {
     '@context': 'https://schema.org',
-    '@type': 'Article',
+    '@type': isDocument ? (isNevilleText ? 'Article' : 'WebPage') : 'CollectionPage',
     headline: title,
-    author: { '@type': 'Person', name: 'Neville Goddard' },
+    ...(isDocument && isNevilleText ? { author: { '@type': 'Person', name: 'Neville Goddard' } } : {}),
     publisher: { '@type': 'Organization', name: SITE_NAME },
     url: `${SITE_URL}/${resolvedParams.slug.join('/').toLowerCase()}/`,
     ...(bannerFile ? { image: `${SITE_URL}/images/banners/${bannerFile}` } : {}),
@@ -230,6 +245,12 @@ export default async function DocumentPage({ params }: PageProps) {
         </div>
       )}
       <Breadcrumb crumbs={crumbs} readingTime={readingTime} />
+      {!/^#\s+\S/m.test(doc.content) && !/<h1[\s>]/i.test(doc.content) && <h1>{title}</h1>}
+      {summary && (
+        <p style={{ marginBottom: '1.5rem' }}>
+          Study companion: <Link href={`/summaries/${summary.slug}/`}>{summary.title} summary and chapter guide</Link>
+        </p>
+      )}
       <ReadingContainer>
         <Annotator slug={`/${resolvedParams.slug.join('/').toLowerCase()}`} docTitle={title}>
           <MarkdownRenderer content={doc.content} />

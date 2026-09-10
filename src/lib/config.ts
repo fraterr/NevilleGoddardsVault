@@ -11,7 +11,7 @@ export const SITE_URL = `${SITE_ORIGIN}${BASE_PATH}`;
 export const SITE_NAME = "Neville Goddard's Vault";
 
 export const SITE_DESCRIPTION =
-  'A comprehensive, beautifully designed vault containing the books, lectures, and radio broadcasts of Neville Goddard.';
+  'Read Neville Goddard books and lectures online. Explore book summaries, SATS and revision guides, practical exercises, and Reddit success stories.';
 
 /** Prefix a public asset path (e.g. /images/logo.png) with the base path. */
 export function withBasePath(assetPath: string): string {

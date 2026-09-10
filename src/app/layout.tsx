@@ -2,6 +2,7 @@ import type { Metadata } from "next";
 import { Inter, Lora } from "next/font/google";
 import "./globals.css";
 import Sidebar from "@/components/Sidebar";
+import Link from "next/link";
 import { SITE_URL, SITE_NAME, SITE_DESCRIPTION } from "@/lib/config";
 
 const inter = Inter({
@@ -46,6 +47,12 @@ export default function RootLayout({
           <Sidebar />
           <main className="main-content">
             {children}
+            <footer style={{ padding: '2rem 0', fontSize: '0.9rem', color: 'var(--text-secondary)' }}>
+              <Link href="/about/">About and sources</Link>{' · '}
+              <Link href="/feedback/">Report a correction</Link>{' · '}
+              <Link href="/books/">Books</Link>{' · '}
+              <Link href="/lectures/">Lectures</Link>
+            </footer>
           </main>
         </div>
       </body>

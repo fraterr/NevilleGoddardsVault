@@ -26,7 +26,11 @@ export default function MarkdownRenderer({ content }: MarkdownRendererProps) {
             if (href?.startsWith('/')) {
               // Extract hash if present to preserve it
               const [pathPart, hashPart] = href.split('#');
-              const slugifiedPath = pathPart.split('/').map(slugify).join('/');
+              const parts = pathPart.split('/').map(slugify).filter(Boolean);
+              // Obsidian folder notes share the name of their parent folder,
+              // but the exported site serves them at the folder URL.
+              if (parts.length >= 2 && parts.at(-1) === parts.at(-2)) parts.pop();
+              const slugifiedPath = parts.join('/') === 'index' ? '/' : `/${parts.join('/')}/`;
               
               if (hashPart) {
                 // Return a standard <a> tag with base path prepended to bypass Next.js Link basePath hash bug

@@ -1,6 +1,22 @@
 ﻿import { getDocumentBySlug } from '@/lib/markdown';
 import { withBasePath } from '@/lib/config';
 import MarkdownRenderer from '@/components/MarkdownRenderer';
+import type { Metadata } from 'next';
+import { SITE_URL, SITE_NAME, SITE_DESCRIPTION } from '@/lib/config';
+
+export const metadata: Metadata = {
+  title: { absolute: 'Neville Goddard: Books, Lectures & Practical Guides' },
+  description: SITE_DESCRIPTION,
+  alternates: { canonical: `${SITE_URL}/` },
+  openGraph: {
+    title: 'Neville Goddard: Books, Lectures & Practical Guides',
+    description: SITE_DESCRIPTION,
+    url: `${SITE_URL}/`,
+    siteName: SITE_NAME,
+    type: 'website',
+    images: [{ url: `${SITE_URL}/images/banners/banner-index.webp` }],
+  },
+};
 
 export default function Home() {
   const indexDoc = getDocumentBySlug(['index']);
@@ -16,6 +32,12 @@ export default function Home() {
 
   return (
     <article className="glass animate-fade-in" style={{ padding: '3rem', borderRadius: '16px', overflow: 'hidden' }}>
+      <script type="application/ld+json" dangerouslySetInnerHTML={{ __html: JSON.stringify({
+        '@context': 'https://schema.org', '@type': 'WebSite',
+        '@id': `${SITE_URL}/#website`, name: SITE_NAME,
+        alternateName: 'Neville Goddard Vault', url: `${SITE_URL}/`,
+        description: SITE_DESCRIPTION, inLanguage: 'en',
+      }) }} />
       <div style={{
         margin: '-3rem -3rem 2rem -3rem',
         position: 'relative',

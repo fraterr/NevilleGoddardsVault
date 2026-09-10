@@ -10,6 +10,7 @@ export const dynamic = 'force-static';
 export default function sitemap(): MetadataRoute.Sitemap {
   const entries: MetadataRoute.Sitemap = [
     { url: `${SITE_URL}/`, priority: 1 },
+    { url: `${SITE_URL}/about/`, priority: 0.5 },
     { url: `${SITE_URL}/start-here/`, priority: 0.9 },
     { url: `${SITE_URL}/the-circle/`, priority: 0.8 },
     { url: `${SITE_URL}/test-the-law/`, priority: 0.9 },
@@ -38,5 +39,5 @@ export default function sitemap(): MetadataRoute.Sitemap {
   }
 
   traverse(getVaultTree());
-  return entries;
+  return [...new Map(entries.map(entry => [entry.url, entry])).values()];
 }

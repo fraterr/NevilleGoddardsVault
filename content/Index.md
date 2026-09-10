@@ -1,70 +1,39 @@
-Welcome to the Neville Goddard Vault! This website contains the [published works](/Books) and [lecture transcripts](/Lectures) of Neville Goddard, the influential 20th century metaphysical teacher. Every single text (be it the chapter of a book, a lecture or a radio lecture) <u>has its own comprehensive summary</u>, for enhanced readability and understanding. You can find summaries at the <u>end of each single note</u>.
+# Neville Goddard: Books, Lectures and Practical Guides
 
+Read Neville Goddard's books and lecture transcripts online, compare his ideas, and find passages you can return to while practising. The Vault brings the texts together with book summaries, technique guides, personal notes and a searchable collection of Reddit success stories.
 
-[Neville Goddard](https://en.wikipedia.org/wiki/Neville_Lancelot_Goddard) (1905-1972) was an influential metaphysical teacher central to the [New Thought](https://en.wikipedia.org/wiki/New_Thought) movement.
+## Where should I start?
 
-Born in Barbados and based in New York City, Neville dedicated his life to understanding and teaching the power of [imagination](/glossary#imagination), faith, and manifestation according to his [mystical interpretation of Christianity](https://en.wikipedia.org/wiki/Christian_mysticism).
+If you are new to Neville, begin with [Start Here](/start-here/), a reading and practice path. Prefer to read a book first? Try [Feeling Is the Secret](/books/feeling-is-the-secret/), then use its [summary and chapter guide](/summaries/feeling-is-the-secret/) to revisit the main ideas.
 
-Through his accessible [lectures](/Lectures) and over 10 [books](/Books), Neville made the practical application of metaphysical principles simple and available to the masses. His teachings show how to use imagination, attention, and [assumption](/glossary#assumption) to manifest desires.
+Already practising? [Test the Law](/test-the-law/) offers a progression of exercises beginning with the ladder exercise, with space to record what you imagined and what happened. Keep a record of misses and uncertain outcomes as well as apparent matches.
 
-Neville focused on [the promise](/glossary#the-promise) within [Biblical stories and verses](/Search/Bible-References), communicating how one can transform their life by applying these universal principles. He continues to have a devoted following around the world.
+## Read Neville Goddard online
 
-Please note this site is a work in progress and is constantly being [updated](/Updates-and-changelog) with new material and improvements.
+- [Books](/books/): browse the book collection and read individual chapters.
+- [Lectures](/lectures/): explore the lecture transcripts and follow related readings.
+- [Radio lectures](/lectures/radio-lectures/): read the radio talks.
+- [Book summaries](/summaries/): compare key ideas and follow chapter links back to the texts.
 
-## The Vault
+## Understand and practise the techniques
 
+Neville taught that imagination and the assumption of a fulfilled desire shape experience. These guides explain his approach and link to readings in the Vault:
 
-The vault is organized into several sections to make Neville's teachings easy to explore:
+- [SATS](/techniques/sats/): imagining a short scene in a relaxed, drowsy state.
+- [Revision](/techniques/revision/): revisiting an event in imagination as you wish it had happened.
+- [Living in the end](/techniques/living-in-the-end/): approaching a desire from the perspective of its fulfilment.
+- [Mental diet](/techniques/mental-diet/): noticing and changing habitual inner conversations.
 
-- [Books](/Books)
-- [Lectures](/Lectures)
-	- [Radio Lectures](/Lectures/Radio-Lectures)
-- [Search](/Search)
-- [Feedback](/Feedback)
-- [Buy me a Tea](/Buy-me-a-Tea)
-- [Updates and changelog](/Updates-and-changelog)
+Browse [all technique guides](/techniques/) or read the [blog](/blog/) for discussions of practical questions.
 
-### [Books](/Books)
+## Explore other readers' experiences
 
-Contains Neville's over 10 published [books](/Books) presenting his core teachings and metaphysical principles.
+The [success stories collection](/success-stories/) brings together Reddit posts you can filter by goal, technique and reported timeframe. Each entry links to the original discussion. These are personal accounts, not independently verified evidence that a technique caused an outcome. The labels are extracted automatically and can be inaccurate.
 
-### [Lectures](/Lectures)
+## Study a question in depth
 
-Over 200 transcripts from Neville's [lectures](/Lectures) delivered live in New York City between the 1940s-1960s. His spoken wisdom and stories provide valuable context.
+Use the [topic index](/search/topics/), [keyword index](/search/keywords/), [Bible references](/search/bible-references/) and [glossary](/glossary/) to compare passages across the collection. Select a passage in a book or lecture to highlight it or add a note; your [notes](/my-notes/) are saved in your browser and can be exported.
 
-### [Radio Lectures](/Lectures/Radio-Lectures)
+## About this collection
 
-Transcripts of Neville's [talks](/Lectures/Radio-Lectures) and lessons given over radio broadcasts.
-
-### [Search](/Search)
-
-Neville's writings indexed and organized by key [topics](/Search/Topics), themes, [Bible verses](/Search/Bible-References), and more. Enables focused study on specific aspects of his teachings.
-
-### [Feedback](/Feedback)
-
-Instructions on how to provide suggestions or report any errors encountered in the vault. User contributions help improve the resource.
-
-### [Buy me a Tea](/Buy-me-a-Tea)
-
-If you feel like it, you can support the Neville Goddard's Vault here.
-
-### [Updates and changelog](/Updates-and-changelog)
-
-Here I'll post every update. 
-
-
-## Summaries
-
-To enhance your understanding and provide a valuable resource, you can find <u>comprehensive summaries for each text and transcription, including his radio lectures</u>. With a commitment to accessibility and clarity, I have meticulously crafted detailed summaries for every individual chapter, conveniently located at the end of each note.
-
-The aim is to condense the wisdom and insights contained within Neville Goddard's works, making them more accessible and digestible for readers seeking inspiration and transformation. These summaries serve as concise yet comprehensive guides, capturing the essence of each chapter and highlighting key concepts, practical techniques, and profound revelations.
-
-
-## The Vision
-
-My goal for this website is to make Neville's profound ideas readily available for anyone to access and apply in their lives. Please explore the teachings, try the techniques in your own life, and let the truths resonate from within.
-
-This is a work of love, and it is ongoing and always evolving. 
-Check back often as more content is added. 
-
-Now, claim your desire by assuming the [feeling](/glossary#feeling) of the <u>wish fulfilled</u>!
+The Vault is an independent reader resource. Summaries and practice guides are editorial companions to Neville's texts. Read [about the collection and its sources](/about/), [report a correction](/feedback/), or [support the project](/buy-me-a-tea/).
