@@ -35,7 +35,10 @@ for (const url of urls) {
     const target = new URL(href.replaceAll('&amp;', '&'), url);
     if (target.origin !== new URL(url).origin) continue;
     const targetPath = path.join(out, decodeURIComponent(target.pathname));
-    if (!fs.existsSync(targetPath) && !fs.existsSync(`${targetPath}.html`)) {
+    const exists = fs.existsSync(targetPath)
+      ? !fs.statSync(targetPath).isDirectory() || fs.existsSync(path.join(targetPath, 'index.html'))
+      : fs.existsSync(`${targetPath}.html`);
+    if (!exists) {
       warnings.push(`Broken internal link: ${url} -> ${target.pathname}`);
     }
   }
@@ -43,8 +46,13 @@ for (const url of urls) {
     try { JSON.parse(match[1]); } catch { errors.push(`Invalid JSON-LD: ${url}`); }
   }
 }
-const aliasFile = path.join(out, 'index', 'index.html');
-if (fs.existsSync(aliasFile)) {
+// Next's export can nest the legacy /index route under index/index/.
+const aliasRoot = path.join(out, 'index');
+const aliasFiles = fs.existsSync(aliasRoot)
+  ? fs.readdirSync(aliasRoot, { recursive: true }).filter(file => file.endsWith('.html'))
+  : [];
+for (const file of aliasFiles) {
+  const aliasFile = path.join(aliasRoot, file);
   const alias = fs.readFileSync(aliasFile, 'utf8');
   if (!alias.includes(`rel="canonical" href="${new URL('/', urls[0]).href}"`)) errors.push('Home alias has wrong canonical');
 }
@@ -53,4 +61,4 @@ fs.mkdirSync(path.join(root, 'reports'), { recursive: true });
 fs.writeFileSync(path.join(root, 'reports', 'seo-audit.json'), JSON.stringify(report, null, 2) + '\n');
 console.log(`SEO audit: ${report.pages} sitemap pages, ${errors.length} errors, ${report.warnings.length} warnings. See reports/seo-audit.json.`);
 errors.forEach(error => console.error(error));
-if (errors.length) process.exitCode = 1;
+if (errors.length || warnings.length) process.exitCode = 1;
